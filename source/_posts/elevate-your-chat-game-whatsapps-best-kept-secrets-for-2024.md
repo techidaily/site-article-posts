@@ -1,7 +1,7 @@
 ---
 title: "\"Elevate Your Chat Game  WhatsApp's Best-Kept Secrets for 2024\""
-date: 2024-06-12T01:27:19.598Z
-updated: 2024-06-13T01:27:19.598Z
+date: 2024-06-19T23:57:25.610Z
+updated: 2024-06-20T23:57:25.610Z
 tags: 
   - screen-recording
   - ai video
@@ -44,7 +44,7 @@ Yes, you can bold your text. Just add a star (\*) symbol before and after your t
 
 #### 2.Italic
 
-Just like the bold, you can also italicize your fonts by simply inserting Underscore Symbol ( \_text\_ ) at the starting and end of your sentence.
+Just like the bold, you can also italicize your fonts by simply inserting Underscore Symbol (\_text\_) at the starting and end of your sentence.
 
 ![Whatsapp Text Tricks Italic](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-italic.jpg)
 
@@ -164,9 +164,7 @@ Some of the best WhatsApp video editing tricks are coming up, wherein you can ad
 
 #### 1.Download & Edit WhatsApp Video from A Contact’s Status
 
-There are no download options for photos and videos for WhatsApp Statuses, yet you can have it on your PC, iPhone, and Android device and surprise a loved one by editing the videos they did not send you personally. To do this, you can go to File Manager >> Settings >> Turn on Show Hidden Files; after doing this go back to Internal Storage >> WhatsApp >> Media >> Statuses. Once you have the Video, you can import it to Filmora and use a gamut of video editing tools to create the magic!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+There are no download options for photos and videos for WhatsApp Statuses, yet you can have it on your PC, iPhone, and Android device and surprise a loved one by editing the videos they did not send you personally. To do this, you can go to File Manager >> Settings >> Turn on Show Hidden Files; after doing this go back to Internal Storage >> WhatsApp >> Media >> Statuses. Once you have the Video, you can import it to Filmora and use a gamut of video editing tools to create the magic![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 2.Record Video Calls from PC and Improve Its Quality
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Become a Periscope Wizard with Our Full Guidebook"
-date: 2024-06-12T01:06:16.401Z
-updated: 2024-06-13T01:06:16.401Z
+date: 2024-06-19T23:57:23.555Z
+updated: 2024-06-20T23:57:23.555Z
 tags: 
   - screen-recording
   - ai video
@@ -36,19 +36,19 @@ thumbnail: https://thmb.techidaily.com/4e9049dc8c6c71972ee6cfdb2106ce48df8399753
 
  The second list contains information about all those broadcasts that you have viewed within last 24 hours.
 
-![use-periscope-1 ](https://images.wondershare.com/filmora/article-images/use-periscope-1.jpg)
+![use-periscope-1](https://images.wondershare.com/filmora/article-images/use-periscope-1.jpg)
 
  2\. **The second tab** on application is used to display list of public broadcasts on global level and users are free to join all of them. They are developed on the basis of your geographical location.
 
-![use-periscope-2 ](https://images.wondershare.com/filmora/article-images/use-periscope-2.jpg)
+![use-periscope-2](https://images.wondershare.com/filmora/article-images/use-periscope-2.jpg)
 
  3\. **The third tab** again contains the information about list of live public broadcasts in list format.
 
-![use-periscope-3 ](https://images.wondershare.com/filmora/article-images/use-periscope-3.jpg)
+![use-periscope-3](https://images.wondershare.com/filmora/article-images/use-periscope-3.jpg)
 
  4\. **The fourth tab** is designed to assist users with easy search for followers. It also displays settings for your own profile and allows users to make basic adjustments for followers.
 
-![use-periscope-4 ](https://images.wondershare.com/filmora/article-images/use-periscope-4.jpg)
+![use-periscope-4](https://images.wondershare.com/filmora/article-images/use-periscope-4.jpg)
 
 ## How to watch Periscope Video?
 
@@ -62,7 +62,7 @@ thumbnail: https://thmb.techidaily.com/4e9049dc8c6c71972ee6cfdb2106ce48df8399753
 
  3\. There is a little person on bottom right corner of your app screen; it provides information about number of viewers on your broadcast. If you touch this tiny icon, it will take you to another page.
 
-![use-periscope-5 ](https://images.wondershare.com/filmora/article-images/use-periscope-5.jpg)
+![use-periscope-5](https://images.wondershare.com/filmora/article-images/use-periscope-5.jpg)
 
 ## How to Broadcast on Periscope?
 
@@ -70,15 +70,15 @@ thumbnail: https://thmb.techidaily.com/4e9049dc8c6c71972ee6cfdb2106ce48df8399753
 
  During your very first visit to broadcast screen, you will find a permission required pop up. Here you have to hit on allow permissions option. Now enable all three options that appear on screen.
 
-![use-periscope-6 ](https://images.wondershare.com/filmora/article-images/use-periscope-6.jpg)
+![use-periscope-6](https://images.wondershare.com/filmora/article-images/use-periscope-6.jpg)
 
  Now you are at broadcast screen where you have to enter name or title of your broadcast event. Users can adjust their location preferences while converting broadcasts from private to public or vice versa view. Adjust the chat options and finally you will reach at your Twitter link. If you want to capture feeds from webcam then it can be switched easily by simply double tapping on device screen. Once all these controls have been adjusted then your app provides an event summery, you can approve it or edit before making your post live. It will also provide you details about how many hearts you have received from viewers.
 
-![use-periscope-7 ](https://images.wondershare.com/filmora/article-images/use-periscope-7.jpg)
+![use-periscope-7](https://images.wondershare.com/filmora/article-images/use-periscope-7.jpg)
 
  Once your broadcast becomes live then it will stay online for next 24 hours and all viewers and followers will be able to replay, watch as well as share the information with other users. The collection of hearts as viewer’s response may go on.
 
-![use-periscope-8 ](https://images.wondershare.com/filmora/article-images/use-periscope-8.jpg)
+![use-periscope-8](https://images.wondershare.com/filmora/article-images/use-periscope-8.jpg)
 
 ## Tips to get more followers or viewers on Periscope
 

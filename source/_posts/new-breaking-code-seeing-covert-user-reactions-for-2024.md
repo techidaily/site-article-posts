@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Breaking Code  Seeing Covert User Reactions for 2024\""
-date: 2024-06-12T01:04:13.480Z
-updated: 2024-06-13T01:04:13.480Z
+date: 2024-06-19T23:57:24.115Z
+updated: 2024-06-20T23:57:24.115Z
 tags: 
   - screen-recording
   - ai video
@@ -155,9 +155,7 @@ When you click over to the comments area after receiving a notification about a 
 
 To put it another way, YouTube flags notable comments for you to ensure that new messages or significant replies aren't lost in the noise. Once you have read or replied to the comment, the highlight will go.
 
-Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da!
-
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
@@ -255,9 +253,7 @@ When you click over to the comments area after receiving a notification about a 
 
 To put it another way, YouTube flags notable comments for you to ensure that new messages or significant replies aren't lost in the noise. Once you have read or replied to the comment, the highlight will go.
 
-Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da!
-
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 

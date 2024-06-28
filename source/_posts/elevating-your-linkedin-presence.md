@@ -1,7 +1,7 @@
 ---
 title: "Elevating Your LinkedIn Presence"
-date: 2024-06-12T01:25:48.343Z
-updated: 2024-06-13T01:25:48.343Z
+date: 2024-06-19T23:57:24.364Z
+updated: 2024-06-20T23:57:24.364Z
 tags: 
   - screen-recording
   - ai video
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6
 * Scroll and reach the segment you wish to edit and click on Edit icon
 * Edit, add or remove text in the appropriate field
   
-![edit profile]( https://images.wondershare.com/filmora/article-images/edit-profile.JPG)
+![edit profile](https://images.wondershare.com/filmora/article-images/edit-profile.JPG)
 
 * Once editing is done, click SAVE
 

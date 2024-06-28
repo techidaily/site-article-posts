@@ -1,7 +1,7 @@
 ---
 title: "[Updated] PewDiePie's Annual Earnings Breakdown for 2024"
-date: 2024-06-12T01:25:36.699Z
-updated: 2024-06-13T01:25:36.699Z
+date: 2024-06-19T23:57:23.350Z
+updated: 2024-06-20T23:57:23.350Z
 tags: 
   - screen-recording
   - ai video
@@ -32,7 +32,7 @@ Let’s first start with the basic identity and financial information of Felix A
 | ---------------------- | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | First Name             | Felix Arvid Ulf                                                                                                                                                                                                      |
 | Last Name              | Kjellberg                                                                                                                                                                                                            |
-| Net Worth ( 2022 )     | $35-$55 Million                                                                                                                                                                                                      |
+| Net Worth (2022)     | $35-$55 Million                                                                                                                                                                                                      |
 | Monthly Income Salary  | $400000 +                                                                                                                                                                                                            |
 | Yearly Income          | $5 Million +                                                                                                                                                                                                         |
 | Birth Date             | 24th October, 1989                                                                                                                                                                                                   |
@@ -129,7 +129,7 @@ This is an interesting video of PewDiePie that features a collection of funny mo
 
 ![funny gaming montage](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-07.jpg)
 
-3\. [Jabba the Hutt ( PewDiePie song by Schmoyoho)](https://www.youtube.com/watch?v=lxw3C5HJ2XU&feature=emb%5Fimp%5Fwoyt)
+3\. [Jabba the Hutt (PewDiePie song by Schmoyoho)](https://www.youtube.com/watch?v=lxw3C5HJ2XU&feature=emb%5Fimp%5Fwoyt)
 
 This is another popular video of PewDiePie that features a song which is dedicated to one of PewDiePie’s pet dogs- Maya. The video also has a collection of moments from his videos.
 
@@ -289,7 +289,7 @@ This is an interesting video of PewDiePie that features a collection of funny mo
 
 ![funny gaming montage](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-07.jpg)
 
-3\. [Jabba the Hutt ( PewDiePie song by Schmoyoho)](https://www.youtube.com/watch?v=lxw3C5HJ2XU&feature=emb%5Fimp%5Fwoyt)
+3\. [Jabba the Hutt (PewDiePie song by Schmoyoho)](https://www.youtube.com/watch?v=lxw3C5HJ2XU&feature=emb%5Fimp%5Fwoyt)
 
 This is another popular video of PewDiePie that features a song which is dedicated to one of PewDiePie’s pet dogs- Maya. The video also has a collection of moments from his videos.
 
