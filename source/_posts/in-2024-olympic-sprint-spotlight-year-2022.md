@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Olympic Sprint Spotlight  Year 2022\""
-date: 2024-06-12T01:10:45.227Z
-updated: 2024-06-13T01:10:45.227Z
+date: 2024-06-27T10:45:28.434Z
+updated: 2024-06-28T10:45:28.434Z
 tags: 
   - screen-recording
   - ai video
@@ -74,7 +74,7 @@ To create such a highlight video on any sports event, there are certain videos e
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
 
-### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
+### A Professional Video Editor
 
 To create a video based on any sport event such as short track speed skating highlights, you need a professional video editor where you can get all the video effects and elements in one place. We recommend Wondershare Filmora where you get a wide range of video effects and editing tools to make your video stand out easily.
 
