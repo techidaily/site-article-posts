@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Craft Humorous Memes with Giphy for 2024"
-date: 2024-06-12T01:06:37.137Z
-updated: 2024-06-13T01:06:37.137Z
+date: 2024-07-05T03:16:04.106Z
+updated: 2024-07-06T03:16:04.106Z
 tags: 
   - screen-recording
   - ai video
@@ -52,7 +52,7 @@ There are innumerable varieties of memes, but the ones that most people are fami
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-##### Step1 Install [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and Select Meme Backdrop
+##### Step1 Install Filmora
 
 You may create your own memes for every occasion with the aid of the Filmora meme maker. Make your meme unique with free photos, fonts, and other elements. However, while making a meme, you will have a notion in mind. But if not, think up something humorous. Install this editor on the fly after that.
 
@@ -84,7 +84,7 @@ Additionally, Giphy offers a Giphy Cam software that enables users to create cus
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-##### Step1 Install [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and Select Meme Backdrop
+##### Step1 Install Filmora
 
 You may create your own memes for every occasion with the aid of the Filmora meme maker. Make your meme unique with free photos, fonts, and other elements. However, while making a meme, you will have a notion in mind. But if not, think up something humorous. Install this editor on the fly after that.
 

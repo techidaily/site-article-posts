@@ -1,7 +1,7 @@
 ---
 title: "[New] Acclaimed 20 Open Source PUBG Thumbnail Bundles"
-date: 2024-06-12T01:02:59.366Z
-updated: 2024-06-13T01:02:59.366Z
+date: 2024-07-05T03:16:06.497Z
+updated: 2024-07-06T03:16:06.497Z
 tags: 
   - screen-recording
   - ai video
@@ -92,7 +92,7 @@ Unbelievable Skill Set
 
 This thumbnail shows the player overpowering the enemy with relative ease. OP means overpowered, and it's used to describe a particular ability, gun, or any other powerful element in the game.
 
-![PUBG Montage Thumbnail - Montage Thumbnail of LIVEK Is OP ](https://images.wondershare.com/filmora/article-images/2022/05/pubg-montage-thumbnail-6.png)
+![PUBG Montage Thumbnail - Montage Thumbnail of LIVEK Is OP](https://images.wondershare.com/filmora/article-images/2022/05/pubg-montage-thumbnail-6.png)
 
 Montage Thumbnail of LIVEK Is OP
 
@@ -324,7 +324,7 @@ Unbelievable Skill Set
 
 This thumbnail shows the player overpowering the enemy with relative ease. OP means overpowered, and it's used to describe a particular ability, gun, or any other powerful element in the game.
 
-![PUBG Montage Thumbnail - Montage Thumbnail of LIVEK Is OP ](https://images.wondershare.com/filmora/article-images/2022/05/pubg-montage-thumbnail-6.png)
+![PUBG Montage Thumbnail - Montage Thumbnail of LIVEK Is OP](https://images.wondershare.com/filmora/article-images/2022/05/pubg-montage-thumbnail-6.png)
 
 Montage Thumbnail of LIVEK Is OP
 

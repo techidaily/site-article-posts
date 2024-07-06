@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Basic Story Blueprint"
-date: 2024-06-12T01:26:02.200Z
-updated: 2024-06-13T01:26:02.200Z
+date: 2024-07-05T03:16:07.432Z
+updated: 2024-07-06T03:16:07.432Z
 tags: 
   - screen-recording
   - ai video
@@ -118,7 +118,7 @@ Fortunately, inexpensive video editing software may give your video story a poli
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-**_Note: For further details, go to [Wondershare Filmora 11 | More Than Just You.](https://youtu.be/u2i39suoH5c)_**
+**_Note: For further details, go to [Wondershare Filmora 11 | More Than Just You.](https://youtu.be/u2i39suoH5c) _**
 
 ## Start Your Marketing Storytelling Tour
 
