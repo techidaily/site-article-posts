@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Visionary Innovators  Leading Brands in 8K Photography for 2024\""
-date: 2024-06-12T01:05:48.650Z
-updated: 2024-06-13T01:05:48.650Z
+date: 2024-07-10T23:59:59.580Z
+updated: 2024-07-11T23:59:59.580Z
 tags: 
   - screen-recording
   - ai video
@@ -34,11 +34,11 @@ You may also like: [11 Best Bridge Cameras \[Ultimate Review\]](https://tools.te
 
 ## What is an 8K Camera?
 
-The [resolution](https://tools.techidaily.com/wondershare/filmora/download/)determines the maximum quality of pictures a video camera can capture. Each frame an 8K camera records can either have 7680 or 8192 pixels on the longer side of the frame and between 2160 and 8192 pixels on the shorter side of the frame depending on the video’s [aspect ratio](https://tools.techidaily.com/wondershare/filmora/download/). Commonly an 8K video with the standard 16:9 aspect ratio has 33.9 million pixels or a resolution of 7680x4320 pixels.
+The [resolution](https://tools.techidaily.com/wondershare/filmora/download/) determines the maximum quality of pictures a video camera can capture. Each frame an 8K camera records can either have 7680 or 8192 pixels on the longer side of the frame and between 2160 and 8192 pixels on the shorter side of the frame depending on the video’s [aspect ratio](https://tools.techidaily.com/wondershare/filmora/download/). Commonly an 8K video with the standard 16:9 aspect ratio has 33.9 million pixels or a resolution of 7680x4320 pixels.
 
 It is worth noting that the resolution of still images is different than the video resolution, as it is measured in megapixels. Technically, any camera that has more than 25 MP can capture photos that have 7680x3200 pixels, which means that models like [Hasselblad X1D II 50C](https://www.hasselblad.com/x1d/) or [Canon EOS 5DS R](https://www.usa.canon.com/internet/portal/us/home/products/details/cameras/eos-dslr-and-mirrorless-cameras/dslr/eos-5ds-r) can already take photos that have the same number of pixels like 8K videos. However, these medium format cameras cannot record videos in 8K resolution.
 
-8K video cameras function on the same principle as [4K or Full HD cameras](https://tools.techidaily.com/wondershare/filmora/download/)as they utilize a lens and a sensor to record images on the camera’s memory card. Currently, the size of the files 8K cameras produce is one of the major reasons why cinematographers are still reluctant to embrace them since 40 minutes of footage can take up to 2 terabytes of storage space.
+8K video cameras function on the same principle as [4K or Full HD cameras](https://tools.techidaily.com/wondershare/filmora/download/) as they utilize a lens and a sensor to record images on the camera’s memory card. Currently, the size of the files 8K cameras produce is one of the major reasons why cinematographers are still reluctant to embrace them since 40 minutes of footage can take up to 2 terabytes of storage space.
 
 The images recorded with 8K cameras can be used for live broadcasts, in cinemas or they can be displayed on [8K television sets](https://tools.techidaily.com/wondershare/filmora/download/). Even so, 4K and Full HD videos are still the industry standard and it remains to be seen if 8K technology is going to change that.
 
@@ -62,7 +62,7 @@ Even though 8K cameras have been on the market for the larger part of this decad
 
 The rumors that Canon is working on its first 8K camera surfaced in early 2019, but as the year’s end approaches it is still unclear when and if the manufacturer will present its first 8K camera to the world. The Canon’s first 8K full-frame camera should have **a CMOS sensor** that resembles the Super 35mm sensor, although the exact specifications are still not available to the public.
 
-![Canon EOS 5DS R DSLR Camera ](https://images.wondershare.com/filmora/article-images/canon-eos-5ds-r-dslr.jpg)
+![Canon EOS 5DS R DSLR Camera](https://images.wondershare.com/filmora/article-images/canon-eos-5ds-r-dslr.jpg)
 
 Image resource: Cannon
 
@@ -76,7 +76,7 @@ Even though Nikon is one of the leading camera manufacturers in the world, there
 
 At the moment the [Nikon D850](https://www.nikonusa.com/en/nikon-products/product/dslr-cameras/d850.html) is the closest to an 8K camera this manufacturer has to offer since this 47.5 MP camera can record time-lapses in 8K resolution, although only by combining the footage captured with two D850 models.
 
-![Nikon D850 8K Timelapse Camera ](https://images.wondershare.com/filmora/article-images/nikon-d850-8k-time-lapse-camera.jpg)
+![Nikon D850 8K Timelapse Camera](https://images.wondershare.com/filmora/article-images/nikon-d850-8k-time-lapse-camera.jpg)
 
 Image resource: Nikon
 
@@ -98,7 +98,7 @@ It features two **AUDIO IN XLR type 3 pins** and one **MIC IN XLR type 5 pin**. 
 
 Professional cinematographers don’t need an introduction to Sony’s cameras, as the Japanese camera manufacturer has been at the forefront of the digital camera market for decades. Their [F65 CineAlta](https://pro.sony/ue%5FUS/products/digital-cinema-cameras/f65#SATD501220TheF65Cinealta-f65) was released in 2016, but it is still one of the best 8K cameras you can buy in 2024\. This speaks volumes about the F65’s capabilities, much like the fact that professional cinematographers have nothing but praise for this Sony’s camera model.
 
-![Sony F65 CineAlta 8K Camera ](https://images.wondershare.com/filmora/article-images/sony-f65-cineAlta-8k-camera.jpg)
+![Sony F65 CineAlta 8K Camera](https://images.wondershare.com/filmora/article-images/sony-f65-cineAlta-8k-camera.jpg)
 
 Image resource: Sony
 
@@ -110,7 +110,7 @@ The camera has **14 stops of exposure latitude**, so if you are shooting RAW vid
 
 Ikegami is a well-known manufacturer of professional broadcast cameras, so it comes as no surprise that the first handheld 8K UHD Television Camera System was produced by this Japanese television equipment manufacturer. Their [SHK-810 8K Super Hi-Vision Camera System](https://www.ikegami.com/archives/menu1/shk-810) features a **Super 35mm 33 million-pixel CMOS Sensor** as well as **4,000 TV lines** which enables the camera to capture highly-detailed images.
 
-![ikegami 8K Super Hi-Vision Camera System ](https://images.wondershare.com/filmora/article-images/ikegami-8k-super-hi-vision-camera-system.jpg)
+![ikegami 8K Super Hi-Vision Camera System](https://images.wondershare.com/filmora/article-images/ikegami-8k-super-hi-vision-camera-system.jpg)
 
 Image resource: ikegami
 
@@ -166,3 +166,26 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-gopro-hero5-a-comprehensive-footage-study/"><u>[Updated] In 2024, GoPro Hero5  A Comprehensive Footage Study</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-curving-images-effortlessly-in-photo-editing/"><u>2024 Approved  Curving Images Effortlessly in Photo Editing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-become-a-headline-hero-proven-strategies-in-focus/"><u>2024 Approved  Become a Headline Hero  Proven Strategies in Focus</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-cutting-edge-psd-outlines-effects/"><u>2024 Approved  Cutting-Edge PSD Outlines Effects</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-innovative-image-editors-your-ultimate-text-companion/"><u>2024 Approved  Innovative Image Editors  Your Ultimate Text Companion</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-dive-into-the-world-of-podcasting-from-concept-to-finalized-scripts/"><u>2024 Approved  Dive Into the World of Podcasting  From Concept to Finalized Scripts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-ultimate-review-updated-lg-360-camera-specs-and-usage/"><u>[Updated] In 2024, The Ultimate Review  Updated LG 360 Camera Specs & Usage</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-the-pros-guide-to-best-ever-360-degree-cams-2023/"><u>[New] 2024 Approved  The Pro’s Guide to Best-Ever 360-Degree Cams, 2023</u></a></li>
+<li><a href="https://extra-information.techidaily.com/taking-flight-in-edits-top-9-choices-for-every-drone-enthusiast/"><u>Taking Flight in Edits  Top 9 Choices for Every Drone Enthusiast</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/ways-to-create-animated-clipart-in-powerpoint-for-2024/"><u>Ways to Create Animated Clipart in PowerPoint for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-direct-streamline-the-most-efficient-flv-to-youtube-tools-ranked/"><u>2024 Approved  Direct Streamline  The Most Efficient Flv-to-YouTube Tools Ranked</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-vivo-x100-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Vivo X100 FRP Locks</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-nokia-xr21-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-mastering-photo-enhancement-with-complete-guide-to-facetune/"><u>[Updated] In 2024, Mastering Photo Enhancement with Complete Guide to Facetune</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-step-up-your-gameplay-with-a-top-ranked-no-fee-voice-transformation-tool/"><u>[New] Step Up Your Gameplay with a Top-Ranked No-Fee Voice Transformation Tool</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-online-audiophiles-mp3-decomposer-and-assembler-for-2024/"><u>New Online Audiophiles MP3 Decomposer & Assembler for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-the-top-5-free-mpeg-video-combining-tools/"><u>New 2024 Approved The Top 5 Free MPEG Video Combining Tools</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-top-choices-pro-shake-free-cameras-for-video-streams/"><u>2024 Approved  Top Choices  Pro Shake-Free Cameras for Video Streams</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-unlocking-an-icloud-locked-ipad-and-iphone-15-pro-by-drfone-ios/"><u>In 2024, Unlocking an iCloud Locked iPad and iPhone 15 Pro</u></a></li>
+</ul></div>
