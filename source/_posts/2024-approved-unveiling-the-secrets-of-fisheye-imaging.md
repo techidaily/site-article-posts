@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unveiling the Secrets of Fisheye Imaging\""
-date: 2024-07-11T02:33:38.025Z
-updated: 2024-07-12T02:33:38.025Z
+date: 2024-08-08T03:46:46.377Z
+updated: 2024-08-09T03:46:46.377Z
 tags: 
   - screen-recording
   - ai video
@@ -30,16 +30,25 @@ thumbnail: https://thmb.techidaily.com/4a9b602cddaa14e95b4c74e25b7d2e53d393546d8
 
  The process of shooting panoramas with fisheye lenses involves a number of considerations and they are as follows-:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ### 1. The equipment and setup
 
  To shoot quality 360 degrees panoramas with fisheye, it is imperative to get the equipment as well as the set up right. Your equipment needs to be calibrated properly to make the stitching process nice and easy. To find the best setting for your equipment, the grid method is recommended on the panohead.
 
 ![Panohead for Fisheye lens](https://images.wondershare.com/filmora/article-images/panohead-for-fishlens.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 2. Leveling and rotating
 
  Other than setting up and calibrating the equipment in the right manner, it is important to keep the camera steady and leveled as you make the rotations to take shots. For leveling, it is recommended to use an appropriate leveling base, while for rotation, using a panning clamp on top of the ballhead is highly recommended.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
 
 ### 3. The actual shooting
@@ -54,6 +63,10 @@ thumbnail: https://thmb.techidaily.com/4a9b602cddaa14e95b4c74e25b7d2e53d393546d8
 
  In normal photography, it always pays to remember what to include and what to exclude in your shots. When it comes to shooting 360s, it becomes more complicated since everything is included. For you to take successful 360s with fisheye therefore, you need to consider keenly where you stand. The fisheye lens will introduce a lot of space between you and the subject, hence you must consider how close or far away you are from the subject so that the pieces of the compositional puzzle will fall in place smoothly both in the horizontal and vertical planes.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ## Stitching 360 degrees panoramas after shooting
 
  To stitch 360s taken by fisheye lenses after shooting, you will need panorama software like [Autopano Pro](http://www.kolor.com/) or [PTGui](https://www.ptgui.com/). For Autopano Pro, you begin by importing the images into the software and ensuring that the EXIF are displayed correctly on the program. With the right settings in place, the next step is to launch the direct stitching feature if you don’t want to go the manual way. Once the stitching is done, it will be important to present the output online. This can be done using [Pano2VR](http://www.ggnome.com/pano2vr) or you could simply upload the finished panoramas to [360cities](https://www.360cities.net/) for online viewing.
@@ -62,6 +75,9 @@ thumbnail: https://thmb.techidaily.com/4a9b602cddaa14e95b4c74e25b7d2e53d393546d8
 
 [How to stitch GoPro clips into 360 videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ## What's fisheye lenses
 
  Fisheye lens refers to an ultra wide angle lens used to produce strong visual distortions with the aim of creating a wide hemispherical or panoramic image. Fisheye lenses are able to achieve very wide angles of view not through the production of straight lines of perspectives, but through a special mapping which makes the resulting images have the characteristic convex non-rectilinear appearance.
@@ -70,6 +86,9 @@ thumbnail: https://thmb.techidaily.com/4a9b602cddaa14e95b4c74e25b7d2e53d393546d8
 
  The fisheye lenses are used for a myriad of applications, especially in digital photography. They can also be used for re-projecting images captured by a fisheye lens or computer generated graphics onto hemispherical screens. Additionally, the lenses can be used in scientific photography such as studying canopy geometry, recording meteors and aurora, calculating near-ground solar radiation as well as in peepholes to offer a wide field of view to the users.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![create 360 photos with fisheye lens](https://images.wondershare.com/filmora/article-images/fisheye-lens-image.jpg)
 
  Conclusion
@@ -102,3 +121,44 @@ Follow @Benjamin Arango
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-elevate-meeting-experience-with-zooms-camera-snaps/"><u>[New] 2024 Approved  Elevate Meeting Experience with Zoom's Camera Snaps</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-compact-video-summary-key-insights-unveiled/"><u>[New] Compact Video Summary  Key Insights Unveiled</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-navigating-the-art-of-film-making-on-facebook/"><u>[New] In 2024, Navigating the Art of Film Making on Facebook</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-tricks-for-making-fb-ads-pop-up-on-screen/"><u>[New] Tricks for Making FB Ads Pop Up on Screen</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-crafting-a-strong-introduction-url/"><u>[Updated] Crafting a Strong Introduction URL</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-action-cameras-showdown-gopro-hero5-black-clashes-with-yi-4ks-latest/"><u>2024 Approved  Action Cameras Showdown  GoPro Hero5 Black Clashes with Yi 4K's Latest</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-avoid-motion-sickness-in-virtual-reality-games/"><u>2024 Approved  Avoid Motion Sickness in Virtual Reality Games</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-charting-the-evolution-of-windows-movie-maker/"><u>2024 Approved  Charting the Evolution of Windows Movie Maker</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-cinematic-clarity-hub-query-responses/"><u>2024 Approved  Cinematic Clarity Hub  Query Responses</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-decoding-fast-forward-features-in-editing-software/"><u>2024 Approved  Decoding Fast-Forward Features in Editing Software</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-discovering-the-best-4k-monitors-1-10/"><u>2024 Approved  Discovering the Best 4K Monitors #1-10</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-dreamy-narratives-reviewing-childrens-story-videos-for-sleep/"><u>2024 Approved  Dreamy Narratives  Reviewing Children's Story Videos for Sleep</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-enhancing-images-the-secret-to-subtracting-backdrops-in-photopea/"><u>2024 Approved  Enhancing Images  The Secret to Subtracting Backdrops in Photopea</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-exclusive-list-of-premium-3d-blu-ray-players-reviewed/"><u>2024 Approved  Exclusive List of Premium 3D Blu-Ray Players Reviewed</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-fading-out-sounds-effectively-using-lumafusion/"><u>2024 Approved  Fading Out Sounds Effectively Using Lumafusion</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-first-times-guide-to-essential-gopro-extras/"><u>2024 Approved  First Time's Guide to Essential GoPro Extras</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-hidden-gems-premium-mac-speech-to-text-tools/"><u>2024 Approved  Hidden Gems  Premium Mac Speech-to-Text Tools</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-prime-streamers-selection-the-best-websites/"><u>2024 Approved  Prime Streamers' Selection  The Best Websites</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-revolutionizing-note-taking-the-power-of-mematic/"><u>2024 Approved  Revolutionizing Note-Taking  The Power of Mematic</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-seamless-tweeting-expert-video-conversion-software/"><u>2024 Approved  Seamless Tweeting  Expert Video Conversion Software</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-step-by-step-guide-to-a-speedy-google-photo-collage-masterpiece/"><u>2024 Approved  Step-by-Step Guide to a Speedy Google Photo Collage Masterpiece</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-the-comprehensive-directory-for-got-ringtones-download/"><u>2024 Approved  The Comprehensive Directory for GoT Ringtones Download</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-the-essentials-of-crafting-crystal-clear-vhs-graphics-online/"><u>2024 Approved  The Essentials of Crafting Crystal-Clear VHS Graphics Online</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-unpacking-the-essence-of-digital-tales/"><u>2024 Approved  Unpacking the Essence of Digital Tales</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-visionary-screenplay-crafting-hub/"><u>2024 Approved  Visionary Screenplay Crafting Hub</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/amazon-prime-and-twitter-most-shared-and-liked-shows-23-for-2024/"><u>Amazon Prime and Twitter  Most Shared & Liked Shows, '23 for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/decoding-the-discrepancy-c-drive-vs-d-drive/"><u>Decoding the Discrepancy: C: Drive Vs. D: Drive</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/explore-the-best-no-cost-video-meeting-apps-iosandroid/"><u>Explore the Best No-Cost Video Meeting Apps - iOS/Android</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-a-complete-guide-to-aspect-ratios-about-youtube-videosshortsads/"><u>In 2024, A Complete Guide to Aspect Ratios About YouTube Videos/Shorts/Ads</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-itel-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Itel S23+ | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expand-your-video-editing-toolkit-beyond-inshot/"><u>In 2024, Expand Your Video Editing Toolkit Beyond Inshot</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-motorola-moto-g04-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Motorola Moto G04 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/insider-tips-the-best-5-cameras-for-extended-zoom/"><u>Insider Tips  The Best 5 Cameras for Extended Zoom</u></a></li>
+<li><a href="https://driver-install.techidaily.com/nvidia-graphics-card-support-gtx-970-for-w11/"><u>Nvidia Graphics Card Support: GTX 970 for W11</u></a></li>
+<li><a href="https://win11.techidaily.com/steps-to-turn-on-end-task-feature-in-windows-11-ui/"><u>Steps to Turn On End Task Feature in Windows 11 UI</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-essential-speech-recognition-software-android-and-ios-comparisons/"><u>Updated Essential Speech Recognition Software Android & iOS Comparisons</u></a></li>
+</ul></div>
