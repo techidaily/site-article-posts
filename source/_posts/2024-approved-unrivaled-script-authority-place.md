@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unrivaled Script Authority Place\""
-date: 2024-07-11T02:09:56.678Z
-updated: 2024-07-12T02:09:56.678Z
+date: 2024-08-22T15:41:51.273Z
+updated: 2024-08-23T15:41:51.273Z
 tags: 
   - screen-recording
   - ai video
@@ -42,6 +42,10 @@ The archive goes back to 2005 and contains information on associated management 
 
 ![logline it](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 This site gets it - coming up with an original and exciting idea for a movie or TV show is the most important first step in writing a screenplay.
 
 Logline This is the only scripting website we know of that is dedicated exclusively to loglines. Post your own, get feedback on them, and view other writers' logs. It's the perfect place to refine your ideas and come up with new and better ones.
@@ -50,10 +54,16 @@ Logline This is the only scripting website we know of that is dedicated exclusiv
 
 ![nicholl winners' scripts and formatting sample](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Want to see what a script good enough to win a Nicholl competition looks like? Here is a list of some of the past winners who will do so.
 
 And if you're confused about script formatting, you can also download this PDF that gives instructions on how to do it in a short scene.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Screenwriting.io.
 
 ![screenwriting.io](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-4.jpg)
@@ -70,22 +80,41 @@ But since I don't work in a studio, I must find them online and the search can b
 
 Let's go through them together.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ### 1\. IMSDB– Internet Movie Screenplay Database
 
 This is the first place I go for scripted stuff. They have an extensive catalog and have proven to be a valuable resource for researching film crews, actors, and trivia. IMSDB is equally useful for those looking for screenplays of all kinds and genres, which they have listed in categories.
 
 ![imsdb](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ### 2\. Go Into the Story
 
 ![go into the story](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 I'm a huge fan of Scott Myers. He gives everything to the writer. Go Into the Story is the official blog for The **_Black List,_** the screenwriting community known for its annual list of the top ten unproduced screenplays in Hollywood. There is always a bank of scripts that you can filter.
 
 ### 3\. Simply Scripts
 
 ![simply scripts](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Simply Scripts has a large and diverse library that includes Tennessee Williams' plays, classics, and even non-English screenplays. It's also constantly updated, so the most recent scripts are always available.
 
 ### 4\. Screenplays For You
@@ -94,6 +123,10 @@ Simply Scripts has a large and diverse library that includes Tennessee Williams'
 
 Again, there is not much difference between these pages. You can search by genre here or alphabetically. They have it all.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ### 5\. The Screenplay Database
 
 ![the screenplay database](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-9.jpg)
@@ -112,10 +145,16 @@ It covers business, art, and the everyday problems of a writer.
 
 In addition to being an award-winning blog, Scott's blog is also one that we visit almost every day. It's a one-stop shop for interviews, advice, and answers to any reader questions.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. John August
 
 ![john august](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 Everyone seems to have advice about Hollywood, but who can you trust? John August is one of Hollywood's best screenwriters. He was nominated for an Academy Award for Big Fish and continues to work on major studio films such as Aladdin, Charlie and the Chocolate Factory and Charlie's Angels.
 
 John August's blog has become the place people go for screenwriting news and advice from someone who does it every day.
@@ -124,14 +163,23 @@ John August's blog has become the place people go for screenwriting news and adv
 
 ![studiobinder](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 Inspiration is half the battle in writing, but what if you hit writer's block and just can't move forward? The StudioBinder blog is dedicated to helping aspiring and experienced filmmakers achieve their dreams, but the StudioBinder platform is where you can shine.
 
 It can help you not only inspire your script but also help you with production. Once you've finished writing your masterpiece, you can upload the script to StudioBinder. You can check the formatting of your script and even help the production by connecting with an assistant director to mark each of the elements of your story.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### 4\. Internet Movie Script Database
 
 ![internet movie script database](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-13.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 If you're going to write screenplays for a career, you'd better get used to reading them. But professional scripts can be hard to find.
 
 IMSDB is an extensive database of old and new works for you to browse. The website has new, old, and classic scripts for you to dissect and study.
@@ -144,6 +192,9 @@ You can learn about character development and how to create a solid story struct
 
 ![the black list](https://images.wondershare.com/filmora/article-images/2022/08/script-writing-website-14.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 From the website, Blacklist is "...a closed network that connects script buyers, agents and screenwriters in one place". You can upload your script for a fee and then have users and readers rate it on a scale of 1-10\. It is a way to enter the digital age.
 
 The Blacklist appropriated the term from the McCarthy era of the 1950s and has since become a place where industry figures vote on their favorite projects of the year.
@@ -158,6 +209,9 @@ It has since expanded to an online database where users can submit their scripts
 
 Users can adjust the white balance and dynamic range of their clips using the color tuning feature. The audio mixer feature allows you to change the audio of each track. The advanced text editor allows you to change the text's color, size, font, and even animation. The screen recording feature efficiently records the computer's screen and webcam. The video stabilization feature compensates for camera shake.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Conclusion
 
 To write a video script quickly, you should use templates, which are designed to force you to write the right things at the right time and place. There are numerous templates available, but these will allow you to complete almost any type of work that comes your way.
@@ -198,3 +252,45 @@ To write a video script quickly, you should use templates, which are designed to
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-proven-strategies-for-implementing-visual-enhancements-in-media/"><u>[New] 2024 Approved  Proven Strategies for Implementing Visual Enhancements in Media</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-top-pick-for-extreme-sports-footage-black-gopro-or-x1000v/"><u>[New] 2024 Approved  Top Pick for Extreme Sports Footage  Black GoPro or X1000V?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-conveniently-enjoy-nba-games-top-15-streaming-methods/"><u>[New] Conveniently Enjoy NBA Games - Top 15 Streaming Methods</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-casino-contestant-commentary/"><u>[New] In 2024, CASINO CONTESTANT COMMENTARY</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-gigglegridiron-craft-memes-from-anywhere-anytime/"><u>[New] In 2024, GiggleGridiron  Craft Memes From Anywhere, Anytime</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-unlocking-the-potential-of-virtual-backgrounds-in-webcasters-arsenal/"><u>[New] In 2024, Unlocking the Potential of Virtual Backgrounds in Webcasters' Arsenal</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-prime-methods-for-turning-youtube-videos-into-mpegs-for-2024/"><u>[New] Prime Methods for Turning YouTube Videos Into MPEGs for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-social-networks-roadmap-making-the-most-of-daily-use/"><u>[New] The Social Network's Roadmap  Making the Most of Daily Use</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-professional-guide-essential-fixes-for-dull-iphone-hdr-videos-in-adobe/"><u>[Updated] [Professional Guide] Essential Fixes for Dull iPhone HDR Videos in Adobe</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-elite-upgrades-for-enhanced-gopro-images-for-2024/"><u>[Updated] Elite Upgrades for Enhanced GoPro Images for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-elevating-brand-visibility-a-10-step-roadmap-to-exceptional-smm-skills/"><u>[Updated] In 2024, Elevating Brand Visibility  A 10-Step Roadmap to Exceptional SMM Skills</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-escaping-a-stroke-on-your-youtube-channel/"><u>[Updated] In 2024, Escaping a Stroke on Your YouTube Channel</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-gopro-hero4-black-vs-drift-ghost-s-which-one-is-better/"><u>[Updated] In 2024, GoPro Hero4 Black VS Drift Ghost-S  Which One Is Better?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-secret-sauce-for-stellar-telegram-campaigns/"><u>[Updated] In 2024, The Secret Sauce for Stellar Telegram Campaigns</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-initiating-seamless-zoom-gatherings-for-2024/"><u>[Updated] Initiating Seamless Zoom Gatherings for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-meme-tastic-creativity-tips-on-standing-out-in-virtual-worlds/"><u>[Updated] Meme-Tastic Creativity  Tips on Standing Out in Virtual Worlds</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-navigating-facebook-live-your-2023-playbook-for-2024/"><u>[Updated] Navigating Facebook Live  Your 2023 Playbook for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-online-upgrade-fb-story-repository/"><u>2024 Approved  Online Upgrade  Fb Story Repository</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-your-ultimate-yt-shorts-companion/"><u>2024 Approved  Your Ultimate YT Shorts Companion</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-vivo-y27-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Vivo Y27 4G | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/composing-the-unseen-score-trailer-music-magic-for-2024/"><u>Composing the Unseen Score  Trailer Music Magic for 2024</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/effortless-solutions-to-overcome-the-0x000000d1-bsod-windows-issue/"><u>Effortless Solutions to Overcome the 0X000000D1 BSOD Windows Issue</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/eradicating-faux-pals-from-your-instagram-map/"><u>Eradicating Faux Pals From Your Instagram Map</u></a></li>
+<li><a href="https://article-posts.techidaily.com/how-to-create-a-funny-meme/"><u>How To Create A Funny Meme</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-abletons-guide-to-softening-transition-endings/"><u>In 2024, Ableton's Guide to Softening Transition Endings</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-painting-with-light-an-experts-guide-to-color-grading/"><u>In 2024, Painting with Light  An Expert's Guide to Color Grading</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-selecting-superior-5k-displays-the-top-eight/"><u>In 2024, Selecting Superior 5K Displays  The Top Eight</u></a></li>
+<li><a href="https://article-posts.techidaily.com/instagram-posting-tips-to-boost-your-podcast-exposure-for-2024/"><u>Instagram Posting Tips to Boost Your Podcast Exposure for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/mastering-the-art-of-capturing-dynamic-images-on-ios-devices-for-2024/"><u>Mastering the Art of Capturing Dynamic Images on iOS Devices for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-best-recommendations-for-music-video-editors-for-2024/"><u>New Best Recommendations for Music Video Editors for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-experts-choice-the-top-10-digital-stores-specializing-in-montage-music-downloads/"><u>New In 2024, Experts Choice The Top 10 Digital Stores Specializing in Montage Music Downloads</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-top-rated-mts-video-editors-expert-reviews-for-2024/"><u>New Top-Rated MTS Video Editors Expert Reviews for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/revolutionize-customer-interaction-using-cookiebot-features/"><u>Revolutionize Customer Interaction Using Cookiebot Features</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/step-by-step-mastery-how-to-design-your-vr-alter-egos-efficiently-for-2024/"><u>Step-by-Step Mastery  How to Design Your VR Alter Egos Efficiently for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/top-12-budget-friendly-video-apps-for-pcmobile-devices-for-2024/"><u>Top 12 Budget-Friendly Video Apps for PC/Mobile Devices for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/ultimate-zooid-design-starter-packs-for-2024/"><u>Ultimate Zooid Design Starter Packs for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/your-ultimate-playbook-for-standout-reddit-submissions-for-2024/"><u>Your Ultimate Playbook for Standout Reddit Submissions for 2024</u></a></li>
+</ul></div>

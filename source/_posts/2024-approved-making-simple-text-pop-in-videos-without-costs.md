@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Making Simple Text Pop in Videos without Costs\""
-date: 2024-07-11T01:59:39.071Z
-updated: 2024-07-12T01:59:39.071Z
+date: 2024-08-22T15:45:50.059Z
+updated: 2024-08-23T15:45:50.059Z
 tags: 
   - screen-recording
   - ai video
@@ -80,6 +80,9 @@ To add life and movement to your videos, use animation effects and keyframing. I
 
 Simply click the Export button in the top-right corner of the screen, as shown below, to export the text animations as a GIF whenever you're done using them in your projects. In addition to using the desired format option in the export box, you may now select to share your work directly from your official YouTube account with just one click.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ## Part 3\. How to Add Free Animation to Video on Mac
 
 Filmora is more than simply a tool for video editing; it also enables users to animate words with a variety of effects, including reflection, shadow, transparency, and more. However, you may use Apple Inc.'s iMovie program to get started with a built-in toolbox. In this way, video editing may be started on a mobile device and finished on a Mac computer. Users of the program may rotate the letters by modifying their angle, size, and location so that it perfectly complements their backdrop video or picture.
@@ -114,6 +117,12 @@ After finishing your Keynote text animation, export it sing Share > File and the
 
 ![export media from imovie](https://images.wondershare.com/filmora/article-images/2022/09/export-media-from-imovie.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 4\. How to Add Free Animation to Video on Mobile
 
 Making films with animated text is a breeze with Textro, a video editing program that enables you to add text and add animated text effects like shadow, light, reflection, etc. to your texts. Your videos will appear polished in no time! You may make a fantastic film with mixed media material by using the program, which also permits adding photographs, videos, and other images to your video.
@@ -126,18 +135,27 @@ To get started, just download the app. It will ask you to add text when you firs
 
 ![download textro animated editor](https://images.wondershare.com/filmora/article-images/2022/09/download-textro-animated-editor.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Step2 Add Text and Customize
 
 By clicking the random button, you may create an entirely new color combination or change the color scheme of the post using the options that are currently available.
 
 ![add text textro](https://images.wondershare.com/filmora/article-images/2022/09/add-text-textro.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ##### Step3 Add Animated Template and Customize
 
 From the list of templates in both Fonts and Colors tab, select the best suited one and add it to the text. In this way, you can add text adjustments while customizations hand in hand.
 
 ![select text color textro](https://images.wondershare.com/filmora/article-images/2022/09/select-text-color-textro.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ##### Step4 Save the Project
 
 Finally, after the necessary customizations, may be saved to your phone or immediately shared on Instagram. The project may also be downloaded on your phone or immediately shared on other social media sites.
@@ -156,6 +174,9 @@ Right after installing the program, you need to launch the Video editor and the 
 
 ![add media to software](https://images.wondershare.com/filmora/guide/startup-window-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Step2 Add Texts to Videos
 
 To give your film the ideal appearance, you may choose from a wide variety of styles, themes, and fonts. The menu on the left side of the screen should say Annotations tab, so choose that. The default text may be changed by double-clicking it and typing in your own. Depending on your tastes and how well they complement the movie, you may adjust the color and opacity by choosing the attributes option on the right side.
@@ -186,6 +207,9 @@ On your Mac, iMovie should already be installed; if not, go to the app store and
 
 ![launch imove application](https://images.wondershare.com/filmora/article-images/2022/09/launch-imove-application.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Step2 Import Videos
 
 The next step is to import your video, Download the picture, open it in any photo editor, remove the black borders around it, and then add whatever text you choose. To choose a clip instead, pick the import footage option.
@@ -204,12 +228,21 @@ Now choose the appropriate title under the Titles menu. You may get a brief live
 
 ![include animation to text imovie](https://images.wondershare.com/filmora/article-images/2022/09/include-animation-to-text-imovie.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ##### Step5 Export the Project
 
 After finishing your Keynote text animation, export it sing Share > File and then select the format. To obtain the best results, be sure to export in high resolution for a better experience.
 
 ![export media from imovie](https://images.wondershare.com/filmora/article-images/2022/09/export-media-from-imovie.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ## Part 4\. How to Add Free Animation to Video on Mobile
 
 Making films with animated text is a breeze with Textro, a video editing program that enables you to add text and add animated text effects like shadow, light, reflection, etc. to your texts. Your videos will appear polished in no time! You may make a fantastic film with mixed media material by using the program, which also permits adding photographs, videos, and other images to your video.
@@ -228,18 +261,27 @@ By clicking the random button, you may create an entirely new color combination 
 
 ![add text textro](https://images.wondershare.com/filmora/article-images/2022/09/add-text-textro.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Step3 Add Animated Template and Customize
 
 From the list of templates in both Fonts and Colors tab, select the best suited one and add it to the text. In this way, you can add text adjustments while customizations hand in hand.
 
 ![select text color textro](https://images.wondershare.com/filmora/article-images/2022/09/select-text-color-textro.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Step4 Save the Project
 
 Finally, after the necessary customizations, may be saved to your phone or immediately shared on Instagram. The project may also be downloaded on your phone or immediately shared on other social media sites.
 
 ![save project textro](https://images.wondershare.com/filmora/article-images/2022/09/save-project-textro.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 After all, during the last several years, videos have been one of the most popular forms of content marketing. Even while creating videos might be labor-intensive since you must first determine your target audience and tailor your narrative to suit them, editing films is undoubtedly one of the most demanding tasks in this respect. Knowing which text animation programs work best for your marketing videos is thus made easy with this guide.
@@ -269,3 +311,44 @@ After all, during the last several years, videos have been one of the most popul
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-a-thorough-examination-recmeisters-screen-capture-innovations/"><u>[New] 2024 Approved  A Thorough Examination  Recmeister's Screen Capture Innovations</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-navigating-adobe-clouds-storage-explained-simply-with-comparisons/"><u>[New] 2024 Approved  Navigating Adobe Cloud's Storage, Explained Simply with Comparisons</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-the-innovators-playbook-for-premiere-pro-fullscreen-edits/"><u>[New] 2024 Approved  The Innovator's Playbook for Premiere Pro Fullscreen Edits</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-cutting-edge-strategies-to-capture-dynamic-audio-in-video-projects-for-2024/"><u>[New] Cutting-Edge Strategies to Capture Dynamic Audio in Video Projects for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-podcast-spotlight-listen-and-like-instantly/"><u>[New] In 2024, Podcast Spotlight  Listen and Like Instantly</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-simplifying-creative-workflow-adding-text-to-photography-files/"><u>[New] Simplifying Creative Workflow  Adding Text to Photography Files</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-speaking-stories-writing-lyrical-film-scripts/"><u>[New] Speaking Stories  Writing Lyrical Film Scripts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-streaming-masterminds-choice-go-with-pmix-or-castpro-in-2024/"><u>[New] Streaming Masterminds' Choice  Go with PMix or CastPro, In 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-streamlined-shots-in-the-sea-7-easy-to-follow-steps-for-2024/"><u>[New] Streamlined Shots in the Sea  7 Easy-to-Follow Steps for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-finding-your-perfect-match-premium-videographer-recruitment/"><u>[Updated] 2024 Approved  Finding Your Perfect Match  Premium Videographer Recruitment</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-speedy-pc-file-examination-guide/"><u>[Updated] 2024 Approved  Speedy PC File Examination Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-funimate-pro-apk-a-complete-guide/"><u>[Updated] Funimate Pro APK  A Complete Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-ace-the-art-of-digital-photography-with-lunapic/"><u>[Updated] In 2024, Ace the Art of Digital Photography with LunaPic</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-budget-friendly-drone-picks-best-bargains-for-less-than-500/"><u>[Updated] In 2024, Budget-Friendly Drone Picks  Best Bargains for Less than $500</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-enhance-photos-with-our-best-grid-app-list/"><u>[Updated] In 2024, Enhance Photos with Our Best Grid App List</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-next-frontier-in-technological-application/"><u>[Updated] In 2024, The Next Frontier in Technological Application</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-ultimate-macos-manual-for-mixer-live-streaming/"><u>[Updated] In 2024, The Ultimate MacOS Manual for Mixer Live Streaming</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-turbocharging-your-journey-10-must-have-srt-converters/"><u>[Updated] Turbocharging Your Journey  10 Must-Have SRT Converters</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-4-ways-to-record-facebook-live-stream/"><u>2024 Approved  4 Ways to Record Facebook Live Stream</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-before-you-fly-drone-purchase-tips-and-considerations/"><u>2024 Approved  Before You Fly  Drone Purchase Tips and Considerations</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-capturing-clarity-top-methods-for-ppt-videos/"><u>2024 Approved  Capturing Clarity  Top Methods for PPT Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-masterclass-in-cross-platform-content-sharing-instagram-plus-tiktok/"><u>2024 Approved  Masterclass in Cross-Platform Content Sharing  Instagram + TikTok</u></a></li>
+<li><a href="https://video-capture.techidaily.com/ensuring-seamless-gotomeeting-experience-with-device-recording-for-2024/"><u>Ensuring Seamless GoToMeeting Experience with Device Recording for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/expert-advice-correcting-error-codes-39-on-windows-based/"><u>Expert Advice: Correcting Error Codes 39 on Windows-Based</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/filmmaking-fundamentals-for-engaging-facebook-groups/"><u>Filmmaking Fundamentals for Engaging Facebook Groups</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-huawei-nova-y71-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Huawei Nova Y71 Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-google-pixel-8-pro-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Google Pixel 8 Pro to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-oppo-a38-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Oppo A38 Device SIM</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-vivo-v27-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Vivo V27 Devices | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-how-to-budget-for-video-popularity-on-youtube/"><u>In 2024, How to Budget for Video Popularity on YouTube</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-how-to-disable-instagrams-igtv/"><u>In 2024, How to Disable Instagram's IGTV</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-mastering-voice-changes-in-psgames/"><u>In 2024, Mastering Voice Changes in PSGames</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-pioneers-in-stop-motion-top-15-must-watch-films/"><u>In 2024, Pioneers in Stop Motion  Top 15 Must-Watch Films</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-transformative-grading-3-simplified-photoshop-routines/"><u>In 2024, Transformative Grading  3 Simplified Photoshop Routines</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/in-depth-analysis-of-dell-alienware-aurora-r9-a-cutting-edge-gamers-dream/"><u>In-Depth Analysis of Dell Alienware Aurora R9: A Cutting-Edge Gamer's Dream</u></a></li>
+<li><a href="https://article-posts.techidaily.com/laugh-o-matic-crafting-gags-on-the-house-rate-for-2024/"><u>Laugh-O-Matic  Crafting Gags on the House Rate for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/shine-upgrade-sparkling-ps5-techniques/"><u>Shine Upgrade: Sparkling PS5 Techniques</u></a></li>
+</ul></div>

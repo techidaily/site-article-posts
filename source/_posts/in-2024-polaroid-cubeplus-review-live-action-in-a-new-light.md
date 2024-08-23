@@ -1,0 +1,175 @@
+---
+title: "\"In 2024, Polaroid Cube+ Review  Live-Action in a New Light\""
+date: 2024-08-22T15:53:02.707Z
+updated: 2024-08-23T15:53:02.707Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes In 2024, Polaroid Cube+ Review: Live-Action in a New Light\""
+excerpt: "\"This Article Describes In 2024, Polaroid Cube+ Review: Live-Action in a New Light\""
+keywords: "Polaroid Cube Reviews,Cube+ Camera,Live Action Photography,Polaroid Modernity,Cubic Lens Effect,Innovative Photo Tech,Cube+ Lighting Review"
+thumbnail: https://thmb.techidaily.com/ced37c54f6280b48c4cccd59bb3d4e6e75cf48a369ed52226c792a6ec4885ea2.jpg
+---
+
+## Polaroid Cube+ Review: Live-Action in a New Light
+
+# Polaroid Cube+ Action Camera Review
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+##### Max Wales
+
+ Mar 27, 2024• Proven solutions
+
+ Polaroid Cube+ is well known as Life Style Action Camera that assists users in efficient recording of all adventurous of life. Same as the original Cube, this device also inherits 1.4 inch cube shape but the imaging capabilities are much improved as compared to its predecessors. This device can provide 1440p resolution level at 30fps whereas 1080p can be captured at 60 fps. In case of 720p you will be able to manage frame rate of 120fps with slow motion recording abilities. Other than this, your Cube+ camera can capture images at 8MP and the advanced image stabilized feature is also added to this design. It can definitely make all your videos much smoother and impressive one.
+
+ The built in type Wi-Fi connectivity offers easy synchronization with Android as well as iOS devices via Cube+ application. This application will provide you so many advanced editing and control options so that captured images and recorded videos can be easily saved, printed or shared on other platforms. All these advanced features make this device stand in top choice list of athletes and adventure sports lovers. No matter whether you are a professional or beginners with action camera series, Polaroid Cube+ will offer you intuitive controls with user friendly interface so that everything becomes much easier to manage.
+
+![ploaroid-cube-plus-image](https://images.wondershare.com/filmora/article-images/polaroid-cube-plus.jpg)
+
+[Check price at Amazon](https://www.amazon.com/gp/product/B011OUSSL2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B011OUSSL2&linkId=8468cb3fa9694ab9e09d99e5f9a7587e)
+
+[Check at Amazon](https://www.amazon.com/gp/product/B011OUSSL2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B011OUSSL2&linkId=8468cb3fa9694ab9e09d99e5f9a7587e
+)
+
+## Complete Review of Polaroid Cube+
+
+#### **Specs table:**
+
+| **Item name**           | Polaroid Cube+                                               |                      |                                                                                          |
+| ----------------------- | ------------------------------------------------------------ | -------------------- | ---------------------------------------------------------------------------------------- |
+| **Manufacture**         | Polaroid (US)                                                |                      |                                                                                          |
+| **Date available**      | 2015                                                         |                      |                                                                                          |
+| **Price:**              | Official:$99.99                                              |                      |                                                                                          |
+| **Basic Specification** |                                                              |                      |                                                                                          |
+| **Weight**              | 60g only                                                     | **Shape**            | Cube shaped model                                                                        |
+| **Memory**              | Micro SD up to 128GB                                         | **Dimensions**       | 35mm x 35mm                                                                              |
+| **Battery**             | It can Record up to 107 minutes with 600MAH Built In Battery | **Waterproof**       | No                                                                                       |
+| **Image resolution**    | Up to 8mp                                                    | **Video resolution** | 1440p at 30 fps / 1080p up to 60 fps                                                     |
+| **Display**             | No                                                           | **Feature**          | Image stabilization, splash proof/shock proof, weather resistant, Wifi and App supported |
+
+#### **Pros and Cons**
+
+| **Pros**                                           | **Cons**                                               |
+| -------------------------------------------------- | ------------------------------------------------------ |
+| This device can support HD Resolutions             | Integrated battery that offers very short battery life |
+| Super small and lightweight design                 | You have to compromise for Video and photo quality     |
+| You have to compromise for Video and photo quality | No screen available                                    |
+
+#### **What is Inside Box?**
+
+ Following things will come out of your package:
+
+1. Lanyard
+2. Pendant Case
+3. 8GB Polaroid type MicroSD memory card
+4. Micro USB cable
+5. Polaroid Cube+ Camera
+6. Instruction manual
+
+#### **Design and Accessories:**
+
+ This action camera comes with so many attractive accessories that can make your purchase worth useful. You will get a standard tripod mount of ¼-20 specification but the sad part is that it is made up of plastic material. All these mounts are designed with quick connect type clip system that assists users in easy connection and disconnection between mount and camera. This clip can be easily fixed with tripod socket of camera and then it perfectly slides over mount leading to a safe lock. If you want to mount this device on helmet or handlebars then you can take benefit from socket and ball mounts available with this device. You can also buy additional accessories from online stores to make your device more suitable for action photography. If you want to use this device under water then it is important to buy additional dedicated protective housing as it is not available inside your package. Also you can buy some additional mounts online to set up your camera at rough and difficult positions.
+
+#### **Video and Photo:**
+
+ Top resolution level of this camera is listed up to 1440p that works with 30 fps frame rate. This device cannot record footage with 2560x1440 pixels that is known as wide screen type resolution but you will be limited to 1920x1440 pixel level. This resolution level serves with 4:3 aspect ratio. In case if you want to record videos with wide screen focus then it is good to switch to 1080p resolution or to 720p level that provides 16:9 aspect ratio.
+
+ The videos can be developed with high quality digital image stabilization and it works perfectly with snowboarding, bike riding and moving car like motion oriented scenes. Users can also introduce some impressive effects into their fast moving videos to get customized results. The photo resolutions of Polaroid Cube + can be switched between 3MP, 6MP and 8MP level as per need. The files are produced with JPG compression so file size usually vary with changing resolution level. You will be glad to use its self timer feature that can be adjusted to 3 seconds as well as 10 seconds for capturing any still image.
+
+#### **Recommend best video editing software for action camera users**
+
+ If you want to take your video content to the next level with some video editing without being completely overwhelmed, you will definitely want to give [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) (originally Wondershare Video Editor) a try. The software offers a free trial period which allows you to try before buy. Well-designed intuitive interface enables anyone to master the program within minutes.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/) [Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### **App and Wi-Fi:**
+
+ This camera does not contain any screen so users definitely need fast connectivity with smart phone screen so that footage can be viewed at the time of recording. This device comes with built in Wi-Fi facility so it is much easier to connect your action camera with Android as well as Apple devices. With this remote connectivity option you will be able to have wide variety of options for basic controls as well as for video shooting. The Cube+ application is designed to serve users with easy switching between physical buttons and software initiated controls. Users can easily change settings from remote location to adjust time lapse, photo modes and video modes.
+
+#### **Battery Life and Memory:**
+
+ If we talk about battery life of Polaroid Cube+ device then it will not give you much pleasure; with HD recording your camera can serve you only up to one hour. You have to connect it via USB port for charging and it takes about one hour to complete full charging. In case if you need a camera to shoot your full day shoots on adventurous trips then definitely this is not right choice because you cannot remove or replace its battery. With this fixed and limited power source it becomes difficult to get services for long hour usage.
+
+ The camera can accept MicroSD card up to maximum capacity of 128GB and you can easily add MicroSDXC and MicroSDHC cards to this unit. As videos are heavily compressed with JPG type compression technology so, there is no need for any fixed MicroSD card speed limit. You will find the SD card slot at backside of your camera that is hidden below protective cover.
+
+#### **Conclusion:**
+
+ After observing all incredible features we can say that Polaroid Cube+ is a classic device for action camera seekers. It possesses variety of controls and advanced user friendly interface. Some people have reported negative results for its audio abilities and sometimes the controls also freeze up while switching between physical buttons and smart phone application. Professionals as well as beginners love its image quality and the intuitive controls that make everything much easier to access. This action camera falls in reasonable budget range but still offers all competing results. You can order your product from online stores as well as go to buy at local retail stores.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+Max Wales
+
+Max Wales is a writer and a lover of all things video.
+
+Follow @Max Wales
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-peak-outcome-total-immersion-complete/"><u>[New] 2024 Approved  Peak Outcome  Total Immersion Complete</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-selective-choice-top-cards-for-4k-videos/"><u>[New] 2024 Approved  Selective Choice  Top Cards for 4K Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-navigating-android-for-immersive-vr-experiences/"><u>[New] In 2024, Navigating Android for Immersive VR Experiences</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-premier-handwear-for-immersive-vr-experiences-for-2024/"><u>[New] Premier Handwear for Immersive VR Experiences for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-charting-the-course-to-earnings-with-youtube-videos/"><u>[Updated] 2024 Approved  Charting the Course to Earnings with YouTube Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-secret-of-superiority-in-photo-hue-modification/"><u>[Updated] 2024 Approved  The Secret of Superiority in Photo Hue Modification</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-total-gaze-coverage-camera-analysis/"><u>[Updated] 2024 Approved  Total Gaze Coverage Camera Analysis</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-unveiling-top-9-webcam-filters-for-professional-streamers/"><u>[Updated] 2024 Approved  Unveiling Top 9 Webcam Filters for Professional Streamers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-superior-editing-software-tailored-to-dji-filmmaking/"><u>[Updated] In 2024, Superior Editing Software Tailored to DJi Filmmaking</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-unveiling-the-art-of-podcast-rss-mastery/"><u>[Updated] In 2024, Unveiling the Art of Podcast RSS Mastery</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-mastering-the-art-of-modern-360-camera-purchases-2enas-for-2024/"><u>[Updated] Mastering the Art of Modern 360 Camera Purchases (2Enas) for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-pc-audio-logging-made-simple-install-x-recorder/"><u>[Updated] Pc Audio Logging Made Simple  Install X-Recorder</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-the-power-of-irecorder-in-action/"><u>[Updated] The Power of iRecorder in Action</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-top-android-and-iphone-apps-for-free-photo-overlay-artistry/"><u>[Updated] Top Android & iPhone Apps for FREE Photo Overlay Artistry</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-audio-accentuation-tunes-for-visual-projects/"><u>2024 Approved  Audio Accentuation  Tunes for Visual Projects</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-best-practices-aspect-ratio-in-twitters-videos/"><u>2024 Approved  Best Practices  Aspect Ratio in Twitters Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-shine-bright-enhancing-video-quality-tools/"><u>2024 Approved  Shine Bright  Enhancing Video Quality Tools</u></a></li>
+<li><a href="https://program-issues.techidaily.com/beat-gaming-glitches-top-8-fixes-to-keep-marvels-guardians-of-the-galaxy-running-smoothly-on-your-pc/"><u>Beat Gaming Glitches: Top 8 Fixes to Keep Marvel's 'Guardians of the Galaxy' Running Smoothly on Your PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/debunking-the-digital-dossiers-unraveling-facebooks-misconits/"><u>Debunking the Digital Dossiers: Unraveling Facebook's Misconits</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/easy-apps-to-backup-and-share-your-chatgpt-dialogue-history/"><u>Easy Apps to Backup and Share Your ChatGPT Dialogue History</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nating-odd-shades-a-step-by-step-guide-to-flawless-greenscreens/"><u>Eliminating Odd Shades  A Step-by-Step Guide to Flawless Greenscreens</u></a></li>
+<li><a href="https://article-posts.techidaily.com/eyelaughs-funny-image-generator-for-2024/"><u>EyeLaughs  Funny Image Generator for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/finding-value-in-cheap-gopro-sales-online-for-2024/"><u>Finding Value in Cheap GoPro Sales Online for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/high-performance-in-fb-video-streaming-for-2024/"><u>High Performance in FB Video Streaming for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-realme-narzo-60x-5g-by-fonelab-android-recover-contacts/"><u>How To  Restore Missing Contacts Files from Realme Narzo 60x 5G.</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-best-waterproof-gopro-filters-for-undersea-film/"><u>In 2024, Best Waterproof GoPro Filters for Undersea Film</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-effortlessly-enhance-your-watchlist-mastering-dual-display-in-netflix/"><u>In 2024, Effortlessly Enhance Your Watchlist - Mastering Dual Display in Netflix</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lava-blaze-2-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Lava Blaze 2 Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-iphone-13-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>In 2024, iPhone 13 Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-master-the-metaverse-humor-scene-with-our-top-meme-ideas/"><u>In 2024, Master the Metaverse Humor Scene with Our Top Meme Ideas</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-masterful-methods-for-sticker-elimination-in-tiktoks/"><u>In 2024, Masterful Methods for Sticker Elimination in TikToks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/leading-websites-for-free-game-of-thrones-ringtones-for-2024/"><u>Leading Websites for Free Game of Thrones Ringtones for 2024</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-music-back-from-motorola-edge-2023-by-fonelab-android-recover-music/"><u>Simple ways to get lost music back from Motorola Edge 2023</u></a></li>
+<li><a href="https://article-posts.techidaily.com/simplified-image-editing-getting-rid-of-background-in-one-click-for-2024/"><u>Simplified Image Editing  Getting Rid of Background in One Click for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-artistic-edge-premium-text-tools-for-adobe-after-effects-for-2024/"><u>The Artistic Edge  Premium Text Tools for Adobe After Effects for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-elite-circle-of-digital-titling-top-5-revealed/"><u>The Elite Circle of Digital Titling  Top 5 Revealed</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/the-essential-guide-to-scraping-social-footage-facebook-videos/"><u>The Essential Guide to Scraping Social Footage  Facebook Videos</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlocking-the-power-of-chatgpt-with-these-4-strategies-for-reading-pdfs/"><u>Unlocking the Power of ChatGPT with These 4 Strategies for Reading PDFs</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
