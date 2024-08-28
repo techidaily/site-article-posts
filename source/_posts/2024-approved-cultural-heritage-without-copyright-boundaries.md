@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Cultural Heritage Without Copyright Boundaries\""
-date: 2024-07-11T01:39:35.638Z
-updated: 2024-07-12T01:39:35.638Z
+date: 2024-08-27T09:20:07.859Z
+updated: 2024-08-28T09:20:07.859Z
 tags: 
   - screen-recording
   - ai video
@@ -85,18 +85,27 @@ Now that you know what constitutes being in the public domain, where can you fin
 
 ![public domain pictures](https://images.wondershare.com/filmora/article-images/2022/09/public-domain-art-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Publicdomainpictures.net is a collection of thousands of photos and videos across all genres. In addition, you can easily identify your desired pictures using the categories tab. However, you need to purchase the Premium Download option if you want them in larger resolutions. Furthermore, some royalty-free art may include usage restrictions, which are clearly stated in the image description. For example, you cannot use photos with paid models for offensive campaigns.
 
 ### 2\. Wikimedia Commons
 
 ![wikimedia commons](https://images.wondershare.com/filmora/article-images/2022/09/public-domain-art-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Wikimedia Commons is arguably the largest public domain image library available. It hosts over 86 million creative assets from global contributors. In addition, the interface is available in multiple languages, making it accessible to everyone. However, some consider it challenging to use, given the large database. However, the developers offer you recommendations through designated tabs like Valued Images and Featured Pictures. Although most of the content is free to use, you will find images that require you to acknowledge the contributor before using them.
 
 ### 3\. The New York Public Library Digital Collections
 
 ![the new york public library digital collections](https://images.wondershare.com/filmora/article-images/2022/09/public-domain-art-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The NYPL website features a library of about a million royalty-free artworks, including manuscripts, historical maps, and rare photographs. In addition, it allows you to only search public domain items by checking the option on the search box.
 
 Furthermore, the homepage contains different photo collections, which you can access by clicking the category tabs. For example, the **recently digitized** bubble tab gives you access to the most recent photo uploads. However, not all images listed are free to use and may require you to link back to the website. As such, always read the **Rights Statement** at the bottom of the download page to verify the usage requirements.
@@ -113,18 +122,31 @@ In addition, most of the photos on the Flickr Commons library are listed with **
 
 Although Google search is the most popular resource for royalty-free art, there are specific public domain art search engines to help you find exactly what you need. Here are a few of them to consider.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### 1\. Artvee.com
 
 ![artvee com](https://images.wondershare.com/filmora/article-images/2022/09/public-domain-art-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 Artvee.com is a public domain art search engine that specializes in classical art. The platform allows you to search millions of public domain images from some of the world’s top museums, including the Smithsonian and the Met.
 
 In addition, Artvee.com offers you keyword suggestions depending on user popularity. Alternatively, you can use the Artists tab to locate classical art by specific painters, including Claude Monet and Vincent Van Gogh. Furthermore, you do not need to register an account to use the service. You only need to enter the URL in your browser, narrow down the results using keywords and click download.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Museo
 
 ![museo](https://images.wondershare.com/filmora/article-images/2022/09/public-domain-art-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 Another public domain art search engine to consider is Museo.app. It is an open-source web interface that allows you to find royalty-free art from different museums. Currently, you can access the collections from the following institutions:
 
 * The Harvard Art Museums.
@@ -136,8 +158,14 @@ Another public domain art search engine to consider is Museo.app. It is an open-
 
 The above institutions offer open and free API access to their collections, allowing you to download and use them royalty-free. Unfortunately, Museo does not offer an elaborate search engine like Artvee and uses simple keywords to get you results. However, it can work as a decent alternative if you do not want to filter through millions of art pieces.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## FAQ
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Is there a difference between royalty-free art and public domain art?
 
 Yes. Royalty-free art refers to work that has no recurring payments to the author. However, it may contain usage restrictions depending on the source website. For example, you may need to make a one-time payment to download the image.
@@ -159,6 +187,9 @@ Conversely, public domain art is copyright free and does not require you to make
 
 * [FAQ](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ## Part1: What is Public Domain Artwork?
 
 Did you know that not all items you find on the internet are public domain? For example, regardless of the source, you cannot use someone’s street art in your commercial campaigns without their consent. In addition, different artists offer their work under various licenses, each with its unique usage requirements. For example, artwork under the Creative Commons license is free to use for personal and commercial purposes.
@@ -190,12 +221,19 @@ As mentioned above, you cannot rely on copyright websites to determine if your d
 3. You can not use a third-party photo of public domain art if the resulting image is a derivative. This is because the law recognizes the creator as the author and copyright owner. As such, you must have verifiable permission before using their work in your creations.
 4. Not all items without a © are in the public domain. This is because modern video editing software allows you to remove copyright symbols from different works. Therefore, always perform a reverse image search when unsure of the photo’s origins.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Can you use them for free?
 
 Yes. You can use royalty-free art for whatever purpose you see fit. For example, you can reproduce the text and illustrations from the original version of Alice’s Adventures in Wonderland (1865) because they are in the public domain.
 
 However, the reproduction of the 1951 version by Walt Disney is a copyright violation since it is a derivative of the original version. In addition, The Walt Disney Company owns the trademark for all the derivatives, including the movie, cartoon characters, and merchandise.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## Part2: Best Official Public Domain Art websites recommendations
 
 Now that you know what constitutes being in the public domain, where can you find public domain creative assets? Below are recommendations of the best official public domain art websites. Kindly note that the list contains NGO and government sites, some of which may not be accessible in your area.
@@ -204,6 +242,9 @@ Now that you know what constitutes being in the public domain, where can you fin
 
 ![public domain pictures](https://images.wondershare.com/filmora/article-images/2022/09/public-domain-art-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Publicdomainpictures.net is a collection of thousands of photos and videos across all genres. In addition, you can easily identify your desired pictures using the categories tab. However, you need to purchase the Premium Download option if you want them in larger resolutions. Furthermore, some royalty-free art may include usage restrictions, which are clearly stated in the image description. For example, you cannot use photos with paid models for offensive campaigns.
 
 ### 2\. Wikimedia Commons
@@ -216,10 +257,16 @@ Wikimedia Commons is arguably the largest public domain image library available.
 
 ![the new york public library digital collections](https://images.wondershare.com/filmora/article-images/2022/09/public-domain-art-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 The NYPL website features a library of about a million royalty-free artworks, including manuscripts, historical maps, and rare photographs. In addition, it allows you to only search public domain items by checking the option on the search box.
 
 Furthermore, the homepage contains different photo collections, which you can access by clicking the category tabs. For example, the **recently digitized** bubble tab gives you access to the most recent photo uploads. However, not all images listed are free to use and may require you to link back to the website. As such, always read the **Rights Statement** at the bottom of the download page to verify the usage requirements.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 4\. Flickr Commons
 
 ![flickr commons](https://images.wondershare.com/filmora/article-images/2022/09/public-domain-art-4.jpg)
@@ -228,6 +275,9 @@ Initially, Flickr only featured images from a selection of verified contributors
 
 In addition, most of the photos on the Flickr Commons library are listed with **no known copyright restrictions**. Therefore, you can download and use them without fear of any repercussions. Furthermore, the search engine includes multiple filters for more accurate results. For example, you can filter photos by color, orientation, and date. Alternatively, you can find public domain content by visiting the Public Domain group URL.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part3: Best Public Domain Art Search Engine
 
 Although Google search is the most popular resource for royalty-free art, there are specific public domain art search engines to help you find exactly what you need. Here are a few of them to consider.
@@ -240,6 +290,9 @@ Artvee.com is a public domain art search engine that specializes in classical ar
 
 In addition, Artvee.com offers you keyword suggestions depending on user popularity. Alternatively, you can use the Artists tab to locate classical art by specific painters, including Claude Monet and Vincent Van Gogh. Furthermore, you do not need to register an account to use the service. You only need to enter the URL in your browser, narrow down the results using keywords and click download.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ### 2\. Museo
 
 ![museo](https://images.wondershare.com/filmora/article-images/2022/09/public-domain-art-6.jpg)
@@ -257,6 +310,9 @@ The above institutions offer open and free API access to their collections, allo
 
 ## FAQ
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Is there a difference between royalty-free art and public domain art?
 
 Yes. Royalty-free art refers to work that has no recurring payments to the author. However, it may contain usage restrictions depending on the source website. For example, you may need to make a one-time payment to download the image.
@@ -292,3 +348,41 @@ Conversely, public domain art is copyright free and does not require you to make
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-20plus-cool-metaverse-memes-and-how-to-make-your-own-memes-for-2024/"><u>[New] 20+ Cool Metaverse Memes and How to Make Your Own Memes for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-best-livestream-capturing-solutions-for-content-makers/"><u>[New] 2024 Approved  Best Livestream Capturing Solutions for Content Makers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-vive-headset-review-your-passport-to-a-new-reality-world/"><u>[New] 2024 Approved  Vive Headset Review  Your Passport to a New Reality World</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-amplifying-visuals-expert-guide-to-snapchat-zoom/"><u>[New] Amplifying Visuals  Expert Guide to Snapchat Zoom</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-masterclass-in-creating-the-ideal-home-4k-editing-pc/"><u>[New] In 2024, Masterclass in Creating the Ideal Home 4K Editing PC</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-swiftly-secure-your-favorite-podcast-episodes-on-iphone/"><u>[New] In 2024, Swiftly Secure Your Favorite Podcast Episodes on iPhone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-mellow-playtime-10-top-rated-stress-erasers-for-2024/"><u>[New] Mellow Playtime  10 Top-Rated Stress Erasers for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-analyzing-huawei-p10s-impact-on-mobile-photography-trends/"><u>[Updated] In 2024, Analyzing Huawei P10's Impact on Mobile Photography Trends</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-cutting-edge-methods-for-a-dominant-presence-on-spotify/"><u>[Updated] In 2024, Cutting-Edge Methods for a Dominant Presence on Spotify</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-ultimate-guide-for-streamlining-iphone-video-content/"><u>[Updated] In 2024, The Ultimate Guide for Streamlining iPhone Video Content</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-instagram-shout-out-for-podcast-fans/"><u>[Updated] Instagram Shout-Out for Podcast Fans</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-into-the-fray-with-polaroid-cubeplus-action-recorder-for-2024/"><u>[Updated] Into the Fray with Polaroid Cube+ Action Recorder for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-virtual-vaulting-the-premier-five-of-future-storage-solutions-for-2024/"><u>[Updated] Virtual Vaulting  The Premier Five of Future Storage Solutions for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-melodic-lenswork-capturing-soundscapes-on-ios/"><u>2024 Approved  Melodic Lenswork  Capturing Soundscapes on iOS</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-latest-toshiba-dynabook-docking-station-drivers-on-windows/"><u>Download & Install Latest Toshiba Dynabook Docking Station Drivers on Windows</u></a></li>
+<li><a href="https://article-posts.techidaily.com/hacks-to-dodge-digital-lessons-at-home-for-2024/"><u>Hacks to Dodge Digital Lessons at Home for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/how-to-crossfade-audio-with-audacity-for-2024/"><u>How to Crossfade Audio with Audacity for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/how-to-record-professional-audio-in-audacity-for-2024/"><u>How To Record Professional Audio In Audacity for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-12-pro-max-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 12 Pro Max without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-android-photography-excellence-tips-and-tools/"><u>In 2024, Android Photography Excellence  Tips and Tools</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-capture-conserve-continue-a-guide-to-saving-snapchat-content/"><u>In 2024, Capture, Conserve, Continue  A Guide to Saving Snapchat Content</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Xiaomi Redmi Note 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-gmail-password-on-vivo-s17-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Vivo S17 Devices</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-unlocking-an-icloud-locked-ipad-and-apple-iphone-11-pro-by-drfone-ios/"><u>In 2024, Unlocking an iCloud Locked iPad and Apple iPhone 11 Pro</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/install-nvidias-geforce-rtx-3090-drivers-on-windows-11-8-and-7-heres-how/"><u>Install NVIDIA's GeForce RTX 3090 Drivers on Windows 11, 8 & 7 - Here's How</u></a></li>
+<li><a href="https://article-posts.techidaily.com/locate-the-best-bargains-on-gopro-cameras-for-2024/"><u>Locate the Best Bargains on GoPro Cameras for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-equipment-choices-with-toms-hardware-expertise/"><u>Mastering Equipment Choices with Tom's Hardware Expertise</u></a></li>
+<li><a href="https://article-posts.techidaily.com/masterpieces-in-3d-graphics-and-golden-displaytexts-online-for-2024/"><u>Masterpieces in 3D Graphics and Golden DisplayTexts Online for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/motion-magic-mixtures/"><u>Motion Magic Mixtures</u></a></li>
+<li><a href="https://article-posts.techidaily.com/simple-steps-unlocking-your-pcs-clownfish-talk-switcher/"><u>Simple Steps  Unlocking Your PC's Clownfish Talk Switcher</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/simplified-mac-imaging-mastering-5-easy-screenshot-methods-for-2024/"><u>Simplified Mac Imaging  Mastering 5 Easy Screenshot Methods for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-how-to-manual-for-time-stamped-videos-on-youtubes/"><u>The How-To Manual for Time-Stamped Videos on YouTubes</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-saving-made-easy-a-step-by-step-final-cut-pro-guide-for-2024/"><u>Updated Saving Made Easy A Step-by-Step Final Cut Pro Guide for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-honor-90-lite-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Honor 90 Lite Auto Does Not Work | Dr.fone</u></a></li>
+</ul></div>

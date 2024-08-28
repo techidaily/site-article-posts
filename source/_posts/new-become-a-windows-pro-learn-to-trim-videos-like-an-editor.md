@@ -1,0 +1,146 @@
+---
+title: "\"[New] Become a Windows Pro  Learn to Trim Videos Like an Editor\""
+date: 2024-08-27T09:22:08.402Z
+updated: 2024-08-28T09:22:08.402Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [New] Become a Windows Pro: Learn to Trim Videos Like an Editor\""
+excerpt: "\"This Article Describes [New] Become a Windows Pro: Learn to Trim Videos Like an Editor\""
+keywords: "Video Editing Basics,Proficient Windows Users,Trimming Techniques,Mastering Video Cuts,Edit Pro Skills,Professional Windows PCs,Expertise in Video Trimming"
+thumbnail: https://thmb.techidaily.com/276d97c36ad2008d7cfbd98152b79e1acd5c5f1c2ed18f1585db86304b623852.jpg
+---
+
+## Become a Windows Pro: Learn to Trim Videos Like an Editor
+
+# How to Trim Video in Windows 10 Photos Easily
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+You have got your brand new Windows 10 computer and want to try your hands on video editing. But, you are unsure of using a built-in tool to do that or getting a third-party tool for that matter. Well, let us clear the air and confusion for you. If you want to trim the videos as well and chop off unwanted parts from them, you don't have to download anything.
+
+The in-built editor in Windows 10 Photos can do that for you. Through this article, we would introduce how to trim videos in Windows 10 Photos and another good news is we will add a bonus tip for you, i.e. trimming your video with VLC as well. So, cheers! Get ready to create amazing videos with this awesome tool.
+
+* [**Part1: How to trim video in Windows 10 Photos**](#part1)
+* [**Part2: How to trim video in Windows 10 with VLC**](#part2)
+
+## Part 1: How to trim video in Windows 10 Photos
+
+When you talk about video trimming apps on Windows 10 PC, Photos is the only built-in app capable of doing so. Whether you want to do away with the awkward starting of your video or want to club multiple video clips, get Photos on work for that. Basic level editing is possible with Photos, for additional video editing.
+
+Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-us/p/microsoft-photos/9wzdncrfjbh4?activetab=pivot:overviewtab) –
+
+**Step 1**: On your Windows 10 system, go to 'File Explorer' and find the desired video. Right-tap on the video and then choose 'Open With' the 'Photos' option. The alternative method includes going to the 'Start' menu and opening the 'Photos' app. Find the video and open it.
+
+**Step 2**: Tap on the video to access the menu bar. Once the menu bar appears at the top hit the **Edit and Create** \> **Trim**.
+
+![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
+
+**Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
+
+![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
+
+**Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
+
+## Part 2: How to trim video in Windows 10 with VLC
+
+Well, as we promised you in the beginning, it's time for the bonus tip! You have understood how to trim videos in Windows 10 Photos, let's explore VLC's magic. When Windows 10 Photos allows you basic level easy trimming for advanced features you can try [VLC](https://www.videolan.org/). For operating systems other than Windows, such as Fedora, Ubuntu, or Mac you won't be able to use Windows 10 Photos, so VLC is a good option for cross-platform video editing.
+
+It is important to update VLC to the latest version to explore the complete features of this application. It supports a wide range of multimedia files for editing videos as well as streaming protocols and video discs.
+
+Here comes the step by step guide to trim video in VLC –
+
+1. Once you update and install the latest version of the VLC media player on your Windows or another computer, launch it and go to the 'View' menu for activating the 'Advanced controls' option.
+
+![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
+
+1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
+2. Select the position from where you want to keep the video and hit the play and record button together.
+3. Now, tap the 'Record' button again where you want to stop the recording. This clip automatically gets saved as an MP4 media file. You can find it within the 'Libraries/Videos' folder if it's a Windows 7 PC.
+
+Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
+
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+From the above article, we found that **trimming video in VLC and Windows 10 Photos** has its own set of advantages. While in Windows 10 Photos, you get the ease of operation for trimming the clip, VLC is a bit time taking. But, when it comes to more features in video editing, VLC certainly has better brownie points. But finally, it's your call to pick what suits you for your video editing needs. If you want to trim video easily, you can try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-detailed-review-of-the-sony-fdr-x1000-action-camera/"><u>[New] 2024 Approved  Detailed Review of the Sony FDR-X1000 Action Camera</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-apex-workplace-data-sphere/"><u>[New] Apex Workplace Data Sphere</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-explore-free-options-10-leading-mac-artists-preferences-for-2024/"><u>[New] Explore Free Options  10 Leading Mac Artists' Preferences for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-flight-pattern-perfection-dissecting-bebops-parrot-expedition/"><u>[New] Flight Pattern Perfection  Dissecting Bebop's Parrot Expedition</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-free-high-quality-srt-translation-services-1-8-for-2024/"><u>[New] Free, High-Quality SRT Translation Services – #1-#8 for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-an-in-depth-examination-of-samsungs-picture-editing-tech/"><u>[Updated] 2024 Approved  An In-Depth Examination of Samsung’s Picture Editing Tech</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-mastering-digital-layer-combinations-at-home/"><u>[Updated] 2024 Approved  Mastering Digital Layer Combinations at Home</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-techniques-for-steadying-your-motion-sensitive-gopro/"><u>[Updated] 2024 Approved  Techniques for Steadying Your Motion-Sensitive GoPro</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-animating-faces-the-guide-to-motion-blur-in-picsart-for-2024/"><u>[Updated] Animating Faces  The Guide to Motion Blur in Picsart for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-dji-phantom-3-the-pro-drone-experience-explored/"><u>[Updated] In 2024, DJI Phantom 3  The Pro Drone Experience Explored</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-essential-pixlr-upgrades-for-enhanced-results/"><u>[Updated] In 2024, Essential Pixlr Upgrades for Enhanced Results</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-is-inshot-the-peak-of-video-editing-software/"><u>[Updated] Is InShot the Peak of Video Editing Software?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-leading-e-conference-headline-generator-for-2024/"><u>[Updated] Leading E-Conference Headline Generator for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-live-stream-titans-duel-comparative-exploration-of-twitch-and-youtube-for-2024/"><u>[Updated] Live-Stream Titans Duel  Comparative Exploration of Twitch & YouTube for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-elevating-engagement-a-comprehensive-guide-to-insta-vids/"><u>2024 Approved  Elevating Engagement  A Comprehensive Guide to Insta Vids</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-simple-screen-recorder-for-windows-10/"><u>2024 Approved  Simple Screen Recorder for Windows 10</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-the-insiders-guide-to-preserving-whatsapp-chat-history/"><u>2024 Approved  The Insider's Guide to Preserving WhatsApp Chat History</u></a></li>
+<li><a href="https://article-posts.techidaily.com/exploring-the-apex-of-mobile-photography-with-ios-11/"><u>Exploring the Apex of Mobile Photography with iOS 11</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-vivo-y100t-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Vivo Y100t | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-forgotten-pin-of-your-samsung-galaxy-f04-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Samsung Galaxy F04</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-11-apples-new-iphone-by-drfone-ios/"><u>How to Unlock iPhone 11, Apples New iPhone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-beyond-periscope-top-6-peripheral-android-and-ios-apps/"><u>In 2024, Beyond Periscope  Top 6 Peripheral Android and iOS Apps</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-depth-guide-to-streaming-and-recording-webcasts-professionally/"><u>In-Depth Guide to Streaming and Recording Webcasts Professionally</u></a></li>
+<li><a href="https://article-posts.techidaily.com/laugh-labs-robotic-deadpan-devs/"><u>Laugh Labs  Robotic Deadpan Devs</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/new-console-new-experience-why-you-should-buy-the-ps5-despite-the-cost/"><u>New Console, New Experience: Why You Should Buy the PS5 Despite The Cost</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-vivo-s18-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Vivo S18 | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ultimate-guide-discover-the-5-most-effective-github-copilot-alternatives-for-vs-code/"><u>Ultimate Guide: Discover the 5 Most Effective GitHub Copilot Alternatives for VS Code!</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-htc-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for HTC Users</u></a></li>
+<li><a href="https://article-posts.techidaily.com/unveiling-virtual-worlds-metaverse-versus-omniverse-explained-for-2024/"><u>Unveiling Virtual Worlds  Metaverse Versus Omniverse Explained for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/vid-tribute-the-power-in-customer-endorsements/"><u>Vid Tribute  The Power in Customer Endorsements</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/zoom-essentials-for-webinar-novices-an-introductory-walkthrough-for-2024/"><u>Zoom Essentials for Webinar Novices  An Introductory Walkthrough for 2024</u></a></li>
+</ul></div>

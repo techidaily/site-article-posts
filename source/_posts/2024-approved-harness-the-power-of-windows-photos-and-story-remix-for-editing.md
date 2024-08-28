@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Harness the Power of Windows Photos & Story Remix for Editing\""
-date: 2024-07-11T01:41:42.067Z
-updated: 2024-07-12T01:41:42.067Z
+date: 2024-08-27T09:19:14.516Z
+updated: 2024-08-28T09:19:14.516Z
 tags: 
   - screen-recording
   - ai video
@@ -68,6 +68,9 @@ How to create a Story Remix project automatically –
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-name-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: How to create a Story Remix project from scratch
 
 Here is the guide –
@@ -78,15 +81,24 @@ Here is the guide –
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-random-min.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 1. Hit on **Create video** afterwards.
 2. Now, you can preview, edit or share your video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ## Part 4: How to edit a Story Remix video
 
 Story Remix has 3 major sections namely, media bin consists of files already included in your card-based timeline and files that you chose in previous steps; preview section with recent changes and timeline shows the card with a running video; and the timeline having the option to drag and drop cards from the media bin.
 
 In the following sections, we have segregated each editing feature of Story Mix for you to explore –
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Adding a new theme
 
 A theme is a built-in feature in Photos, just like music, filters, and text styles. Adding a theme does everything on the go.
@@ -96,6 +108,12 @@ A theme is a built-in feature in Photos, just like music, filters, and text styl
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-theme-min.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Adding image duration
 
 While adding media to the timeline in Story Mix, you will see that there is a default timeline for each image. To adjust the duration, you can do –
@@ -104,6 +122,9 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-duration-min.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Adding custom text
 
 1. Choose card from timeline, click ‘Text’ and feed the custom text in the box located at right side. You can simply use animated text styles too.
@@ -119,6 +140,13 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-motion-min.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ### Trimming video clips
 
 1. Pick the video from timeline and choose ‘Trim’ button. Mark the trim area and click ‘Play’ to preview.
@@ -187,3 +215,42 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-8-mistakes-to-avoid-as-a-new-youtuber/"><u>[New] 2024 Approved  8 Mistakes to Avoid as a New Youtuber</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-conveniently-keep-your-linkedin-videos-with-these-6-apps/"><u>[New] 2024 Approved  Conveniently Keep Your LinkedIn Videos with These 6 Apps</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-parable-pioneers-guild-premier-peak/"><u>[New] 2024 Approved  Parable Pioneers Guild – Premier Peak</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-starter-selection-affordable-site-purchases-for-beginners/"><u>[New] 2024 Approved  Starter Selection  Affordable Site Purchases for Beginners</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-transformative-photographic-text-edits/"><u>[New] 2024 Approved  Transformative Photographic Text Edits</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-virtual-universes-clash-metaverse-vs-multiverse/"><u>[New] 2024 Approved  Virtual Universes Clash  Metaverse V/S Multiverse</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-broadcasting-made-simple-directly-stream-google-meet-to-youtube-for-2024/"><u>[New] Broadcasting Made Simple  Directly Stream Google Meet to YouTube for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-dji-phantom-3-professional-review-for-2024/"><u>[New] DJI Phantom 3 Professional Review for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-transform-your-vision-into-reality-essential-movies-maker-skills-on-windows-8/"><u>[New] In 2024, Transform Your Vision Into Reality  Essential Movies Maker Skills on Windows 8</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-synthesize-silliness-in-visual-gifs-with-giphy/"><u>[New] Synthesize Silliness in Visual Gifs with Giphy</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-the-beat-drops-essential-tiktok-rap-playlists/"><u>[New] The Beat Drops  Essential TikTok Rap Playlists</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-discovering-top-video-cameras/"><u>[Updated] 2024 Approved  Discovering Top Video Cameras</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-immortalizing-the-epic-sagas-of-pc-gaming-6-pro-tips/"><u>[Updated] 2024 Approved  Immortalizing the Epic Sagas of PC Gaming  6 Pro Tips</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-innovative-approaches-to-modify-user-numbers-in-tiktok/"><u>[Updated] 2024 Approved  Innovative Approaches to Modify User Numbers in TikTok</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-jumpstart-your-video-playback-snapchat-speed-optimization/"><u>[Updated] 2024 Approved  Jumpstart Your Video Playback  Snapchat Speed Optimization</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-building-effective-podcast-rss-feeds-for-2024/"><u>[Updated] Building Effective Podcast RSS Feeds for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-beginners-bounty-understanding-screen-clarity-in-digital-media/"><u>[Updated] In 2024, Beginner's Bounty  Understanding Screen Clarity in Digital Media</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-beyond-acid-the-future-of-graphic-vectors/"><u>[Updated] In 2024, Beyond ACID  The Future of Graphic Vectors</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-crafting-quiet-curtains-the-pp-approach-to-invisible-sound-endings/"><u>[Updated] In 2024, Crafting Quiet Curtains  The PP Approach to Invisible Sound Endings</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-essential-templates-for-impactful-business-presentations/"><u>[Updated] In 2024, Essential Templates for Impactful Business Presentations</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-essential-tips-for-navigating-telegram-web/"><u>[Updated] In 2024, Essential Tips for Navigating Telegram Web</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-free-mobile-overlay-tools-top-10-innovative-photo-enhancers/"><u>[Updated] In 2024, Free Mobile Overlay Tools - Top 10 Innovative Photo Enhancers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-hush-harmony-techniques-for-taming-unwanted-voices-on-gchat/"><u>[Updated] In 2024, Hush Harmony  Techniques for Taming Unwanted Voices on GChat</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-lut-lovers-delight-complimentary-sets-for-djis-miniair2/"><u>[Updated] In 2024, LUT Lovers Delight  Complimentary Sets for DJI's Mini/Air2</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-whimsical-words-in-motion-animated-captions-for-ig-stories/"><u>[Updated] In 2024, Whimsical Words in Motion  Animated Captions for IG Stories</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-pioneering-efficient-editing-embrace-inshot-software-for-2024/"><u>[Updated] Pioneering Efficient Editing  Embrace Inshot Software for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-top-5-must-have-video-editing-software-for-macos-sierra/"><u>[Updated] Top 5 Must-Have Video Editing Software for macOS Sierra</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-non-playing-youtube-content-fixed-for-phonestablets/"><u>2024 Approved  Non-Playing YouTube Content  Fixed for Phones/Tablets</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-in-2024-a-guide-to-using-obs-studio-to-stream-to-facebook/"><u>New In 2024, A Guide to Using OBS Studio To Stream to Facebook</u></a></li>
+<li><a href="https://article-posts.techidaily.com/optimizing-living-area-for-oculus-virtual-reality-for-2024/"><u>Optimizing Living Area for Oculus Virtual Reality for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/seo-for-podcasts-ultimate-guide/"><u>SEO for Podcasts - Ultimate Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-art-of-virtual-environments-in-cinema-for-2024/"><u>The Art of Virtual Environments in Cinema for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/the-ultimate-guide-to-amr-format-processing-and-conversion/"><u>The Ultimate Guide to AMR Format Processing and Conversion</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-tips-resolving-windows-11-microphone-issues-easily/"><u>Troubleshooting Tips: Resolving Windows 11 Microphone Issues Easily</u></a></li>
+<li><a href="https://article-posts.techidaily.com/unboxing-the-lg-27ud88uhd-monitor-experience-for-tech-enthusiasts-for-2024/"><u>Unboxing the LG 27UD88UHD Monitor Experience for Tech Enthusiasts for 2024</u></a></li>
+</ul></div>
