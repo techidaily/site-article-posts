@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Artful Depth  Making Text Pop in AI\""
-date: 2024-07-11T01:38:21.962Z
-updated: 2024-07-12T01:38:21.962Z
+date: 2024-08-31T14:06:03.882Z
+updated: 2024-09-01T14:06:03.882Z
 tags: 
   - screen-recording
   - ai video
@@ -76,6 +76,9 @@ You might not believe it, but there's an even more accessible and less expensive
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ### How to Create a 3D Text Effect In Filmora?
 
 The steps are simple. Just follow them precisely as you see here, and you won't have any problems.
@@ -86,14 +89,28 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Both programs will get the job done if you use Adobe Illustrator or Filmora for your 3D text effect. The main difference is that it will be easier with Filmora. The choice is yours. Have fun!
@@ -102,6 +119,9 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Create a 3D Text Effect In Filmora?
 
 The steps are simple. Just follow them precisely as you see here, and you won't have any problems.
@@ -116,6 +136,9 @@ Step3 Double-click on the 3D title layer you dragged into the Timeline. When the
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
@@ -149,3 +172,43 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-action-cam-showdown-which-holds-the-crown-gopro-or-yi/"><u>[New] Action Cam Showdown  Which Holds the Crown - GoPro or Yi?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-automatic-high-quality-imaging-the-role-of-auto-and-smart-hdr-3-and-4/"><u>[New] Automatic High-Quality Imaging  The Role of Auto and Smart HDR 3 & 4</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-capturing-footage-from-above-drone-filming-tips/"><u>[New] Capturing Footage From Above  Drone Filming Tips</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-discover-the-top-3-alternative-video-portals-for-2024/"><u>[New] Discover the Top 3 Alternative Video Portals for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-effortlessly-edit-podcasts-best-practices-with-garageband/"><u>[New] Effortlessly Edit Podcasts  Best Practices with GarageBand</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-fundamental-narrative-structure/"><u>[New] Fundamental Narrative Structure</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-exemplary-narratives-distributed-by-category/"><u>[New] In 2024, Exemplary Narratives Distributed by Category</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-top-drone-shopping-mistakes-and-how-to-dodge-them/"><u>[New] In 2024, Top Drone Shopping Mistakes and How to Dodge Them</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-skyrocket-your-storage-top-20-free-cloud-services-to-choose-from-1tbplus/"><u>[New] Skyrocket Your Storage - Top 20 Free Cloud Services to Choose From (1TB+)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-ultimate-iphone-photography-playbook/"><u>[New] The Ultimate iPhone Photography Playbook</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-crafting-an-engaging-review-vlog-for-everyday-items/"><u>[Updated] 2024 Approved  Crafting an Engaging Review Vlog for Everyday Items</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-master-sound-capture-on-your-macos-device-via-audacity/"><u>[Updated] 2024 Approved  Master Sound Capture on Your MacOS Device via Audacity</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-comprehensive-archive-guide-10-top-methods-to-capture-online-music/"><u>[Updated] Comprehensive Archive Guide  10 Top Methods to Capture Online Music</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-crafting-3d-text-a-step-by-step-guide-to-adobe-illustrator-for-2024/"><u>[Updated] Crafting 3D Text  A Step-by-Step Guide to Adobe Illustrator for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-high-definition-dominance-premier-players-in-24/"><u>[Updated] High Definition Dominance  Premier Players in '24</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-combining-images-for-an-engaging-picture-panorama/"><u>[Updated] In 2024, Combining Images for an Engaging Picture Panorama</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-storyboard-pro-for-win8/"><u>[Updated] In 2024, StoryBoard Pro for Win8</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-top-5-fpv-monitors-to-dominate-the-skies/"><u>[Updated] In 2024, Top 5 FPV Monitors to Dominate the Skies</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-practical-steps-to-enhance-videos-with-device-based-filtering/"><u>[Updated] Practical Steps to Enhance Videos with Device-Based Filtering</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-essential-manual-for-personalizing-android-ringtones-and-sounds/"><u>[Updated] The Essential Manual for Personalizing Android Ringtones and Sounds</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-realme-11-pro-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Realme 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-choice-in-motion-typography-designs/"><u>Best Choice in Motion Typography Designs</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/experience-thrilling-teamwork-in-dying-lights-first-person-co-op-adventure/"><u>Experience Thrilling Teamwork in Dying Light's First-Person Co-Op Adventure</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exploring-soft-cessation-of-audio-tracks-with-audacity-for-2024/"><u>Exploring Soft Cessation of Audio Tracks with Audacity for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-capturing-charm-sage-advice-on-editing-digital-art/"><u>In 2024, Capturing Charm  Sage Advice on Editing Digital Art</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-xiaomi-redmi-note-12-pro-4g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Xiaomi Redmi Note 12 Pro 4G Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-instagram-stories-mastering-the-art-of-time-manipulation/"><u>In 2024, Instagram Stories – Mastering the Art of Time Manipulation</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-srt-fundamentals-explored-in-detail-and-clarity/"><u>In 2024, SRT Fundamentals Explored in Detail and Clarity</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-visual-perfection-with-obs-studio-and-its-comprehensive-lut-support/"><u>In 2024, Visual Perfection with OBS Studio and Its Comprehensive LUT Support</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/initiate-dialogue-with-ai-using-bash-and-shellgpt-for-chatgpt/"><u>Initiate Dialogue with AI: Using Bash and ShellGPT for ChatGPT</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcoming-the-challenge-of-poor-framerate-in-dying-light-proven-fixes-revealed/"><u>Overcoming the Challenge of Poor Framerate in Dying Light: Proven Fixes Revealed</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/restore-your-rides-roar-eliminating-sound-problems-in-forza-horizon-4-easily/"><u>Restore Your Ride's Roar - Eliminating Sound Problems in Forza Horizon 4 Easily</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/step-by-step-tutorial-on-securely-retrieving-vimeo-content-for-offline-viewing/"><u>Step-by-Step Tutorial on Securely Retrieving Vimeo Content for Offline Viewing</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/still-using-pattern-locks-with-xiaomi-redmi-note-12-4g-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Xiaomi Redmi Note 12 4G? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-creme-de-la-creme-live-streaming-services/"><u>The Crème De La Créme Live Streaming Services</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-easy-steps-to-create-talking-memoji-on-iphone-free/"><u>Updated Easy Steps To Create Talking Memoji on iPhone Free</u></a></li>
+</ul></div>

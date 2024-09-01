@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Full Disclosure  Ricoh Theta S Inside & Out\""
-date: 2024-07-11T01:27:32.257Z
-updated: 2024-07-12T01:27:32.257Z
+date: 2024-08-31T14:10:45.379Z
+updated: 2024-09-01T14:10:45.379Z
 tags: 
   - screen-recording
   - ai video
@@ -83,6 +83,9 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | Cloud service for image sharing                                                        |                                                                       |
 | Remote control (via App)                                                               |                                                                       |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3 Basic specs of Ricoh Theta S
 
 | **Full name**            | Ricoh Theta S                                             |                       |                                                                                                                                                                       |
@@ -99,6 +102,9 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | **Image Resolution**     | 5376 x 2688 (14.5 MP, Other), 2048 x 1024 (2.1 MP, Other) | **Video resolution**  | 1920x1080 (30p) 1280x720 (15p)                                                                                                                                        |
 | **Image format**         | JPEG (EXIF 2.3)- The most commonly used format.           | **Video File Format** | Live streaming via HDMI supported (L:1920x1080/30fps M: 1280x720/30fps S: 720x480/30fps); Live streaming (USB): MP4 (video: MPEG-4 AVC); Motion JPEG (1280x720/15fps) |
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 4 Should I buy Ricoh Theta S
 
 Theta S is one of the most useful products for photography lovers whether they are beginners or professionals. This device allows users to capture stunning shots with 360 degree focus and you can even zoom each and every part of these captured images. With all such amazing facilities, it definitely becomes a must buy product and you can order it online as soon as possible at an affordable price range.
@@ -107,6 +113,9 @@ Theta S is one of the most useful products for photography lovers whether they a
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -133,3 +142,51 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-heaviest-drone-assemblies-essential-top-ten-lists-for-2024/"><u>[New] Heaviest Drone Assemblies  Essential Top-Ten Lists for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-ideal-online-audio-equipment-top-7-picks-2023-for-2024/"><u>[New] Ideal Online Audio Equipment  Top 7 Picks 2023 for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-adventure-in-sync-reviewing-the-panasonic-hx-a1-cam/"><u>[New] In 2024, Adventure in Sync  Reviewing the Panasonic HX-A1 Cam</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-high-quality-inexpensive-countdown-apps/"><u>[New] In 2024, High-Quality Inexpensive Countdown Apps</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-identifying-excellent-video-production-experts/"><u>[New] In 2024, Identifying Excellent Video Production Experts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-master-the-switch-making-your-graphic-style-a-sticker-on-every-platform/"><u>[New] Master the Switch  Making Your Graphic Style a Sticker on Every Platform</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-mastering-microscope-mode-in-roblox-games-for-2024/"><u>[New] Mastering Microscope Mode in Roblox Games for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-pioneering-pedagogy-through-film-in-the-classroom-for-2024/"><u>[New] Pioneering Pedagogy Through Film in the Classroom for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-prime-choices-for-valheims-agricultural-success/"><u>[New] Prime Choices for Valheim's Agricultural Success</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-pro-audio-software-win-edition-for-2024/"><u>[New] Pro Audio Software Win Edition for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-connectors-companion-instagram-to-tiktok-guide-for-2024/"><u>[New] The Connector's Companion  Instagram to TikTok Guide for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-ultimate-guide-to-choosing-the-best-free-photo-collage-ios-apps/"><u>[New] The Ultimate Guide to Choosing the Best FREE Photo Collage iOS Apps</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-photo-enhancers-blurring-removal-online-edition-for-2024/"><u>[New] Top Photo Enhancers  Blurring Removal Online Edition for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-crafting-perfect-youtube-thumbnails-on-macos/"><u>[Updated] 2024 Approved  Crafting Perfect YouTube Thumbnails on macOS</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-deciding-on-the-best-gopro-max-or-hero-11/"><u>[Updated] 2024 Approved  Deciding on the Best GoPro  Max or Hero 11?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-eliminating-vibrational-distortion-in-drone-footage/"><u>[Updated] 2024 Approved  Eliminating Vibrational Distortion in Drone Footage</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-chromatic-chameleons-playbook-for-masters/"><u>[Updated] 2024 Approved  The Chromatic Chameleon's Playbook for Masters</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-thriving-on-both-sides-work-and-youtubing-tips/"><u>[Updated] 2024 Approved  Thriving on Both Sides  Work and YouTubing Tips</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-hit-top-rank-firstrow-pursuits-outside-sports/"><u>[Updated] Hit Top Rank  Firstrow Pursuits Outside Sports</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-iconic-80s-aesthetic-techniques-for-cutting-videos-for-2024/"><u>[Updated] Iconic 80S Aesthetic Techniques for Cutting Videos for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-a-step-by-step-guide-for-effective-use-of-luts-in-adobe-suite/"><u>[Updated] In 2024, A Step-by-Step Guide for Effective Use of LUTs in Adobe Suite</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-effortless-and-easy-video-snapshots-of-win11/"><u>[Updated] In 2024, Effortless & Easy Video Snapshots of Win11</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-mastering-lut-integration-in-obs-for-enhanced-visual-effects/"><u>[Updated] Mastering LUT Integration in OBS for Enhanced Visual Effects</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-telegram-for-newcomers-how-to-make-your-advertising-stand-out-for-2024/"><u>[Updated] Telegram for Newcomers  How to Make Your Advertising Stand Out for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-insiders-look-at-creating-movies-using-windows-8-movie-maker/"><u>[Updated] The Insider's Look at Creating Movies Using Windows 8 Movie Maker</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-ultimate-audio-and-video-showcase-excellent-webcams-for-podcasts/"><u>[Updated] Ultimate Audio & Video Showcase  Excellent Webcams for Podcasts</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-a-thorough-examination-of-hero5-video-content/"><u>2024 Approved  A Thorough Examination of Hero5 Video Content</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-streamline-your-content-efficiently-adding-youtube-captions/"><u>2024 Approved  Streamline Your Content  Efficiently Adding YouTube Captions</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-oneplus-12r-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-infinix-smart-8-pro-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Infinix Smart 8 Pro Fingerprint Lock</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-infinite-gaming-space-10-ssds-hdds-for-ps5/"><u>In 2024, Infinite Gaming Space  #10 SSDs, HDDs for PS5</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-nurturing-discussions-strategies-to-connect-with-followers/"><u>In 2024, Nurturing Discussions  Strategies to Connect With Followers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-the-fundamentals-of-uncomplicated-hdr-techniques/"><u>In 2024, The Fundamentals of Uncomplicated HDR Techniques</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-depth-assessment-the-dji-quadcopter-model-3-for-2024/"><u>In-Depth Assessment  The DJI Quadcopter Model 3 for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/logitechs-premium-4k-webcam-full-review-and-usability-insights/"><u>Logitech's Premium 4K Webcam - Full Review & Usability Insights</u></a></li>
+<li><a href="https://article-posts.techidaily.com/maximizing-virtual-reality-potential/"><u>Maximizing Virtual Reality Potential</u></a></li>
+<li><a href="https://article-posts.techidaily.com/maximizing-virtual-reality-potential-for-2024/"><u>Maximizing Virtual Reality Potential for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/official-nvidia-geforce-rtx-3090-driver-software-for-windows-operating-systems-win7810/"><u>Official NVIDIA GeForce RTX 3090 Driver Software for Windows Operating Systems (Win7/8/10)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/photoshop-curves-decoded-a-beginners-guide-for-2024/"><u>Photoshop Curves Decoded  A Beginner's Guide for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/premium-gopro-enhancements-guide-for-2024/"><u>Premium Gopro Enhancements Guide for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/quantum-hdr-phenomenon-in-digital-photography-for-2024/"><u>Quantum HDR Phenomenon in Digital Photography for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-realme-narzo-60x-5g-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Realme Narzo 60x 5G Device</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-free-wmv-video-merger-software-top-picks/"><u>Updated Free WMV Video Merger Software Top Picks</u></a></li>
+</ul></div>
