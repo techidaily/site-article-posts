@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Art of High-Quality Sound Recording via Audacity\""
-date: 2024-08-31T14:25:59.252Z
-updated: 2024-09-01T14:25:59.252Z
+date: 2024-09-04T18:14:44.766Z
+updated: 2024-09-05T18:14:44.766Z
 tags: 
   - screen-recording
   - ai video
@@ -49,7 +49,10 @@ Step3In the "Device" section of the Audacity preferences box, choose "Soundflowe
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 3\. Export your audio
 

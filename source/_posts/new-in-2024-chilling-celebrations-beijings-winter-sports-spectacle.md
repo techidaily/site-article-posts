@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Chilling Celebrations  Beijing's Winter Sports Spectacle\""
-date: 2024-07-11T01:07:49.852Z
-updated: 2024-07-12T01:07:49.852Z
+date: 2024-09-04T18:12:18.133Z
+updated: 2024-09-05T18:12:18.133Z
 tags: 
   - screen-recording
   - ai video
@@ -40,14 +40,38 @@ Nathan Chen of the United States set a world-record score in men's figure skatin
 
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
 
 Injuries are part of sports events but some injuries are gruesome and are results of terrifying crashes. Team USA alpine racer Nina O'Brien was the victim of a terrifying crash this year at Winter Olympics. During her second run at the women's giant slalom event, she suffered a gruesome leg injury.
 
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2030373/7443" target="_top" id="2030373">
+  <img src="//a.impactradius-go.com/display-ad/7443-2030373" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030373/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4\. US-Born Eileen Gu Wins Gold for China
 
 Born in America, Eileen Gu represented China at Winter Olympics and managed to win the gold medal in the inaugural freeski big air event. Therefore, she will go down in the history as the first woman to win the gold medal for freeski big air event. She stunned everyone by completing two off-axis rotations in the air.
@@ -56,12 +80,30 @@ Born in America, Eileen Gu represented China at Winter Olympics and managed to w
 
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Van der Poel Breaks the World Record
 
 Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year-old Swede started strongly and crossed the finish line in 12 minutes 30.74 seconds to set the world record. His victory also made Sweden taste an Olympic medal after 1988\. The victory also made him the tenth man to win both the 10,000 races and 5,000 races in the same event. It is also the largest Olympic victory as he triumphed the record set by Johan Olav Kloss in 1994 by 18.70 seconds.
 
 ![van poel breaks the world record](https://images.wondershare.com/filmora/article-images/van-poel-breaks-the-world-record.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
 
 ## 6\. Yan Wengang Wins China's First Medal in Sliding Sport
@@ -70,6 +112,12 @@ Yan Wengang becomes the first medalist from China in a sliding sport. In a four-
 
 ![yan wen gang](https://images.wondershare.com/filmora/article-images/yan-wen-gang.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
 
 ## 7\. Chloe Kim Wins Second Straight Olympic Gold
@@ -78,6 +126,12 @@ The competitiveness of Wengwang has made him the first medalist for China in men
 
 ![chloe kim](https://images.wondershare.com/filmora/article-images/chloe-kim.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
 
 ## 8\. Ukrainian Athlete Shows ‘No War' Sign During Skeleton Event
@@ -86,6 +140,12 @@ We are all aware of the tensions between Ukraine and Russia are at their peak an
 
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
 
 ## 9\. American Favorite Out of the Tournament
@@ -96,6 +156,12 @@ US skater Vincent Zhou has tested positive for coronavirus and therefore, he is 
 
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 10\. Russian Figure Skater Tests Positive for Banned Substance
 
 Doping scandals have become a part of the Olympics and this year is no different. According to International Testing Agency, Russian skater Kamila Valieva failed the doping test. On further examination, she tested positive for a performance-enhancing banned substance. She was told that she could not train, compete and participate during the Olympic Winter Games.
@@ -124,3 +190,46 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-focus-on-clarity-top-10-phones-excelling-at-4k-video-recording/"><u>[New] 2024 Approved  Focus on Clarity  Top 10 Phones Excelling at 4K Video Recording</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-effortless-electronic-exchange-how-to-transfer-files/"><u>[New] Effortless Electronic Exchange  How To Transfer Files</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-enhancing-clarity-for-tiny-treasures-in-minecraft/"><u>[New] Enhancing Clarity for Tiny Treasures in Minecraft</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-filmora-fusion-a-comprehensible-comparative-guide/"><u>[New] Filmora Fusion  A Comprehensible Comparative Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-introduction-to-cinematic-graphics-techniques-for-2024/"><u>[New] Introduction to Cinematic Graphics Techniques for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-art-of-flow-mastering-inshots-segmentation-techniques/"><u>[New] The Art of Flow  Mastering Inshot's Segmentation Techniques</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-one-stop-guide-to-simplified-podcast-live-broadcasting/"><u>[New] The One Stop Guide to Simplified Podcast Live Broadcasting</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/op-20-free-footage-sites-a-comprehensively-curated-list/"><u>[New] Top 20 Free Footage Sites  A Comprehensively Curated List</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-are-product-assessments-online-content-sold/"><u>[Updated] 2024 Approved  Are Product Assessments Online Content Sold?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-fast-fixes-to-skyrocket-your-podcast-live/"><u>[Updated] 2024 Approved  Fast Fixes to Skyrocket Your Podcast Live</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-from-analog-archives-to-digital-epics-creating-videos-from-older-photographs/"><u>[Updated] 2024 Approved  From Analog Archives to Digital Epics  Creating Videos From Older Photographs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-master-the-basics-of-windows-10-effortlessly/"><u>[Updated] 2024 Approved  Master the Basics of Windows 10 Effortlessly</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-superior-online-concert-streamers/"><u>[Updated] 2024 Approved  Superior Online Concert Streamers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-best-practices-for-high-impact-customer-endorsements/"><u>[Updated] Best Practices for High-Impact Customer Endorsements</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-essentials-of-animated-visual-communication-for-2024/"><u>[Updated] Essentials of Animated Visual Communication for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-harness-ease-of-video-editing-on-windows-11/"><u>[Updated] Harness Ease of Video Editing on Windows 11</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-instagram-melodies-compliance-and-policies-for-2024/"><u>[Updated] Instagram Melodies  Compliance and Policies for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-mememasters-suite-download-for-2024/"><u>[Updated] MemeMasters Suite Download for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-ultimate-cyber-companion-tone-downloads-guide-for-2024/"><u>[Updated] Ultimate Cyber Companion  Tone Downloads Guide for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-utilizing-zoom-to-upgrade-tiktok-video-aesthetics/"><u>[Updated] Utilizing Zoom to Upgrade TikTok Video Aesthetics</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-zipping-down-peaks-top-moments-from-olympic-snowboard-cross-event/"><u>[Updated] Zipping Down Peaks  Top Moments From Olympic Snowboard Cross Event</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-co-marketing-brands-and-youtubes-dynamic-duo/"><u>2024 Approved  Co-Marketing  Brands and YouTube's Dynamic Duo</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-rapid-methods-to-customize-your-soundscaping-in-pubg/"><u>2024 Approved  Rapid Methods to Customize Your Soundscaping in PUBG</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/all-ages-enjoyment-with-maisto-rc-rock-crawler-in-depth-review-and-insights/"><u>All Ages Enjoyment with Maisto RC Rock Crawler - In-Depth Review and Insights</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-contacts-from-honor-x50iplus-by-fonelab-android-recover-contacts/"><u>Best Android Data Recovery - Retrieve Lost Contacts from Honor X50i+.</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/best-practices-elevating-your-virtual-identity-on-facebook-for-2024/"><u>Best Practices  Elevating Your Virtual Identity on Facebook for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-thors-fury-legends-of-the-ragnarok/"><u>In 2024, Thor's Fury  Legends of the Ragnarök</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-viral-hits-the-top-10-music-videos-on-fb-now/"><u>In 2024, Viral Hits  The Top 10 Music Videos on FB Now</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-visualize-vibrancy-generate-memes-with-kapwing/"><u>In 2024, Visualize Vibrancy  Generate Memes with Kapwing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/innovators-crafting-next-gen-virtual-worlds-for-2024/"><u>Innovators Crafting Next-Gen Virtual Worlds for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/integrating-video-conferencing-mastering-skypes-screen-sharing-functionality/"><u>Integrating Video Conferencing  Mastering Skype's Screen Sharing Functionality</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/quick-diy-cinematic-techniques-every-hobbyist-should-know/"><u>Quick DIY Cinematic Techniques Every Hobbyist Should Know</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/resolving-operation-issues-on-modern-windows-pcs/"><u>Resolving Operation Issues on Modern Windows PCs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/snapshots-of-progress-windows-10s-new-features/"><u>Snapshots of Progress  Windows 10'S New Features</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/the-ultimate-guide-for-enthusiasts-on-screenshotting-with-zd-software/"><u>The Ultimate Guide for Enthusiasts on Screenshotting with ZD Software</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/thermaltake-massive-laptop-cooler-uncovered-a-bundle-full-of-perks-yet-hefty-on-your-wallet/"><u>Thermaltake MassivE Laptop Cooler Uncovered: A Bundle Full of Perks, Yet Hefty on Your Wallet</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/updated-2024-approved-revolutionizing-communication-real-time-ai-voice-changer/"><u>Updated 2024 Approved Revolutionizing Communication Real-Time AI Voice Changer</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/updated-hp-spectre-x360-driver-collection-compatible-with-windows-free-download-now/"><u>Updated HP Spectre X360 Driver Collection - Compatible with Windows | Free Download Now</u></a></li>
+<li><a href="https://win-able.techidaily.com/why-was-there-a-hiccup-with-ascents-launch-weve-figured-it-out/"><u>Why Was There a Hiccup with Ascent's Launch? We've Figured It Out</u></a></li>
+</ul></div>
