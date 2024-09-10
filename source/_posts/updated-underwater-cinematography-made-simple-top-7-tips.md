@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Underwater Cinematography Made Simple  Top 7 Tips\""
-date: 2024-07-11T00:59:35.220Z
-updated: 2024-07-12T00:59:35.220Z
+date: 2024-09-09T07:12:55.528Z
+updated: 2024-09-10T07:12:55.528Z
 tags: 
   - screen-recording
   - ai video
@@ -16,6 +16,12 @@ keywords: "Cinematic Underwater Basics,Simplified Sea Film Techniques,Underwater
 thumbnail: https://thmb.techidaily.com/01a181b2c169140bb50e16f105fae6a9a347e62628b7a3a5060d5bc396913a4e.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Underwater Cinematography Made Simple: Top 7 Tips
 
 # How to Shoot Underwater Video Easily (with 7 Tips)
@@ -74,12 +80,30 @@ thumbnail: https://thmb.techidaily.com/01a181b2c169140bb50e16f105fae6a9a347e6262
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### 6\. Wide angle
 
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
 
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### 7\. Shoot the best colour
 
  You will be able to include the full spectrum of colour by remaining in the first five metres of the water. Fascinating marine life can be found in shallow reefs. The deeper you go, the more colour you are likely to lose.
@@ -88,6 +112,12 @@ thumbnail: https://thmb.techidaily.com/01a181b2c169140bb50e16f105fae6a9a347e6262
 
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Edit your footage
 
  To make your underwater videos good rather than great, it’s important that the editing process is of the highest quality.
@@ -100,8 +130,26 @@ thumbnail: https://thmb.techidaily.com/01a181b2c169140bb50e16f105fae6a9a347e6262
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -128,3 +176,49 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-decoding-the-fisheye-dilemma-in-gopro-videos/"><u>[New] 2024 Approved Decoding the Fisheye Dilemma in GoPro Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-streamlining-film-grading-with-cg-centrals-look-up-tables/"><u>[New] 2024 Approved Streamlining Film Grading with CG Central's Look-Up Tables</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-beginners-guide-top-10-easy-to-fly-drones/"><u>[New] Beginner's Guide Top 10 Easy-to-Fly Drones</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-circles-vs-cubes-unraveling-camera-types/"><u>[New] Circles vs Cubes Unraveling Camera Types</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-ideas-on-boosting-gopro-energy-retention-for-2024/"><u>[New] Ideas on Boosting GoPro Energy Retention for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-expert-video-extractor-fb-and-firefox-enhanced-experience/"><u>[New] In 2024, Expert Video Extractor FB & Firefox Enhanced Experience</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-hexadrones-aviations-top-ten/"><u>[New] In 2024, HexaDrones Aviation's Top Ten</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-set-a-unique-tiktok-sound-as-your-cellphone-alarm-or-ringtone/"><u>[New] In 2024, Set a Unique TikTok Sound as Your Cellphone Alarm or Ringtone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-lore-masters-collective-essential-eight-for-2024/"><u>[New] Lore Masters Collective - Essential Eight for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-navigating-through-the-complexities-of-canon-time-lapse/"><u>[New] Navigating Through the Complexities of Canon Time-Lapse</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-ultimate-methods-for-efficiently-attaching-a-link-to-tiktok-bios-for-2024/"><u>[New] Ultimate Methods for Efficiently Attaching a Link to TikTok Bios for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-essential-top-5-xbox-hdds-for-gamers/"><u>[Updated] 2024 Approved Essential Top 5 Xbox HDDs for Gamers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-historical-deep-dives-from-youtubes-most-impactful-creators/"><u>[Updated] 2024 Approved Historical Deep Dives From YouTube's Most Impactful Creators</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-spectacular-8-cam-enhancers-for-improved-video-feeds/"><u>[Updated] 2024 Approved Spectacular 8 Cam Enhancers for Improved Video Feeds</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-a-comprehensive-list-of-the-best-6-microphones-for-video-hosts/"><u>[Updated] A Comprehensive List of the Best 6 Microphones for Video Hosts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-use-jump-cuts-in-your-vlog/"><u>[Updated] How To Use Jump Cuts in Your Vlog</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-how-to-use-zoom-to-stream-facebook-live/"><u>[Updated] In 2024, How to Use Zoom to Stream Facebook Live</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-pristine-visionary-storytelling-system-for-2024/"><u>[Updated] Pristine Visionary Storytelling System for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-revel-in-reality-an-extensive-review-of-lgs-high-fidelity-monitor-31mu97-b/"><u>[Updated] Revel in Reality - An Extensive Review of LG's High-Fidelity Monitor, 31MU97-B</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-troubleshooting-missing-video-display-on-sony-a6400/"><u>[Updated] Troubleshooting Missing Video Display on Sony A6400</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-comprehensive-guide-to-android-screenshotting/"><u>2024 Approved Comprehensive Guide to Android Screenshotting</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-epicurean-entertainment-master-the-craft-with-these-7-food-film-techniques/"><u>2024 Approved Epicurean Entertainment Master the Craft with These 7 Food Film Techniques</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-long-term-stability-of-syma-x8c/"><u>2024 Approved Long-Term Stability of Syma X8C</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/access-the-action-catch-wbc-and-major-league-baseball-for-free-online/"><u>Access the Action: Catch WBC and Major League Baseball for Free Online!</u></a></li>
+<li><a href="https://extra-information.techidaily.com/breaking-down-complex-gif-concepts-for-beginners-for-2024/"><u>Breaking Down Complex GIF Concepts for Beginners for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-best-non-microsoft-suite-options-available-in-202n4/"><u>Discover the Best Non-Microsoft Suite Options Available in 202N4</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-9-complete-uncut-holiday-cine-classics-for-no-cost/"><u>Enjoy 9 Complete, Uncut Holiday Cine Classics for No Cost!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fix-your-iphones-persistent-wi-fi-disconnection-problem-with-these-5-steps/"><u>Fix Your iPhone's Persistent Wi-Fi Disconnection Problem with These 5 Steps</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/forgotten-the-voicemail-password-of-tecno-spark-20-pro-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Tecno Spark 20 Pro? Try These Fixes</u></a></li>
+<li><a href="https://driver-error.techidaily.com/guide-to-fixing-usb-setup-errors-caused-by-access-is-denied/"><u>Guide to Fixing USB Setup Errors Caused by 'Access Is Denied'</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-open-your-apple-iphone-11-pro-max-without-a-home-button-by-drfone-ios/"><u>How To Open Your Apple iPhone 11 Pro Max Without a Home Button</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-xiaomi-13t-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Xiaomi 13T using Video Repair Utility on Windows?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-best-caller-id-changers-and-their-enchanting-alternatives/"><u>In 2024, Best Caller ID Changers & Their Enchanting Alternatives</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-complete-guide-for-macos-sierra-patches-and-plug-ins/"><u>In 2024, Complete Guide for macOS Sierra Patches and Plug-Ins</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-crafting-sweeping-sonic-narratives-with-expert-crossfade-techniques-audacity/"><u>In 2024, Crafting Sweeping Sonic Narratives with Expert Crossfade Techniques (Audacity)</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-guide-on-how-to-change-your-apple-id-email-address-on-iphone-14-plus-by-drfone-ios/"><u>In 2024, Guide on How To Change Your Apple ID Email Address On iPhone 14 Plus</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-superior-cams-for-animated-storytelling/"><u>In 2024, Superior Cams for Animated Storytelling</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-the-next-gen-samsung-gear-360-finding-your-perfect-replacement/"><u>In 2024, The Next Gen Samsung Gear 360 - Finding Your Perfect Replacement</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-the-ultimate-youtube-to-mp4-blueprint/"><u>In 2024, The Ultimate YouTube to MP4 Blueprint</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcoming-glitches-how-to-restore-voice-chat-feature-for-cod-black-ops-cold-war-players/"><u>Overcoming Glitches: How to Restore Voice Chat Feature for COD: Black Ops Cold War Players</u></a></li>
+<li><a href="https://article-posts.techidaily.com/win-top-rated-rapid-image-zoomer-for-2024/"><u>Win Top-Rated Rapid Image Zoomer for 2024</u></a></li>
+</ul></div>

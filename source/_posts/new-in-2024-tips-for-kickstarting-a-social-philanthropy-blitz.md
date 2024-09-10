@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Tips for Kickstarting a Social Philanthropy Blitz"
-date: 2024-09-04T18:27:51.474Z
-updated: 2024-09-05T18:27:51.474Z
+date: 2024-09-09T07:18:33.885Z
+updated: 2024-09-10T07:18:33.885Z
 tags: 
   - screen-recording
   - ai video
@@ -16,18 +16,54 @@ keywords: "Philanthropy Beginnings,Social Giving Tips,Blitz Charity Start,Fundra
 thumbnail: https://thmb.techidaily.com/9ad9147e4fbb8c24ccda197a0486be5c1d9c044a46c11534bd2a1352ab33e591.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Tips for Kickstarting a Social Philanthropy Blitz
 
 So, you want to run a giveaway on your Facebook page? That's a great idea! Giveaways are a great way to engage with your fans and followers, and they can also help to promote your business. But before you start posting about your giveaway, there are a few things you need to keep in mind. Here are some tips for running a successful Facebook giveaway.
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1\. Choose a giveaway prize that is relevant to your target audience
 
 ![choose giveaway prize for facebook](https://images.wondershare.com/filmora/article-images/2022/11/choose-giveaway-prize-for-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 When it comes to choosing a giveaway prize, relevant is always the best way to go. First, consider your target audience. What would they be interested in? A coffee mug with your company logo may be great for some, but if you're targeting outdoorsy types, they might prefer a hiking hat or water bottle.
 
 Really think about what your target audience would find useful or fun, and choose a prize accordingly. It'll make them more likely to enter the giveaway, and more likely to remember your brand down the line. Plus, it'll show that you're tuned into their interests - always a plus in the eyes of potential customers. So, when you're planning your next giveaway, keep relevance front and center, and you'll be sure to choose a winner.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2\. Make sure the giveaway is compliant with Facebook's rules
 
 ![facebook rules for giveaway](https://images.wondershare.com/filmora/article-images/2022/11/facebook-rules-for-giveaway.jpg)
@@ -42,41 +78,29 @@ When hosting a giveaway on Facebook, it's important to make sure that you are co
 Following these guidelines will help to ensure that your Facebook giveaway is successful and compliant with the platform's rules.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 3\. Promote your giveaway on other channels, such as your website and email list
 
 ![prompt facebook giveaway activity](https://images.wondershare.com/filmora/article-images/2022/11/prompt-facebook-giveaway-activity.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 A giveaway is a great way to generate buzz and interest in your product or service. But how do you make sure that people actually see your giveaway? One of the best ways is to promote it on other channels, such as your website or email list. This ensures that your target audience is aware of the giveaway and has a chance to enter.
 
 Additionally, you can use social media to spread the word about your giveaway. By sharing it with your followers and tagging relevant hashtags, you can reach a wider audience and increase the chances of someone taking notice. With a little effort, you can make sure that your next giveaway is a success.
 
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4\. Set a deadline for entering the giveaway
 
 ![set deadline for facebook giveaway](https://images.wondershare.com/filmora/article-images/2022/11/set-deadline-for-facebook-giveaway.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The best way to ensure that your giveaway is successful is to set a deadline for entering. This will help to create a sense of urgency and encourage people to action. It's also important to be clear about what the deadline is.
 
 For example, if you're giving away a prize every day, make sure to specify that entrants must submit their entry by 11:59 PM on the day of the drawing. Finally, don't forget to promote the deadline! Make sure that your social media posts and emails include information about when the giveaway ends.
@@ -96,39 +120,27 @@ Random selection is a fair and unbiased way to choose a winner, and it's easy to
 Whichever method you choose, selecting a winner randomly is the best way to ensure that the contest is fair.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 6\. Contact the winner and get them to provide shipping information
 
 ![contact winner to shipment](https://images.wondershare.com/filmora/article-images/2022/11/contact-winner-to-shipment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Now that you've chosen a winner for your contest, it's time to get their shipping information so you can send them their prize! The good news is that collecting this information is easy - all you need to do is contact the winner and ask for it.
 
 There are a few different ways you can contact the winner. The simplest method is to post a message on the contest page, tagging the winner in the post. This will ensure that they see your message and can respond quickly. You can also send them a direct message if you have their contact information. If not, you can always email them or give them a call.
 
 Once you've got in touch with the winner, just let them know what prize they've won and ask for their shipping address. Most people are happy to provide this information, and it shouldn't take more than a few minutes to collect everything you need. Then you can ship off the prize and everyone will be happy!
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 7\. Ship the prize to the winner
 
 ![ship the prize to the-winner](https://images.wondershare.com/filmora/article-images/2022/11/ship-the-prize-to-the-winner.jpg)
@@ -146,15 +158,33 @@ Step4 Once the label is printed out, simply attach it to the package and drop it
 By following these simple steps, you can easily ship prizes to winners without any hassle.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 8\. Announce the winner on your Facebook page
 
 ![announce winner on facebook page](https://images.wondershare.com/filmora/article-images/2022/11/announce-winner-on-facebook-page.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 It's time to announce the winners of your latest contest! Make sure to post about it on your Facebook page, and encourage the winners to post a picture with their prize mentioning your page. This is a great way to spread the word about your business and get more people interested in what you have to offer. Plus, it's always nice to give your customers a little extra something to show how much you appreciate their support.
 
 So, go ahead and announce those winners - they're sure to be thrilled, and you're sure to see an uptick in traffic and interest in no time. Thanks for playing!
@@ -163,6 +193,12 @@ So, go ahead and announce those winners - they're sure to be thrilled, and you'r
 
 ![run additional giveaways on facebook](https://images.wondershare.com/filmora/article-images/2022/11/run-additional-giveaways-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Running a giveaway is a great way to engage your fans and followers. But did you know that you can also use giveaways to keep your fans engaged? By running additional giveaways, you can keep your fans coming back for more. And the more engaged your fans are, the more likely they are to stick around.
 
 So, if you're looking for a way to keep your fans engaged, consider running additional giveaways. You may be surprised at how well it works.

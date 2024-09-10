@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Canvas and Chroma  Mastering Color Interaction\""
-date: 2024-07-11T00:58:04.874Z
-updated: 2024-07-12T00:58:04.874Z
+date: 2024-09-09T07:12:12.431Z
+updated: 2024-09-10T07:12:12.431Z
 tags: 
   - screen-recording
   - ai video
@@ -16,6 +16,18 @@ keywords: "Canvas Color Mix,Chroma Art Insight,Paint Blend Technique,Hue Harmony
 thumbnail: https://thmb.techidaily.com/499d16f8fa9d73db2896cc95dd1103614d6afb1a8c7743ea30004b41e37daeda.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Canvas and Chroma: Mastering Color Interaction
 
 So, you've heard about color theory but don't know what it is or how to use it and you may also be wondering what color theory could possibly have to do with you. We are talking about the theory of all color combinations and how they can be altered or selected to better work together creating a more pleasant viewing for your audience.
@@ -34,14 +46,38 @@ Using red, green and blue as primary colors we can mix the colors to one another
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
 These colors always work as they create contrast and stability.
@@ -56,12 +92,24 @@ You may still be unsure as to how to implement color theory into your videos. Le
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
 As you can see from this example the base color for the scene is a dark blue/purple and using the analogous color of pink they created a point of interest within the scene that doesn't look out of place. This is a very good way to pull the viewers eyes towards something you want them to take in above all else.
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 ### Conclusion
@@ -99,3 +147,46 @@ By including this into your thought process when creating videos with [Filmora](
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-unlocking-top-tier-gif-utilities-on-ios-devices/"><u>[New] 2024 Approved Unlocking Top-Tier GIF Utilities on iOS Devices</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-best-eco-savvy-movie-capture-tools-usage-methods/"><u>[New] Best Eco-Savvy Movie Capture Tools Usage Methods</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-exploring-the-potential-of-movie-maker-for-anime/"><u>[New] Exploring the Potential of Movie Maker for Anime</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-get-premium-video-openers-here/"><u>[New] Get Premium Video Openers Here</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-key-steps-for-flawless-audio-segmentation/"><u>[New] In 2024, Key Steps for Flawless Audio Segmentation</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-reinforcing-windows-photo-viewer-functionality-in-windows-10/"><u>[New] In 2024, Reinforcing Windows Photo Viewer Functionality in Windows 10</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-sound-sleuths-unite-free-beats-tracking-tools/"><u>[New] Sound Sleuths Unite! Free Beats-Tracking Tools</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-5-cloud-giants-unlimited-capacity-showdown-for-2024/"><u>[New] Top 5 Cloud Giants Unlimited Capacity Showdown for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-8-android-apps-to-change-slow-motion-videos-to-regular-speed-vide-for-2024/"><u>[New] Top 8 Android Apps to Change Slow-Motion Videos to Regular-Speed Vide for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-voice-interpretation-without-a-price-tag/"><u>[New] Voice Interpretation Without a Price Tag</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-venturing-into-virtual-steps-top-treadmill-analysis/"><u>[Updated] 2024 Approved Venturing Into Virtual Steps Top Treadmill Analysis</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-digging-into-discarded-dittos-art-exploration-tips/"><u>[Updated] Digging Into Discarded Dittos Art Exploration Tips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-boosting-your-content-visibility-with-youtubes-spotlight-channels/"><u>[Updated] In 2024, Boosting Your Content Visibility with YouTube's Spotlight Channels</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-comprehensive-compilation-of-world-class-e-learning-sites-minus-udemy/"><u>[Updated] In 2024, Comprehensive Compilation of World-Class E-Learning Sites (Minus Udemy)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-fastest-mobile-apps-for-speeding-up-sound-tracks/"><u>[Updated] In 2024, Fastest Mobile Apps for Speeding Up Sound Tracks</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-scrutinizing-software-for-video-editing-the-bandicam-camtasia-comparison/"><u>[Updated] In 2024, Scrutinizing Software for Video Editing The Bandicam-Camtasia Comparison</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-top-tricks-to-document-league-of-legends-games-efficiently/"><u>[Updated] In 2024, Top Tricks to Document League of Legends Games Efficiently</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-operational-update-troubled-obs-camera-for-2024/"><u>[Updated] Operational Update Troubled OBS Camera for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-radiance-hdr-examined-value-or-not-for-2024/"><u>[Updated] Radiance HDR Examined Value or Not for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-step-by-step-breakdown-of-vivacuts-new-tools-and-features-for-2024/"><u>[Updated] Step-by-Step Breakdown of VivaCut's New Tools and Features for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-techniques-for-capturing-wide-angle-360-photos-effortlessly/"><u>[Updated] Techniques for Capturing Wide Angle 360 Photos Effortlessly</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-novices-path-to-effective-telegram-advertising/"><u>[Updated] The Novice’s Path to Effective Telegram Advertising</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-pinnacle-of-voice-recording-a-comprehensive-tome-for-2024/"><u>[Updated] The Pinnacle of Voice Recording A Comprehensive Tome for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unveiling-enhancements-in-sonys-s6500-bdhd-player-for-2024/"><u>[Updated] Unveiling Enhancements in Sony's S6500 BD/HD Player for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/bringing-the-joy-ios-compatible-nintendo-games/"><u>Bringing the Joy: IOS Compatible Nintendo Games</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/clear-out-clutter-a-how-to-tutorial-for-deleting-apps-on-samsung-smarttvs/"><u>Clear Out Clutter: A How-To Tutorial for Deleting Apps on Samsung SmartTVs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/daily-movie-storage-hours-to-gb-calculation-for-2024/"><u>Daily Movie Storage Hours to GB Calculation for 2024</u></a></li>
+<li><a href="https://techidaily.com/hard-resetting-an-vivo-y200e-5g-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Vivo Y200e 5G Device Made Easy | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/hidden-gems-in-the-world-of-snapchat-ringtones-online-for-2024/"><u>Hidden Gems in the World of Snapchat Ringtones Online for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-how-to-turn-youtube-shorts-into-a-money-machine-key-requirements-and-income-potential/"><u>In 2024, How to Turn YouTube Shorts Into a Money Machine Key Requirements & Income Potential</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-innovative-transitions-for-professional-videos/"><u>In 2024, Innovative Transitions for Professional Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-inshot-editors-guide-to-fluid-cut-techniques/"><u>In 2024, Inshot Editor's Guide to Fluid Cut Techniques</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-proven-steps-for-choosing-an-effective-4k-camera-lens/"><u>In 2024, Proven Steps for Choosing an Effective 4K Camera Lens</u></a></li>
+<li><a href="https://article-posts.techidaily.com/master-your-image-transformation-with-complete-facetune-guide-for-2024/"><u>Master Your Image Transformation with Complete Facetune Guide for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-shrink-your-videos-10-free-online-compressors-with-no-installation/"><u>New 2024 Approved Shrink Your Videos 10 Free Online Compressors with No Installation</u></a></li>
+<li><a href="https://techtrends.techidaily.com/optimize-your-sites-performance-with-the-advanced-capabilities-of-cookiebot-technology/"><u>Optimize Your Site's Performance with the Advanced Capabilities of Cookiebot Technology</u></a></li>
+<li><a href="https://article-posts.techidaily.com/premiere-toolkit-for-app-introduction-edits-for-2024/"><u>Premiere Toolkit for App Introduction Edits for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/0-historical-youtube-viewers-treasure-trove/"><u>Top 10 Historical YouTube Viewers' Treasure Trove</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/untangling-error-28-proven-methods-to-solve-the-common-pc-glitch-in-windows-environments/"><u>Untangling Error 28: Proven Methods to Solve the Common PC Glitch in Windows Environments</u></a></li>
+</ul></div>

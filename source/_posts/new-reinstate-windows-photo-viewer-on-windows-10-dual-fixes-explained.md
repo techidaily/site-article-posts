@@ -1,0 +1,206 @@
+---
+title: "\"[New] Reinstate Windows Photo Viewer on Windows 10  Dual Fixes Explained\""
+date: 2024-09-09T07:27:51.676Z
+updated: 2024-09-10T07:27:51.676Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [New] Reinstate Windows Photo Viewer on Windows 10: Dual Fixes Explained\""
+excerpt: "\"This Article Describes [New] Reinstate Windows Photo Viewer on Windows 10: Dual Fixes Explained\""
+keywords: "Win10 Photo Viewer Fix,Reinstating WinViewer,Fixing Photo View Issue,Windows 10 Image Editor Restore,Dual Fixes for WinViewer,Photo Viewer on Win10,Restoring Windows Picture Viewer"
+thumbnail: https://thmb.techidaily.com/310ebf5ae5294b3c09bff886e3c558b63079bc0b815690abddeb6c6ade1d7933.JPG
+---
+
+## Reinstate Windows Photo Viewer on Windows 10: Dual Fixes Explained
+
+# How to Restore Windows Photo Viewer in Windows 10
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Well, with advancement in technology, everyone is upgrading to a better version of everything out there. Likewise, when [Windows Photo Viewer](https://support.microsoft.com/en-us/help/4027135/windows-10-photo-viewer) got upgraded to Windows 10 Photos and a plethora of new features got added to it.
+
+But, what if you are not keen to depart with your Windows Photo Viewer and rather do away with the Windows 10 Photos App? In order to restore Windows Photo Viewer, we have multiple solutions for you in this article.
+
+Stay tuned to learn more!
+
+* [**Part1: Why you prefer Windows Photo Viewer**](#part1)
+* [**Part2: Method 1 to restore Windows Photo Viewer**](#part2)
+* [**Part3: Method 2 to get Windows Photo Viewer back**](#part3)
+
+## Part 1: Why you prefer Windows Photo Viewer
+
+We would like to explain why most people are still not over Windows Photo Viewer? The good old Photo Viewer has quiet loyal fans out there singing its glory. This portion of the article comprises of the highs about Windows Photo Viewer.
+
+Here is why they want to restore Windows Photo Viewer –
+
+* Windows Photo Viewer offers a better UI, allowing you to get everything at the bottom of the screen. It speeds up access, whereas Windows 10 Photos UI at times hidden. Unless you move the mouse around the entire screen for switching between photos.
+* The scroll wheel enables you to precisely zoom faster.
+* There is no slide effect between images nor does it show the splash/delay screen while initiating the app. It ensures faster action sans unnecessary enhancements.
+* You can use forward or back on mouse to move to the next or previous photo.
+* You can see the photo’s name in Windows Photos Viewer.
+* Right-click allows you to access copy, open with, properties etc. option for your photos on the Windows computer.
+* You can pause to view a single picture using full-screen mode.
+* You can view the image in actual size using the UI button without any scaling.
+* There is a solid UI across the image which doesn’t cover it, but works as a nice border.
+* You can delete an image without any confirmation here.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Method 1 to restore Windows Photo Viewer
+
+The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
+
+**Step 1**: Go to ‘Settings’ and open ‘Apps’. Click on ‘Default Apps’ and check ‘Photo Viewer’. The default photo viewer will be visible here.
+
+![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
+
+**Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+## Method 2 to get Windows Photo Viewer back
+
+Here comes another way to restore Windows Photo Viewer on your computer. If your computer has been upgraded to Windows 10 from an older version, then Windows Photo Viewer might be lying around somewhere. You can retrieve it to view images.
+
+Here is the detailed guide –
+
+**Step 1** – Go to the image or picture folder on your Windows 10 computer and right click on any image. Now, choose ‘Open With’ and click on ‘Choose another app’.
+
+**Step 2** – Tap the ‘More apps’ option here in case, you can’t find out the Windows Photo Viewer within the list.
+
+**Step 3** – Keep scrolling towards the bottom of the screen to find out ‘Windows Photo Viewer’. If ‘Windows Photo Viewer’ is visible, then it has been installed there and you can use it without any problem.
+
+![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
+
+**Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
+
+![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Conclusion
+
+From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-conquer-the-skies-and-landscapes-in-a-canon-time-lapse/"><u>[New] 2024 Approved Conquer the Skies and Landscapes in a Canon Time-Lapse</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-mastering-youtube-ad-removal-chrome-firefox-android-iphone-methods/"><u>[New] 2024 Approved Mastering YouTube Ad Removal Chrome, Firefox, Android, iPhone Methods</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-complete-connoisseurs-manual-for-expertise-in-morphvox-voice-changing-for-2024/"><u>[New] Complete Connoisseur’s Manual for Expertise in MorphVOX Voice Changing for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-essential-guide-to-21-hdmi-monitors-comparative-analysis-for-2024/"><u>[New] Essential Guide to 2.1 HDMI Monitors - Comparative Analysis for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-full-circle-camera-unboxing-and-tests-for-2024/"><u>[New] Full Circle Camera Unboxing & Tests for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-generating-funny-images-through-adobe/"><u>[New] In 2024, Generating Funny Images Through Adobe</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-hilarity-in-hd-the-best-photo-editing-tools-online/"><u>[New] In 2024, Hilarity in HD The Best Photo Editing Tools Online</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-voice-change-masters-the-hottest-chromebook-extensions-for-you-for-2024/"><u>[New] Voice Change Masters The Hottest Chromebook Extensions for You for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-essential-directory-of-public-domain-gaming-melodies/"><u>[Updated] Essential Directory of Public Domain Gaming Melodies</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-essential-top-10-live-streamers-android-and-iphone-edition/"><u>[Updated] Essential Top 10 Live Streamers Android & iPhone Edition</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-how-to-optimize-your-viewing-a-guide-to-high-definition-cricket-live-streaming/"><u>[Updated] How to Optimize Your Viewing A Guide to High-Definition Cricket Live Streaming</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-ideal-audio-gear-compatible-with-cutting-edge-4k-technology-for-2024/"><u>[Updated] Ideal Audio Gear Compatible with Cutting-Edge 4K Technology for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-skyrocketing-views-tactics-for-a-100kplus-youtube-hit/"><u>[Updated] In 2024, Skyrocketing Views Tactics for a 100K+ YouTube Hit</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-complete-guide-to-digital-artistry-with-polarr-photo-tools/"><u>[Updated] In 2024, The Complete Guide to Digital Artistry with Polarr Photo Tools</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-live-broadcasts-the-most-effective-6-microphone-selections/"><u>[Updated] Mastering Live Broadcasts The Most Effective 6 Microphone Selections</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-pinnacle-montage-apps-androidiphones-creative-powerhouses-for-2024/"><u>[Updated] Pinnacle Montage Apps Android/iPhone's Creative Powerhouses for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-premium-flying-tech-available-right-now-for-2024/"><u>[Updated] Premium Flying Tech Available Right Now for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-seamless-srt-to-sub-transition-techniques-for-2024/"><u>[Updated] Seamless SRT to SUB Transition Techniques for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-full-review-of-lgs-high-definition-monitoring-experience/"><u>[Updated] The Full Review of LG's High Definition Monitoring Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-gripping-phrase-generator-device/"><u>2024 Approved Gripping Phrase Generator Device</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-securing-your-gameplay-on-windows-10-the-5-essentials/"><u>2024 Approved Securing Your Gameplay on Windows 10 The 5 Essentials</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/6-reasons-why-snapchats-my-ai-is-more-than-just-a-cool-toy/"><u>6 Reasons Why Snapchat's My AI Is More Than Just a Cool Toy</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/diy-tutorial-transform-your-mp4-videos-into-a-professional-costless-dvd-with-ease/"><u>DIY Tutorial: Transform Your MP4 Videos Into A Professional, Costless DVD with Ease</u></a></li>
+<li><a href="https://win-blog.techidaily.com/effective-solutions-for-resolving-the-2024-starfield-games-excessive-cpu-consumption/"><u>Effective Solutions for Resolving the 2024 Starfield Game's Excessive CPU Consumption</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/error-code-0x80004005-explained-quick-fixes-and-troubleshooting-tips/"><u>Error Code 0X80004005 Explained - Quick Fixes and Troubleshooting Tips</u></a></li>
+<li><a href="https://article-posts.techidaily.com/guidelines-for-effective-video-integration-in-teaching-for-2024/"><u>Guidelines for Effective Video Integration in Teaching for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-find-and-install-latest-drivers-for-your-microsoft-surface-book-2/"><u>How to Find and Install Latest Drivers for Your Microsoft Surface Book 2</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-exclusive-overlooked-the-creme-de-la-creme-mac-transcribers/"><u>In 2024, Exclusive, Overlooked The Crème De La Crème Mac Transcribers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-iphone-photo-angles-flip-and-tilt-with-skill/"><u>In 2024, Mastering iPhone Photo Angles Flip & Tilt with Skill</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-techniques-for-turning-youtube-hosted-tweets-into-audio-files/"><u>In 2024, Techniques for Turning YouTube-Hosted Tweets Into Audio Files</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/is-your-apple-iphone-14-pro-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>Is Your Apple iPhone 14 Pro in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/motion-graphics-basic-knowledge-and-usage/"><u>Motion Graphics Basic Knowledge and Usage</u></a></li>
+<li><a href="https://windows11.techidaily.com/revolutionize-your-ad-targeting-strategies-with-innovative-insights-from-cookiebot/"><u>Revolutionize Your Ad Targeting Strategies with Innovative Insights From Cookiebot</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshoot-kodi-buffering-woes-easy-steps-for-seamless-viewing/"><u>Troubleshoot Kodi Buffering Woes – Easy Steps for Seamless Viewing</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitters-video-dimensions-what-you-need-to-know-for-2024/"><u>Twitter's Video Dimensions What You Need to Know for 2024</u></a></li>
+</ul></div>
