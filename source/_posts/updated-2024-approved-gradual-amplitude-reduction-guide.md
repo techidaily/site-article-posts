@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Gradual Amplitude Reduction Guide\""
-date: 2024-07-11T00:44:50.765Z
-updated: 2024-07-12T00:44:50.765Z
+date: 2024-09-13T12:59:19.539Z
+updated: 2024-09-15T11:49:10.854Z
 tags: 
   - screen-recording
   - ai video
@@ -70,6 +70,13 @@ No matter which audio editing software, what matters is the learning outcome. Le
 
 If you want to fade out your audio in FL on your mobile phone, tap on the waveform icon which is present on the top left side of the audio. It will now open the drop-down menu where you can do automation and then select volume.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. How to crescendo in FL studio?
 
 If you want to do crescendo in FL Studio, you can apply certain automation on your volume slider and can use that for adding some dynamics. There is another way of doing this by manually changing all the notes’ velocities to the dynamics you want.
@@ -88,11 +95,31 @@ Step2 To fade audio in, you have to go to the audio setting. Then drag the point
 
 ![fade audio in](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 If you want your audio to fade out, again go to the audio setting. Then drag the pointer to the fade-out option. Now set your duration and see the fade-out effect.
 
 No matter which audio editing software, what matters is the learning outcome. Learn the features of different editing software and choose what is suitable for you. If you are a beginner, then watch some tutorial videos on YouTube and read some Quora on google. Those who are just interested in audio editing and want to learn more should first try out [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), whereas if you have a basic idea about FL Studio then you can definitely go for it.
 
 ## Related FAQs of FL Studio Audio Editing
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. How to fade out FL studio mobile?
 
@@ -128,6 +155,23 @@ Declicking is an option that helps to remove ‘Clicks’ in the beginning or en
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-the-editors-toolkit-elevating-your-video-with-inshot-transitions/"><u>[New] 2024 Approved The Editor's Toolkit Elevating Your Video with Inshot Transitions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-ultimate-guide-to-polaroid-camplus-for-action-enthusiasts/"><u>[New] 2024 Approved The Ultimate Guide to Polaroid Cam+ for Action Enthusiasts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-blending-techniques-for-seamless-picture-merging/"><u>[Updated] 2024 Approved Blending Techniques for Seamless Picture Merging</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-engaging-environments-scenery-that-sells-streaming/"><u>[Updated] 2024 Approved Engaging Environments Scenery That Sells Streaming</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-exploring-the-expense-of-youtube-channel-growth/"><u>[Updated] 2024 Approved Exploring the Expense of YouTube Channel Growth</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-streamlined-templates-the-essential-ae-text-list/"><u>[Updated] Streamlined Templates The Essential AE Text List</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/concerned-video-immediate-removal-for-copyright-violation-for-2024/"><u>Concerned Video Immediate Removal for Copyright Violation for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/digital-preservation-with-abbyy-tools-at-the-core-of-south-koreas-archival-project/"><u>Digital Preservation with ABBYY Tools at the Core of South Korea's Archival Project</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/essential-video-grabbers-for-windows-10-users/"><u>Essential Video Grabbers for Windows 10 Users</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Tecno Pova 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-samsung-galaxy-f34-5g-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Samsung Galaxy F34 5G Activity | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-best-gopro-tools-for-deep-sea-cinematography/"><u>In 2024, Best Gopro Tools for Deep-Sea Cinematography</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-itel-p55-5g-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Itel P55 5G for Parents | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-top-free-smartphone-photo-enhancers-for-stunning-iphone-selfies/"><u>In 2024, Top FREE Smartphone Photo Enhancers for Stunning iPhone Selfies</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/revamp-your-display-with-updated-ati-driver-installation-for-windows-systems/"><u>Revamp Your Display with Updated ATI Driver Installation for Windows Systems</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-the-problem-of-unresponsive-headset-connections-on-a-windows-10-pc/"><u>Solving the Problem of Unresponsive Headset Connections on a Windows 10 PC</u></a></li>
+</ul></div>
 

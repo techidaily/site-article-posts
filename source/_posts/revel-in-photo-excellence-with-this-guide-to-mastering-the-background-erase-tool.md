@@ -1,7 +1,7 @@
 ---
 title: "Revel in Photo Excellence with This Guide to Mastering the Background Erase Tool"
-date: 2024-07-11T00:39:53.524Z
-updated: 2024-07-12T00:39:53.524Z
+date: 2024-09-12T08:01:05.126Z
+updated: 2024-09-14T17:27:34.393Z
 tags: 
   - screen-recording
   - ai video
@@ -92,6 +92,13 @@ The Limit function comes with three options:
 
 ![limits function in background eraser tool](https://images.wondershare.com/filmora/article-images/2023/03/limits-function-in-background-eraser-tool.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Tolerance
 
 Located directly to the right of the Limits function, Tolerance is one of the most important options in Background Eraser, as it signifies how much a pixel's shade can vary from the sampled color for Photoshop to erase it.
@@ -112,6 +119,13 @@ Sometimes, Photoshop erases parts of your subject while removing the background,
 
 This option allows you to choose a color from your subject as a foreground color, and Photoshop will stop erasing it while you drag the brush over the image to remove the background.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. Pen Pressure
 
 Pen Pressure is helpful if you use a drawing tablet instead of a mouse. With this option selected, the crosshair opacity will be regulated based on the pressure applied with your pen on the tablet.
@@ -131,6 +145,13 @@ Adjust the size and hardness of the eraser brush by using the **Brush Preset Pic
 Step3 In the next step, set the **"Sampling Options"** to **"Once"** and **"Limits"** to **"Contiguous."** This will help you avoid erasing the wrong pixel color and remove those positioned closer to each other.
 
 ![setting the sampling options and limits in background eraser tool](https://images.wondershare.com/filmora/article-images/2023/03/setting-the-sampling-options-and-limits-in-background-eraser-tool.png)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 However, if the pixels are positioned far apart from each other, you can set the **"Limit"** option to **"Discontiguous."** While when erasing the pixels around the subject, set the **"Limits"** settings to **"Find Edges"** to ensure smooth edges.
 
@@ -157,6 +178,13 @@ To help you understand this process, we'll create a sample project (image with p
 After importing the image, when we check the **"Layers"** panel, we can see that the image is labeled as a **"Background"** layer. So now, we want to erase the pink column and keep the blue one to create a pattern.
 
 ![checking the image layer in the layers panel](https://images.wondershare.com/filmora/article-images/2023/03/checking-the-image-layer-in-the-layers-panel.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 When we select the Background Erase tool, the cursor changes to a brush that helps Photoshop to sample the colors that come under the **crosshair (Plus)** in the center of the circle. The circle around the crosshair shows the area where the software will erase the pixels (only the pixels with the same color or shades).
 
@@ -185,6 +213,13 @@ Hopefully, you find this article informative and can now easily use the Backgrou
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -228,6 +263,20 @@ Hopefully, you can use the tools in Phoshop with ease and remove images' backgro
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-simple-approach-to-getting-clownfish-voice-changer-on-windows/"><u>[New] 2024 Approved Simple Approach to Getting Clownfish Voice Changer on Windows</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-unlocking-vlcs-potential-for-mpeg-4-and-diverse-file-alterations/"><u>[New] In 2024, Unlocking VLC's Potential for MPEG-4 and Diverse File Alterations</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-instagram-reels-slow-motion-techniques-unveiled-for-2024/"><u>[New] Instagram Reels Slow-Motion Techniques Unveiled for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-15-camcorders-transforming-vlogger-content-creation-for-2024/"><u>[New] Top 15 Camcorders Transforming Vlogger Content Creation for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1726028943548-avimp4/"><u>「無料で使える、簡単インストールせずにAVIをMP4に変換するフリーアプリ」</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-compile-of-top-15-gopro-stabilizers-and-mounts/"><u>2024 Approved Compile of Top 15 GoPro Stabilizers & Mounts</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-meizu-21-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Meizu 21 Phone? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/heating-up-your-youtube-videos-with-top-winter-backdrops-for-2024/"><u>Heating Up Your YouTube Videos with Top Winter Backdrops for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-motorola-edge-2023-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Motorola Edge 2023</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-prime-stories-school-leaders-list/"><u>In 2024, Prime Stories School - Leaders List</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-nokia-150-2023-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Nokia 150 (2023)</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-15-apps-to-hack-wifi-password-on-zte-blade-a73-5g-by-drfone-android/"><u>In 2024, Top 15 Apps To Hack WiFi Password On ZTE Blade A73 5G</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-your-ipad-steps-to-resolve-wi-fi-connection-issues/"><u>Troubleshooting Your iPad: Steps to Resolve Wi-Fi Connection Issues</u></a></li>
+</ul></div>
 

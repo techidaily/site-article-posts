@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering the Art of Quantitative vs Qualitative Analysis  A Guide for Professionals\""
-date: 2024-07-11T00:33:37.722Z
-updated: 2024-07-12T00:33:37.722Z
+date: 2024-09-12T04:31:29.371Z
+updated: 2024-09-15T13:37:39.122Z
 tags: 
   - screen-recording
   - ai video
@@ -212,6 +212,13 @@ Step1 Launch Filmora on Mac and click on New Project. Add the video file and dra
 
 ![launch filmora on mac](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Click on the Media tab and import the SRT file.
 
 Step3 Right-click your cursor on the editor timeline > Choose the Advanced Edit option.
@@ -223,6 +230,13 @@ Alternatively, double-click on top of the chosen SRT file and clip it.
 Step4 Make customizations, like changing the text, editing the timecode, adjusting the font style, and merging/adding/deleting the text strips. Press OK after you are done.
 
 ![press ok after you are done](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-14.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step5 Choose the edited SRT file on the editor timeline. Right-click and choose the “Export Subtitle File” option.
 
@@ -325,6 +339,13 @@ Keep both the video you are adding the SRT into and the downloaded SRT file in o
 
 ![keep both video and srt file in one folder](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Open your video file on the VLC player by double-clicking on the movie and choosing the “Open with VLC media player” option. Or, drag and drop it into the media player. Another way is to tap on the File tab in the software and press the “Open File” option.
 
 ![tap on the file tab](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-4.jpg)
@@ -387,6 +408,19 @@ Step2 Click on the “Select Caption Files” option and press the “SELECT .SR
 
 ![press the select srt files option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-8.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Choose the output format for the file. Choose QT available in the fourth spot.
 
 ![choose the output format](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-9.jpg)
@@ -422,6 +456,13 @@ The software comes with various standard-level and advanced editing functions, i
 Step1 Launch Filmora on Mac and click on New Project. Add the video file and drag it to the timeline for editing.
 
 ![launch filmora on mac](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-12.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2 Click on the Media tab and import the SRT file.
 
@@ -473,6 +514,19 @@ URL for VLC on Mac steps/pics: <https://videoconverter.wondershare.com/subtitle/
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-a-compreayers-guide-to-selecting-a-top-4k-lens/"><u>[New] 2024 Approved A Compreayer's Guide to Selecting a Top 4K Lens</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-coffee-stain-solution-on-iphone-fast-free-and-effective/"><u>[New] 2024 Approved Coffee Stain Solution on iPhone - Fast, Free, and Effective</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-innovating-for-success-crafting-an-effective-instagram-video-marketing-blueprint/"><u>[New] In 2024, Innovating for Success Crafting an Effective Instagram Video Marketing Blueprint</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-reviewing-the-powerhouse-of-magixs-photo-toolkit/"><u>[New] In 2024, Reviewing the Powerhouse of MAGIX's Photo Toolkit</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-speedyshot-echoloop-media/"><u>[Updated] 2024 Approved SpeedyShot EchoLoop Media</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-effective-use-of-snap-camera-for-team-collaboration-for-2024/"><u>[Updated] Effective Use of Snap Camera for Team Collaboration for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-key-strategies-to-craft-persuasive-testimonials-that-resonate/"><u>[Updated] Key Strategies to Craft Persuasive Testimonials That Resonate</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-seekers-manual-a-comprehensive-approach-to-purchasing-high-definition-monitors-for-2024/"><u>[Updated] The Seeker's Manual A Comprehensive Approach to Purchasing High-Definition Monitors for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-ultimate-guide-to-top-online-tools-for-perfecting-your-video-subtitles-for-2024/"><u>[Updated] The Ultimate Guide to Top Online Tools for Perfecting Your Video Subtitles for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/avchd-on-galaxy-s24plus-convert-mts-for-galaxy-s24plus-by-aiseesoft-video-converter-play-mts-on-android/"><u>AVCHD on Galaxy S24+-convert MTS for Galaxy S24+</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-listings-for-3d-type-creation/"><u>In 2024, Ultimate Listings for 3D Type Creation</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/pros-and-cons-of-lg-k92-5g-is-upgrading-to-5g-worth-it/"><u>Pros and Cons of LG K92 5G: Is Upgrading to 5G Worth It?</u></a></li>
+</ul></div>
 

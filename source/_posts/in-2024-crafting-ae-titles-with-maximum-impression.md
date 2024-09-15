@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Crafting AE Titles with Maximum Impression"
-date: 2024-07-11T00:29:35.039Z
-updated: 2024-07-12T00:29:35.039Z
+date: 2024-09-14T08:44:50.666Z
+updated: 2024-09-15T13:50:32.434Z
 tags: 
   - screen-recording
   - ai video
@@ -49,6 +49,13 @@ After Effects has “Enable per-character 3D” property to all Z axis to applic
 
 Rotation is one of the most commonly used parameters in text animations. There are unlimited variations of text animations and effects that you can create using rotation parameter in After Effects. The rotation takes place in proportion to the anchor points of the text. When you change the value of Rotation parameter, the actual rotation takes place around the anchor points.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Scale and Position
 
 If you want to zoom in and zoom out animation for your text or title, you can use the Scale property in After Effects. You can use keyframes and for each keyframe, you can adjust the scale value and create an illustration of zooming in and out very easily.
@@ -72,6 +79,19 @@ If you want your text to be distorted and unusual, the skew parameter is there f
 ### 7\. Tracking
 
 Tracking refers to the spacing between the characters in a word for a text. You must have seen so many different types of text animations where the spacing between the characters is changing. You can create amazing funny and eye-catching text effects in After Effects by combining tracking and keyframe properly. Along with tracking, there is line anchor that determines the alignment of tracking. Similarly, there is line spacing parameter that controls the spacing between the lines.
+
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8\. Keyframe
 
@@ -121,6 +141,13 @@ Step4 Go to Animation section and click on Advanced button. Change different par
 
 ![add animation text in filmora](https://images.wondershare.com/filmora/article-images/2022/09/add-animation-text-in-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4\. Related FAQs of Title Effects in After Effects
 
 #### 1\. How do you make 3D text in After Effects?
@@ -148,6 +175,13 @@ After Effects has “Enable per-character 3D” property to all Z axis to applic
 ### 2\. Rotation and Anchor Point
 
 Rotation is one of the most commonly used parameters in text animations. There are unlimited variations of text animations and effects that you can create using rotation parameter in After Effects. The rotation takes place in proportion to the anchor points of the text. When you change the value of Rotation parameter, the actual rotation takes place around the anchor points.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Scale and Position
 
@@ -178,6 +212,13 @@ Tracking refers to the spacing between the characters in a word for a text. You 
 Keyframe is like stretching two points into multiple points and for every point, you can change the value of the different parameters we have mentioned. When different keyframes have different parameters, the text will automatically animate once you play the video.
 
 Therefore, keyframes are the building blocks for text animations and you have to use keyframes to create all the different online text effects. You can put the keyframes far apart or close and speed up or slow down the animation.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2\. How to Edit Text Effects in Videos with AE
 
@@ -257,6 +298,20 @@ Motion title is a dynamic text effect template available in After Effects throug
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-best-websites-to-access-text-styling-resources/"><u>[New] 2024 Approved Best Websites to Access Text Styling Resources</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-fast-track-uncovering-erased-reddit-conversations-for-2024/"><u>[New] Fast Track Uncovering Erased Reddit Conversations for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-fundamentals-of-managing-volume-increase-in-projects/"><u>[New] Fundamentals of Managing Volume Increase in Projects</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-empowering-audiences-the-playlist-sharing-approach/"><u>[Updated] In 2024, Empowering Audiences The Playlist Sharing Approach</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-virtual-realms-deconstructed-insights-into-vr-ar-and-mr-for-2024/"><u>[Updated] Virtual Realms Deconstructed Insights Into VR, AR, and MR for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-fix-jvmdll-not-found-or-missing-errors/"><u>How to Fix Jvm.dll Not Found or Missing Errors</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-iphoneipad-premium-podcast-recording-tips/"><u>In 2024, Mastering iPhone/iPad Premium Podcast Recording Tips</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-the-complete-guide-to-hand-tracking-and-its-types/"><u>In 2024, The Complete Guide To Hand Tracking And Its Types</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721479495880-itunes-or-finder-not-recognizing-your-iphone-heres-the-fix/"><u>ITunes or Finder Not Recognizing Your iPhone? Here's the Fix!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/master-the-art-of-resetting-your-iphone-techniques-for-immediate-power-off-and-initiating-recovery-settings/"><u>Master the Art of Resetting Your iPhone: Techniques for Immediate Power-Off and Initiating Recovery Settings</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-the-art-of-selective-unfollows-a-guide-to-cutting-ties-with-previous-twitter-users/"><u>Mastering The Art of Selective Unfollows: A Guide To Cutting Ties With Previous Twitter Users</u></a></li>
+<li><a href="https://article-posts.techidaily.com/optimizing-zoom-videos-essential-3-part-methodology/"><u>Optimizing Zoom Videos Essential 3-Part Methodology</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/pace-perfection-on-instagram-a-guide-to-tempo-tweaks/"><u>Pace Perfection on Instagram A Guide to Tempo Tweaks</u></a></li>
+</ul></div>
 

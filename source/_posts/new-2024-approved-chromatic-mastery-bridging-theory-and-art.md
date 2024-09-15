@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Chromatic Mastery  Bridging Theory and Art\""
-date: 2024-07-11T00:41:29.229Z
-updated: 2024-07-12T00:41:29.229Z
+date: 2024-09-13T17:58:56.400Z
+updated: 2024-09-14T20:34:56.219Z
 tags: 
   - screen-recording
   - ai video
@@ -62,7 +62,27 @@ As you can see from this example the base color for the scene is a dark blue/pur
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -96,6 +116,21 @@ By including this into your thought process when creating videos with [Filmora](
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-top-6-online-background-cleansers-for-pristine-photo-edits/"><u>[New] In 2024, Top 6 Online Background Cleansers for Pristine Photo Edits</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-perfect-windows-photos-implementing-sound-and-visual-filters-guide-for-2024/"><u>[New] Perfect Windows Photos Implementing Sound & Visual Filters Guide for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-10-groundbreaking-final-cut-pro-extensions/"><u>[Updated] 2024 Approved 10 Groundbreaking Final Cut Pro Extensions</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-palette-excellence-editor/"><u>[Updated] 2024 Approved Palette Excellence Editor</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-detailed-guide-to-whatsapps-audio-chat-features/"><u>[Updated] Detailed Guide to WhatsApp's Audio Chat Features</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-cross-dimensional-analysis-understanding-the-metaverse-vs-omniverse/"><u>[Updated] In 2024, Cross-Dimensional Analysis Understanding the Metaverse Vs. Omniverse</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-top-8-recommendations-tripods-for-sharp-4k-images/"><u>[Updated] In 2024, Top 8 Recommendations Tripods for Sharp 4K Images</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/2-ways-to-monitor-apple-iphone-x-activity-drfone-by-drfone-virtual-ios/"><u>2 Ways to Monitor Apple iPhone X Activity | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/best-titles-google-cardboards-most-immersive-vr-games/"><u>Best Titles Google Cardboard's Most Immersive VR Games</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/expert-tips-to-correctly-update-and-maintain-acpisys-files-in-windows-10/"><u>Expert Tips to Correctly Update and Maintain ACPI.sys Files in Windows 10</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-14-plus-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 14 Plus without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-fix-skype-messages-not-sending-solved/"><u>How to Fix Skype Messages Not Sending [Solved]</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-new-horizons-in-graphic-design-post-acid/"><u>In 2024, New Horizons in Graphic Design Post-ACID</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/seamless-video-editing-in-windows-10-without-expensive-software/"><u>Seamless Video Editing in Windows 10 Without Expensive Software</u></a></li>
+</ul></div>
 

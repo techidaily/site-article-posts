@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Seamless Methodology  Viewing Favorited and Well-Liked YouTube Remarks\""
-date: 2024-07-11T00:45:13.247Z
-updated: 2024-07-12T00:45:13.247Z
+date: 2024-09-12T17:29:46.224Z
+updated: 2024-09-14T18:19:33.969Z
 tags: 
   - screen-recording
   - ai video
@@ -115,6 +115,13 @@ This article tells you that you can't see who liked or disliked a comment, but y
 
 In this image, the following comments only got likes and no dislikes. That is why there are just written numbers on the like button and on the dislike button there are none.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Respond to Comments
 
 Don't ignore someone who has questioned you or written you a heartfelt note. Keep the conversation (and engagement) going by responding to comments.
@@ -147,6 +154,13 @@ Because understanding how to comment is only one aspect of the issue; very impor
 
 Try making a joke, pointing out something amusing, providing helpful information, or expressing sympathy or concern for a fan. Additionally, a simple thumbs-up or heart can go a long way to demonstrate that you are paying attention even if you aren't feeling very friendly (we all have bad days, it's OK!).
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Did you know what a Highlighted comment is?
 
 A highlighted comment on YouTube aims to draw the content creator's attention with an automated feature.
@@ -162,6 +176,13 @@ Additionally, video creators can manually highlight commenters to mark them for 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to See Liked Comments on YouTube?
 
@@ -181,9 +202,29 @@ Step1 Click on your Google Account icon and find **Your data in YouTube**.
 
 ![find your data in youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-your-data-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Scroll down a little bit and click the **More** button.
 
 ![your youtube dashboard more](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-dashboard-more.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 Click the **Comments** section.
 
@@ -279,6 +320,20 @@ Additionally, video creators can manually highlight commenters to mark them for 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/updated-budget-drone-selection-the-ultimate-list-for-(100/"><u>[Updated] Budget Drone Selection The Ultimate List for <$100</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-punpictures-pro-jestjokes-network/"><u>[Updated] In 2024, PunPictures Pro JestJokes Network</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-art-and-science-of-writing-smart-slug-lines/"><u>[Updated] The Art and Science of Writing Smart Slug Lines</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-insiders-guide-to-finesse-and-control-on-insta-stories/"><u>[Updated] The Insider's Guide to Finesse and Control on Insta Stories</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-simplicity-your-guide-to-direct-signup-buttons-for-2024/"><u>[Updated] Unlocking Simplicity Your Guide to Direct Signup Buttons for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/cold-war-in-cod-black-ops-pc-troubleshooting-guide-no-more-crashes-updated/"><u>Cold War in COD: Black Ops PC Troubleshooting Guide - No More Crashes (Updated )</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-sift-through-these-top-9-online-portals-of-intricate-3d-letterforms/"><u>In 2024, Sift Through These Top 9 Online Portals of Intricate 3D Letterforms</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-realme-c67-5g-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Realme C67 5G Phones</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-what-you-want-to-know-about-two-factor-authentication-for-icloud-on-your-apple-iphone-8-by-drfone-ios/"><u>In 2024, What You Want To Know About Two-Factor Authentication for iCloud On your Apple iPhone 8</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-usb-wi-fi-dongles-for-seamless-internet-connectivity/"><u>Leading USB Wi-Fi Dongles for Seamless Internet Connectivity</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/pazera-free-audio-extractor-review-2024/"><u>Pazera Free Audio Extractor Review 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-xiaomi-redmi-note-12-pro-4g-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Xiaomi Redmi Note 12 Pro 4G ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-photos-on-google-pixel-7a-without-backup-by-fonelab-android-recover-photos/"><u>The way to recover deleted photos on Google Pixel 7a without backup.</u></a></li>
+</ul></div>
 

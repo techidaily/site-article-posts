@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Speech-to-Text Magic in Your Next Presentation\""
-date: 2024-07-11T00:30:26.345Z
-updated: 2024-07-12T00:30:26.345Z
+date: 2024-09-11T19:05:53.263Z
+updated: 2024-09-15T09:52:50.783Z
 tags: 
   - screen-recording
   - ai video
@@ -67,6 +67,19 @@ It is easy to use PowerPoint on a Mac after activating the **“dictation”** b
 
 ![more commands and other options](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-5.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Reselect the option to “**all commands**.” The “all commands” should be enabled because they include many other commands, but you may not activate the options without selecting them.
 
 ![reselect the option](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-6.jpg)
@@ -74,6 +87,13 @@ It is easy to use PowerPoint on a Mac after activating the **“dictation”** b
 * From “all commands,” locate the speak option and add the option. Upon selection, the microphone button appears on the home screen of the PowerPoint.
 
 ![locate the speak option](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Use the speak option**
 
@@ -125,6 +145,13 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 
 [Make PPT Videos](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Use Filmora STT to make PowerPoint videos translation
 
 ##### Step 1
@@ -132,6 +159,13 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 Select the audio asset in the timeline, and click the "Speech-to-Text" icon in the toolbar; if there is no supported file type on the timeline, it will not be displayed.
 
 ![toolbar stt](https://images.wondershare.com/filmora/guide/guide-win/toolbar-stt.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step 2
 
@@ -152,6 +186,19 @@ No. The feature is free for all registered users on PowerPoint.
 ### **Do you need an additional microphone?**
 
 You can use your device's in-built microphone. However, you may need external gear for efficiency.
+
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Is speech-to-text better than typing?**
 
@@ -182,6 +229,18 @@ Speech-to-text is an additional feature for all users. Typing is, however, the d
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-enrich-ppt-content-with-soundtracks-for-2024/"><u>[New] Enrich PPT Content with Soundtracks for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-phones-speed-up-sound-essential-app-listing/"><u>[Updated] 2024 Approved Phones’ Speed Up Sound Essential App Listing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-winning-artistry-expedited-execution-of-edits-on-photos-in-windows-10/"><u>[Updated] 2024 Approved Winning Artistry Expedited Execution of Edits on Photos in Windows 10</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-drones-unveiled-a-comprehensive-buyers-preparation-plan/"><u>[Updated] Drones Unveiled A Comprehensive Buyer’s Preparation Plan</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/evaluating-the-portable-nvme-ssd-by-pny-solid-functionality-that-lacks-distinction/"><u>Evaluating the Portable NVMe SSD by PNY: Solid Functionality that Lacks Distinction</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-tecno-pova-5-pro-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Tecno Pova 5 Pro For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-social-synergy-from-insta-to-the-world-of-tiktok/"><u>In 2024, Social Synergy From Insta to the World of TikTok</u></a></li>
+<li><a href="https://facebook.techidaily.com/integrating-digital-platforms-into-company-culture/"><u>Integrating Digital Platforms Into Company Culture</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/maximize-performance-with-cooler-masters-breakthrough-in-thermal-management-aio-and-air-coolers-designed-to-handle-300wplus-heat-load/"><u>Maximize Performance with Cooler Master's Breakthrough in Thermal Management: AIO and Air Coolers Designed to Handle 300W+ Heat Load</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/strategies-to-address-microsoft-store-error-0x80073cf3/"><u>Strategies to Address Microsoft Store Error 0X80073cf3</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Hidden Echoes to Silence  Audacity's Technique Guide\""
-date: 2024-07-11T00:31:47.778Z
-updated: 2024-07-12T00:31:47.778Z
+date: 2024-09-08T23:00:38.544Z
+updated: 2024-09-15T11:30:14.115Z
 tags: 
   - screen-recording
   - ai video
@@ -46,9 +46,23 @@ Choose your audio segment, go to the Effect menu, slide to the bottom, and pick 
 
 ![studio fade out audacity](https://images.wondershare.com/filmora/article-images/2022/07/studio-fade-out-audacity.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. Adjustable Fade
 
 A dialog box will show up on the screen when you choose the customizable fade option. You may customize the form and pattern of the fading using that dialog box. You may use this ability to make partial fades if you'd like. You must maintain the tracks stacked one on top of the other with the lower track underneath the higher track and its end overlapping when employing this form of fade.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Steps to Use Adjustable Fade:**
 
@@ -89,6 +103,13 @@ In the step that follows, we'll show you how to use this platform to fade in and
 
 ![open filmora and import audio files](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 By choosing the Video Editor option from the software's home screen, you may now investigate the basic principles of editing. This will bring up the main interface for Filmora. To import your music and video files, just choose the Import button from the software's main screen, as seen below:
 
 ##### Step3 Open the Audio Editor in Filmora
@@ -102,6 +123,13 @@ You must drag the files into Filmora's timeline after importing your media files
 The first step in this process is to learn how to use Filmora to start fading in and out your audio recordings. The best aspect of Filmora is how simple it is to employ these techniques from the timeline. To achieve this, focus on the audio file that you want to change in the timeline; after you've picked it, the two icons will show up above the audio file. Drag the first one to the desired duration for the audio fade-in option, as demonstrated:
 
 ![fade in or fade out audio](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 To finish the fade-out, click and drag the other icon in Filmora to the necessary duration. You may hear the music by playing the file within the timeline of the Filmora preview layout.
 
@@ -134,6 +162,13 @@ By choosing the Video Editor option from the software's home screen, you may now
 You must drag the files into Filmora's timeline after importing your media files, as seen below. You may modify your media files using every tool in the timeline. To utilize Filmora's audio editor, just right-click on the specific audio file and choose "Edit Audio" from the list:
 
 ![open the audio editor in filmora](https://images.wondershare.com/filmora/guide/adjust-video-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step4 Fade-in/fade-out audio
 
@@ -175,6 +210,15 @@ You may access a variety of tools and services on the platform known as Audacity
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-capture-the-world-with-these-leading-4k-cams-for-2024/"><u>[New] Capture the World with These Leading 4K Cams for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-from-start-to-finish-seamless-editing-with-kinemaster/"><u>[Updated] From Start to Finish Seamless Editing with Kinemaster</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-charting-the-peak-1-shorter-videos-downloader-hub/"><u>[Updated] In 2024, Charting the Peak #1 Shorter Videos Downloader Hub</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-premier-tools-for-image-transformation-framecraft-pro/"><u>[Updated] In 2024, Premier Tools for Image Transformation FrameCraft Pro</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/best-ways-to-get-background-stock-images-for-photos-and-videos-for-2024/"><u>Best Ways to Get Background Stock Images for Photos and Videos for 2024</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/explore-the-latest-in-computing-discover-whats-new-at-toms-hardware/"><u>Explore the Latest in Computing: Discover What's New at Tom's Hardware!</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/undetected-backdoor-discovered-how-a-security-glitch-endangers-amd-cpu-users-with-stealthy-malware/"><u>Undetected Backdoor Discovered: How a Security Glitch Endangers AMD CPU Users with Stealthy Malware</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unveiling-youtubes-earnings-blueprint-for-2024/"><u>Unveiling YouTube’s Earnings Blueprint for 2024</u></a></li>
+</ul></div>
 

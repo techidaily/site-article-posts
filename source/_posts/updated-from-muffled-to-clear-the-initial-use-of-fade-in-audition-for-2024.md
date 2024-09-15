@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Muffled to Clear  The Initial Use of Fade in Audition for 2024\""
-date: 2024-07-11T00:40:18.808Z
-updated: 2024-07-12T00:40:18.808Z
+date: 2024-09-07T22:45:17.639Z
+updated: 2024-09-14T19:16:39.285Z
 tags: 
   - screen-recording
   - ai video
@@ -78,9 +78,23 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ## Part 3\. Related FAQs
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. How do you do a master fade in Audition?
 
@@ -111,6 +125,13 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. Related FAQs
 
 ### 1\. How do you fade in multitrack in Audition?
@@ -124,6 +145,13 @@ Select the option of amplifying the effects i.e., amplitude and compression. Do 
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -155,6 +183,19 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-cutting-edge-design-top-5-3d-intro-makers/"><u>[New] 2024 Approved Cutting-Edge Design Top 5 3D Intro Makers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-unlocking-success-with-the-right-instagram-video-dimensions/"><u>[New] 2024 Approved Unlocking Success with the Right Instagram Video Dimensions</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-sj7s-pioneering-star-4k-camera-the-ultimate-guide-for-action-filmmakers/"><u>[New] In 2024, SJ7's Pioneering Star 4K Camera - The Ultimate Guide for Action Filmmakers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-transform-your-photos-removing-backdrops-with-ease/"><u>[New] In 2024, Transform Your Photos Removing Backdrops with Ease</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-best-5-multitasking-visual-and-audio-producers/"><u>[Updated] 2024 Approved Best 5 Multitasking Visual & Audio Producers</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-capturing-velocity-hero-4-versus-ghost-s-racing/"><u>[Updated] Capturing Velocity Hero 4 Versus Ghost-S Racing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-upside-down-visuals-unraveling-instagram-video-confusion/"><u>[Updated] In 2024, Upside Down Visuals Unraveling Instagram Video Confusion</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-pinnacle-of-3d-entertainment-premium-blu-ray-decks/"><u>[Updated] Pinnacle of 3D Entertainment Premium Blu-Ray Decks</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-pushing-boundaries-the-complete-breakdown-of-vce-22/"><u>[Updated] Pushing Boundaries The Complete Breakdown of VCE 2.2</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-your-youtube-content-with-right-camera-gear-for-2024/"><u>Enhancing Your YouTube Content with Right Camera Gear for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-15-plus-passcode-without-computer-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 15 Plus Passcode without Computer?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Xiaomi Redmi K70? | Dr.fone</u></a></li>
+</ul></div>
 
