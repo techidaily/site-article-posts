@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Reducing Loudness Gradually  Techniques for Logic Pro Users\""
-date: 2024-07-11T00:28:18.312Z
-updated: 2024-07-12T00:28:18.312Z
+date: 2024-09-17T18:36:47.315Z
+updated: 2024-09-20T19:22:44.803Z
 tags: 
   - screen-recording
   - ai video
@@ -78,6 +78,13 @@ Step3 Additionally, you will always have the option to change the level, which i
 
 ![edit music logic pro](https://images.wondershare.com/filmora/article-images/2022/07/edit-music-logic-pro.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2\. Logic Pro X Alternative to Fade Audio
 
 Logic Pro has long been the preferred choice for audio editors who can afford a Mac, but what if your whole workflow is dependent on Microsoft Windows? Logic Pro X isn't now and won't likely be anytime soon accessible for Windows. As a result, you must consider Logic Pro alternatives for Windows, and [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is among the top Logic Pro X replacements. It has one of the nicest user interfaces out there.
@@ -120,10 +127,16 @@ In the final touch, if you are content with the way your voice has evolved, now 
 
 Apple's Logic Pro X is not compatible with Windows-based computers. Therefore, if you want the Logic Pro experience on Windows and Mac as well, you have [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) as an alternate choice. Everything in the suite, including various effects and composition tools, is included. In conclusion, Filmora is highly feature-rich and enables you to carry out a range of activities, such as crossfading, composition, recording, editing, mixing, and posting to social media sites. Therefore, Filmora is your best option if you want to completely experience a DAW on Windows and Mac.
 
-
 ## Part 1\. Ways to Fade Audio with Logic Pro X
 
 The tool may be used in your productions to help you conclude songs gradually and create more seamless transitions between different parts of your project. In Logic, there are several ways to create fades, but the two most popular methods are automation and the fade tool. The appropriate course of action will vary depending on several variables that we shall discuss later in this piece.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 1: Employ an Automation Tool
 
@@ -137,9 +150,23 @@ Step2 Enter the required value for your fade in the Fade Out section by clicking
 
 ![fade out section logic pro](https://images.wondershare.com/filmora/article-images/2022/07/fade-out-section-logic-pro.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Create an automation curve on the produced fade using the Curve section if you'd like. For greater control, you may add a curve to your fading automation. To achieve this, choose the Automation Curve Tool by clicking on the Tool Selector at the top of the Arrangement View. Then, left-click and drag your automation point up or down between the points.
 
 ![automation curve logic pro](https://images.wondershare.com/filmora/article-images/2022/07/automation-curve-logic-pro.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2: Employ the Fade-Out Tool
 
@@ -205,6 +232,13 @@ To achieve this, focus on the audio file that you want to change in the timeline
 
 ![use audio fade out](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step4 Export Your Fade Out Video
 
 In the final touch, if you are content with the way your voice has evolved, now may be the ideal time to maintain it or even record it. There is support for all widely used video and audio formats, including MP3\. Click "Export" and choose the appropriate file format from the Local menu as shown below to do this. The parameters as indicated below allow you to alter the ultimate location of the altered audio file:
@@ -235,6 +269,16 @@ Apple's Logic Pro X is not compatible with Windows-based computers. Therefore, i
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-creating-thriving-giveaways-a-facebook-marketers-blueprint/"><u>[New] 2024 Approved Creating Thriving Giveaways A Facebook Marketer's Blueprint</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-best-obs-settings-for-low-end-pcs-for-2024/"><u>[New] Best OBS Settings for Low-End PCs for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-elevating-your-ar-projects-with-custom-downloadable-luts/"><u>[New] In 2024, Elevating Your AR Projects with Custom, Downloadable LUTS</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-vertical-sweep-capturing-broader-views-on-the-go-for-2024/"><u>[New] Vertical Sweep Capturing Broader Views On-the-Go for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/1-seamless-conversion-techniques-transforming-drm-protected-azw-files-into-compatible-epub-format/"><u>1. Seamless Conversion Techniques: Transforming DRM-Protected AZW Files Into Compatible EPUB Format</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-revolutionizing-remote-work-selecting-the-best-live-streamers/"><u>2024 Approved Revolutionizing Remote Work Selecting the Best Live Streamers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/harnessing-lut-power-for-free-high-quality-colorization/"><u>Harnessing LUT Power for Free, High-Quality Colorization</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-iphone-passcode-again-unlock-apple-iphone-6s-without-passcode-now-drfone-by-drfone-ios/"><u>In 2024, Forgot iPhone Passcode Again? Unlock Apple iPhone 6s Without Passcode Now | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/remove-the-lock-screen-fingerprint-of-your-motorola-moto-e13-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Motorola Moto E13</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Google's AR Sticker Innovation  An Inside Look & Alternatives\""
-date: 2024-07-11T00:19:53.605Z
-updated: 2024-07-12T00:19:53.605Z
+date: 2024-09-17T17:41:04.038Z
+updated: 2024-09-20T19:04:45.382Z
 tags: 
   - screen-recording
   - ai video
@@ -122,6 +122,13 @@ Step4 Suppose there is more than one video clip, and you're combining them. Tap 
 
 ![adding transition effects on filmora for iphone](https://images.wondershare.com/filmorago/article-image/tap-junction-of-video-to-preview-transition-effects-on-ar-video-filmorago.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 Preview the video. If you're already satisfied, tap "EXPORT" to save and share.
 
 ![previewing or exporting ar video](https://images.wondershare.com/filmorago/article-image/preview-ar-video-and-export-it.jpg)
@@ -164,6 +171,13 @@ Filmora for Mobile's AR Camera feature has many things to offer. It lets you tak
 
 The best thing about Filmora AR Camera is it lets you record multiple videos with different AR stickers. Filmora for Mobile will automatically combine and arrange them.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Use Filmora AR Camera To Record a Video
 
 Here's a tutorial on how to record an AR video & how to edit an AR selfie video on iPhone.
@@ -176,9 +190,23 @@ Step2 Tap the "Camera" button on the right panel.
 
 ![ar camera option on filmora iphone](https://images.wondershare.com/filmorago/article-image/camera-icon-on-filmorago.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Tap the "Frame" icon at the top right to adjust the video ratio. It's also how you switch between the front and rear cameras.
 
 ![changing canvas size on filmora](https://images.wondershare.com/filmorago/article-image/frame-icon-on-filmorago-camera.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 Select "Props" from the options at the bottom of the screen. Select the AR effect that you want to use.
 
@@ -193,6 +221,13 @@ Step6 You'll see the video you recorded on the left side of the screen. Tap the 
 Step7 Preview your video, edit as needed, and export it.
 
 ![exporting recorded video on filmora iphone](https://images.wondershare.com/filmorago/article-image/trim-the-animoji-video-you-record-on-filmorago.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### To Edit an AR Selfie Video on iPhone
 
@@ -264,6 +299,18 @@ Google AR Stickers are great for enhancing your photos and videos. Too bad it's 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-crafting-compelling-narratives-with-wmm-and-animation-techniques/"><u>[New] Crafting Compelling Narratives with WMM and Animation Techniques</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-essential-iospc-video-changers-the-ultimate-list-for-2024/"><u>[New] Essential iOS/PC Video Changers The Ultimate List for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-high-quality-fullscreen-recorders-for-desktops/"><u>[Updated] 2024 Approved High-Quality Fullscreen Recorders for Desktops</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-navigating-through-virtual-realms-with-headgear/"><u>[Updated] 2024 Approved Navigating Through Virtual Realms with Headgear</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-professional-photography-hacks-top-cinematic-tips-for-2024/"><u>[Updated] Professional Photography Hacks Top Cinematic Tips for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-navigating-dual-display-the-netflix-floating-window-guide/"><u>2024 Approved Navigating Dual Display The Netflix Floating Window Guide</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/exploring-fintech-advances-with-abbyy-at-the-handelsblatt-yearly-banking-tech-summit/"><u>Exploring Fintech Advances with ABBYY at the Handelsblatt Yearly Banking Tech Summit</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/free-canon-scanners-driver-downloads-for-windows-compatibility-guides-included/"><u>Free Canon Scanners Driver Downloads for Windows - Compatibility Guides Included</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-from-apple-iphone-7-plus-to-iphone-8x11-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer from Apple iPhone 7 Plus to iPhone 8/X/11 | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-imaginary-giggles-generate-with-kapwings-maker/"><u>In 2024, Imaginary Giggles Generate with Kapwing's Maker</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-unlock-new-possibilities-filmora-x-adds-arm-support/"><u>Updated 2024 Approved Unlock New Possibilities Filmora X Adds ARM Support</u></a></li>
+</ul></div>
 

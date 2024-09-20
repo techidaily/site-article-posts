@@ -1,7 +1,7 @@
 ---
 title: "\"Perfecting Presentation  Adding Fonts to AE Projects\""
-date: 2024-09-13T18:10:37.154Z
-updated: 2024-09-15T07:45:54.212Z
+date: 2024-09-16T18:35:34.935Z
+updated: 2024-09-20T20:23:33.623Z
 tags: 
   - screen-recording
   - ai video
@@ -78,23 +78,9 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -104,10 +90,10 @@ These features also include adding texts and changing the fonts of those texts o
 * After you are done, click "save" and the text effects will be added to your videos successfully.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -124,12 +110,26 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
 * If you want to add any opener (Intro) or end credits (outro) to your video, then there are plenty of options available in the "Title" tab. You can apply them by clicking on the "apply" button.
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -159,19 +159,15 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-vimeo-star-moment-analysis/"><u>[New] 2024 Approved Vimeo Star Moment Analysis</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-6-best-video-translators-to-translate-a-video-for-2024/"><u>[New] 6 Best Video Translators to Translate a Video for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-essential-tips-for-simple-hdr-mastery/"><u>[New] Essential Tips for Simple HDR Mastery</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-prime-collection-must-try-virtual-reality-games-for-google-cardboard-for-2024/"><u>[New] Prime Collection Must-Try Virtual Reality Games for Google Cardboard for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-navigating-the-clouds-of-video-editing-best-drones-tools-ranked/"><u>[Updated] In 2024, Navigating the Clouds of Video Editing Best Drones Tools Ranked</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-vivo-y02t-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Vivo Y02T Fingerprint Lock</u></a></li>
-<li><a href="https://facebook.techidaily.com/covert-circles-hide-your-fb-connections/"><u>Covert Circles: Hide Your Fb Connections</u></a></li>
-<li><a href="https://article-posts.techidaily.com/dive-into-virtual-realities-with-up-to-date-android-tips-for-2024/"><u>Dive Into Virtual Realities with Up-to-Date Android Tips for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/hassle-free-fixes-ensuring-uninterrupted-gaming-in-outriders/"><u>Hassle-Free Fixes: Ensuring Uninterrupted Gaming in Outriders</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>How To Use Special Features - Virtual Location On Apple iPhone 6? | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-15-popular-youtube-intro-video-templates/"><u>In 2024, 15 Popular YouTube Intro Video Templates</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Samsung Galaxy A34 5G | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-10-best-tools-to-bypass-icloud-activation-lock-from-apple-iphone-11-pro-max-you-should-try-out-by-drfone-ios/"><u>In 2024, The 10 Best Tools to Bypass iCloud Activation Lock From Apple iPhone 11 Pro Max You Should Try Out</u></a></li>
-<li><a href="https://article-posts.techidaily.com/techniques-to-boost-periscope-live-video-speed-for-2024/"><u>Techniques to Boost Periscope Live Video Speed for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-breakdown-fundamental-aspects-of-asmr-videos/"><u>[New] 2024 Approved Breakdown Fundamental Aspects of ASMR Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-convert-srt-free-top-10-web-subtitle-services/"><u>[New] Convert SRT Free Top 10 Web Subtitle Services</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-leveraging-visual-storytelling-in-podcast-trailer-production-for-2024/"><u>[New] Leveraging Visual Storytelling in Podcast Trailer Production for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-affordable-cloud-keep-optimal-pricing-for-huge-archives-for-2024/"><u>[Updated] Affordable Cloud Keep Optimal Pricing for Huge Archives for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-iosandroid-leading-photo-writing-app-list-for-2024/"><u>[Updated] IOS/Android Leading Photo-Writing App List for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/a-comprehensive-guide-to-recording-screens-on-your-mac-with-movavi-step-by-step-insights/"><u>A Comprehensive Guide to Recording Screens on Your Mac with Movavi - Step-by-Step Insights</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-practices-snatching-supreme-photos-for-free/"><u>Best Practices Snatching Supreme Photos for Free</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-the-art-of-resumes-tips-on-crafting-yours-with-chatgpt/"><u>Mastering the Art of Resumes: Tips on Crafting Yours with ChatGPT</u></a></li>
+<li><a href="https://common-error.techidaily.com/minimizing-high-gpu-usage-with-windows-11s-desktop-window-manager-effective-techniques/"><u>Minimizing High GPU Usage with Windows 11'S Desktop Window Manager: Effective Techniques</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-era-of-racing-vr-bike-selection-guide/"><u>New Era of Racing VR Bike Selection Guide</u></a></li>
 </ul></div>
 

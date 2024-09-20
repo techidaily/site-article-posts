@@ -1,7 +1,7 @@
 ---
 title: "\"Hues in Harmony  Applying Color Principles for 2024\""
-date: 2024-07-11T00:17:54.916Z
-updated: 2024-07-12T00:17:54.916Z
+date: 2024-09-17T16:56:01.173Z
+updated: 2024-09-20T18:58:09.890Z
 tags: 
   - screen-recording
   - ai video
@@ -62,7 +62,27 @@ As you can see from this example the base color for the scene is a dark blue/pur
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -96,6 +116,23 @@ By including this into your thought process when creating videos with [Filmora](
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-next-gen-learning-vrs-educational-impact/"><u>[New] 2024 Approved Next-Gen Learning VR's Educational Impact</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-fuel-fascination-with-imagery-the-most-motivating-ig-shots/"><u>[New] In 2024, Fuel Fascination with Imagery The Most Motivating IG Shots</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-masters-list-best-sierra-dvd-software/"><u>[New] Master's List Best Sierra DVD Software</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-streamlining-your-process-tools-and-tricks-for-smooth-broadcasting-for-2024/"><u>[New] Streamlining Your Process Tools and Tricks for Smooth Broadcasting for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-tips-and-tricks-how-to-choose-a-winner-amongst-360-degree-cameras/"><u>[Updated] 2024 Approved Tips & Tricks How to Choose a Winner Amongst 360-Degree Cameras</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-charting-new-territories-innovations-in-office-spaces-for-enhanced-output/"><u>[Updated] Charting New Territories Innovations in Office Spaces for Enhanced Output</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-premium-web-audio-solutions-guidebook-top-7-2023/"><u>[Updated] In 2024, Premium Web Audio Solutions Guidebook Top 7 2023</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/canva-meme-generator/"><u>Canva Meme Generator</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-journey-from-photographic-moments-to-sequential-videos/"><u>In 2024, Journey From Photographic Moments to Sequential Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-scoop-up-10-memes-that-balance-humor-with-heartfelt-emotions/"><u>In 2024, Scoop Up 10 Memes That Balance Humor with Heartfelt Emotions</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-vivo-s17-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/interactive-illusions-vr-storytelling/"><u>Interactive Illusions VR Storytelling</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/1714946823524-new-2024-approved-best-spotify-ripper-how-to-rip-music-from-spotify/"><u>New 2024 Approved Best Spotify Ripper How to Rip Music From Spotify?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/premium-assessment-of-parrots-second-gen-model-20-for-2024/"><u>Premium Assessment of Parrot's Second-Gen Model 2.0 for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/superior-sound-swap-technology-the-top-free-option-for-valorant-gamers-for-2024/"><u>Superior Sound Swap Technology The Top Free Option for Valorant Gamers for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-revamp-your-footage-top-free-online-video-quality-improvement-tools/"><u>Updated 2024 Approved Revamp Your Footage Top Free Online Video Quality Improvement Tools</u></a></li>
+</ul></div>
 

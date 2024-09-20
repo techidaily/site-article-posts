@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Shades & Tints in Action  Practical Application\""
-date: 2024-09-12T19:15:02.216Z
-updated: 2024-09-14T21:51:39.755Z
+date: 2024-09-13T16:48:09.868Z
+updated: 2024-09-20T19:59:09.741Z
 tags: 
   - screen-recording
   - ai video
@@ -55,24 +55,18 @@ The blue lines represent what is known as split contrasting colors and these wil
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## But How Do I Use This
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
@@ -83,10 +77,10 @@ As you can see from this example the base color for the scene is a dark blue/pur
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -123,18 +117,13 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2023s-leading-pc-vr-headsets-revealed-for-2024/"><u>[New] 2023'S Leading PC VR Headsets Revealed for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-achieving-soft-sound-dissolution-in-audacity-for-2024/"><u>[New] Achieving Soft Sound Dissolution in Audacity for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-prime-practices-for-streaming-live-cricket-events/"><u>[Updated] 2024 Approved Prime Practices for Streaming Live Cricket Events</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-transform-your-youtube-footage-into-cinematic-delight-with-imovie-expertise/"><u>[Updated] 2024 Approved Transform Your YouTube Footage Into Cinematic Delight with iMovie Expertise</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-windowsmac-compatibility-for-srt-extensions/"><u>[Updated] 2024 Approved Windows/Mac Compatibility for SRT Extensions</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-premier-top-eight-for-unparalleled-4k-viewing/"><u>2024 Approved Premier Top Eight for Unparalleled 4K Viewing</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-journey-back-to-gaming-roots-comprehensive-review-of-nintendos-game-and-watch-with-super-mario-bros/"><u>A Journey Back to Gaming Roots: Comprehensive Review of Nintendo's Game & Watch with 'Super Mario Bros.'</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-motorola-edge-40-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Motorola Edge 40 Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-oneplus-nord-ce-3-5g-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your OnePlus Nord CE 3 5G to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/how-to-fix-missing-windows-11-full-screen-on-monitor/"><u>How to Fix Missing Windows 11 Full Screen on Monitor</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Xiaomi Civi 3 | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/premier-top-eight-for-unparalleled-4k-viewing-for-2024/"><u>Premier Top Eight for Unparalleled 4K Viewing for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/utilizing-zoom-to-upgrade-tiktok-video-aesthetics-for-2024/"><u>Utilizing Zoom to Upgrade TikTok Video Aesthetics for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-cheapest-alternatives-to-androids-facetime/"><u>[New] Cheapest Alternatives to Android's FaceTime</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-crystalvision-pro-screen-capturing-101/"><u>[New] CrystalVision Pro Screen Capturing 101</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-premium-pickers-best-websites-to-secure-snapalert-music/"><u>[Updated] 2024 Approved Premium Pickers Best Websites to Secure SnapAlert Music</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-decadal-list-of-prime-meme-concepts/"><u>In 2024, Decadal List of Prime Meme Concepts</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-samsung-galaxy-f34-5g-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Samsung Galaxy F34 5G FRP</u></a></li>
+<li><a href="https://article-posts.techidaily.com/lone-listeners-conundrum-cure-method/"><u>Lone Listener's Conundrum Cure Method</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-iphone-xr-data-from-ios-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone XR Data From iOS iCloud | Dr.fone</u></a></li>
 </ul></div>
 

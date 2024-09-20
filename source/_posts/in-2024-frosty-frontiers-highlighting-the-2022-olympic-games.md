@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Frosty Frontiers  Highlighting the 2022 Olympic Games\""
-date: 2024-07-11T00:12:57.945Z
-updated: 2024-07-12T00:12:57.945Z
+date: 2024-09-17T18:39:30.828Z
+updated: 2024-09-20T19:36:06.649Z
 tags: 
   - screen-recording
   - ai video
@@ -54,6 +54,13 @@ Born in America, Eileen Gu represented China at Winter Olympics and managed to w
 
 ![eileen gu wins gold](https://images.wondershare.com/filmora/article-images/us-born-eileen-gu-wins-gold-for-china.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
 
 ## 5\. Van der Poel Breaks the World Record
@@ -63,6 +70,13 @@ Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year
 ![van poel breaks the world record](https://images.wondershare.com/filmora/article-images/van-poel-breaks-the-world-record.jpg)
 
 Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Yan Wengang Wins China's First Medal in Sliding Sport
 
@@ -80,13 +94,34 @@ The competitiveness of Wengwang has made him the first medalist for China in men
 
 With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 8\. Ukrainian Athlete Shows ‘No War' Sign During Skeleton Event
 
 We are all aware of the tensions between Ukraine and Russia are at their peak and there are many experts who believe the countries are on the verge of declaring war. Even though The Winter Olympics should have ideally been an apolitical event, Ukrainian skeleton athlete Vladyslav Heraskevych flashed a sign that read “No War in Ukraine” to spark a political controversy.
 
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 9\. American Favorite Out of the Tournament
 
@@ -121,6 +156,23 @@ However, due to some miscommunication, she was allowed to be a participant in th
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-get-ready-to-win-more-with-this-purely-gratis-voice-modifier/"><u>[New] 2024 Approved Get Ready to Win More with This Purely Gratis Voice Modifier</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-the-ultimate-guide-to-podcast-post-production-in-garageband/"><u>[New] In 2024, The Ultimate Guide to Podcast Post-Production in GarageBand</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-tips-to-nail-every-green-screen-scene-for-2024/"><u>[New] Top Tips to Nail Every Green Screen Scene for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-leading-the-field-in-remotely-recorded-content-creation/"><u>2024 Approved Leading the Field in Remotely Recorded Content Creation</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/achieve-professional-finishes-avoid-blisters-and-pimples-in-your-3d-prints/"><u>Achieve Professional Finishes: Avoid Blisters & Pimples in Your 3D Prints</u></a></li>
+<li><a href="https://article-posts.techidaily.com/immerse-projects-in-audible-experience-via-premiere-pro/"><u>Immerse Projects in Audible Experience via Premiere Pro</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-on-itel-a60-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Itel A60 FRP Bypass</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-vivo-y55s-5g-2023-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Vivo Y55s 5G (2023) Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/infinix-note-30-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Infinix Note 30 Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-audiovisual-archive-top-10-digital-destinations-for-sound-track-download-for-2024/"><u>New Audiovisual Archive Top 10 Digital Destinations for Sound Track Download for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-lost-data-from-oppo-find-x7-by-fonelab-android-recover-data/"><u>Recover lost data from Oppo Find X7</u></a></li>
+<li><a href="https://article-posts.techidaily.com/step-by-step-tutorial-crafting-photo-videos-in-pixiz/"><u>Step-by-Step Tutorial Crafting Photo Videos in Pixiz</u></a></li>
+<li><a href="https://article-posts.techidaily.com/superior-pcmacos-users-choice-best-8-uhd-video-player-for-2024/"><u>Superior PC/MacOS Users' Choice Best 8 UHD Video Player for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/synthesize-stellar-titles-using-ai-insights-for-2024/"><u>Synthesize Stellar Titles Using AI Insights for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/toms-tech-insights-in-depth-hardware-reviews-and-news/"><u>Tom's Tech Insights: In-Depth Hardware Reviews and News</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unleash-energy-selecting-the-ultimate-workout-melodies/"><u>Unleash Energy Selecting the Ultimate Workout Melodies</u></a></li>
+</ul></div>
 

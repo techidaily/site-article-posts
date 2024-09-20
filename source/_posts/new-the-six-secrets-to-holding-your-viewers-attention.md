@@ -1,7 +1,7 @@
 ---
 title: "[New] The Six Secrets to Holding Your Viewers' Attention"
-date: 2024-09-09T04:21:59.040Z
-updated: 2024-09-15T04:11:19.995Z
+date: 2024-09-13T17:35:20.873Z
+updated: 2024-09-20T19:45:58.610Z
 tags: 
   - screen-recording
   - ai video
@@ -61,13 +61,6 @@ How-to videos are an effective way to show your audience how to use your product
 * Ask questions in the beginning of the video that people can answer themselves at the end of the video or ask them to do something afterwards (e.g., "If you had one hour to make a purchase decision, what would you buy?").
 * Make sure there are visuals to support your points (e.g., if you're talking about how something works, show some images and animations).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Example: How to Asana: Event planning
 
 <https://www.youtube.com/watch?v=sh819O3khKE>
@@ -80,11 +73,31 @@ Testimonial videos work because they tell a story. When you tell a story, you ca
 
 ![customer stories or testimonials](https://images.wondershare.com/filmora/article-images/2022/07/customer-stories-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Key elements of an effective testimonial videos**
 
 * Give context - Describe the audience for your testimonial and give context around its significance. This will help viewers understand the value of your work, why it's important to them, and how it can help them achieve their goals.
 * Tell a story - To make your video more impactful, tell a story about how your product or service has impacted someone's life or made a positive change in their business. Make sure to include personal anecdotes from other people who have used your product or service to illustrate this point, if possible.
 * Show the results - People love seeing results! Showing real-life examples of how others have benefited from using your products is the best way to prove that they're worth investing in. If possible, include photos or videos from before and after projects so viewers can see exactly how much they've changed since using your product or service — that way they won't just be reading about it.
+
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Example: Click Funnels: What Is It and What Makes It So Different
 
@@ -99,16 +112,10 @@ Not only do they provide an opportunity for you to show off your product in all 
 ![product demonstrations](https://images.wondershare.com/filmora/article-images/2022/07/product-demo-video.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Key elements of an effective product demonstration video:**
@@ -123,10 +130,10 @@ Not only do they provide an opportunity for you to show off your product in all 
 <https://www.youtube.com/watch?v=N-Z8eCYZod8>
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Interviews with experts
@@ -142,13 +149,6 @@ Interviews with experts are a great way to add credibility and authority to your
 * Ask your expert questions that will allow them to explain their answer in detail without being interrupted by you.
 * Allow time for the expert to respond to your questions and ask follow-up questions if necessary.
 * End the interview on a positive note and thank your expert for taking time out of their schedule to share their knowledge with others via video or audio recording (if possible).
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Example: What Is Branding? 4 Minute Crash Course
 
@@ -171,10 +171,16 @@ Animated explainer videos are usually created using the same principles as any o
 * It should have a professional look and feel that makes it unique from other videos on the same topic.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Example: MacBook Air — Online Ad — The fastest yet (Stickers)
@@ -215,18 +221,21 @@ Are you using video to promote your products or services? If not, you should be!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-the-top-10-frugal-video-communication-platforms-catering-to-corporate-and-educational-needs/"><u>[New] 2024 Approved The Top 10 Frugal Video Communication Platforms Catering to Corporate & Educational Needs</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-the-ultimate-compendium-of-vr-glove-technology/"><u>[New] 2024 Approved The Ultimate Compendium of VR Glove Technology</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-natural-filmmaking-compiling-the-best-free-screen-templates-for-cinephiles-for-2024/"><u>[New] Natural Filmmaking Compiling the Best Free Screen Templates for Cinephiles for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-securely-accessing-your-fb-status-video/"><u>[New] Securely Accessing Your FB Status Video</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-sharp-images-no-fog-protecting-gopro-quality/"><u>[New] Sharp Images, No Fog Protecting GoPro Quality</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-conquering-video-design-challenges-with-filmora-tips/"><u>[Updated] Conquering Video Design Challenges with Filmora Tips</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-first-steps-for-joining-online-video-chats-google-meet/"><u>[Updated] In 2024, First Steps for Joining Online Video Chats (Google Meet)</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-high-end-photo-overlays-for-creative-texting/"><u>[Updated] In 2024, High-End Photo Overlays for Creative Texting</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-joining-the-zoom-community-with-ease-on-an-android-device-for-2024/"><u>[Updated] Joining the Zoom Community with Ease on an Android Device for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-motorola-moto-g84-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Motorola Moto G84 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/a-compreenas-guide-to-leveraging-ps-background-erasure-for-professional-results-for-2024/"><u>A Compreenas Guide to Leveraging PS Background Erasure for Professional Results for 2024</u></a></li>
-<li><a href="https://os-tips.techidaily.com/top-strategies-for-erasing-browsing-history-from-mobile-devices/"><u>Top Strategies for Erasing Browsing History From Mobile Devices</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unlocking-the-door-on-stuck-wow-61-patches/"><u>Unlocking the Door on Stuck WoW 6.1 Patches</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-top-5-best-lightweight-action-cameras/"><u>[New] 2024 Approved Top 5 Best Lightweight Action Cameras</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-cut-cost-and-clutter-together-top-45-best-free-apps-for-saving-videos-on-android/"><u>[New] Cut Cost and Clutter Together Top 45 Best Free Apps for Saving Videos on Android</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-dissecting-video-production-mastery-with-xmedia-studio-suite-for-2024/"><u>[New] Dissecting Video Production Mastery with XMedia Studio Suite for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-tamil-tunes-steps-for-ringtones-and-editing-songs-as-alerts-for-2024/"><u>[New] Tamil Tunes Steps for Ringtones & Editing Songs as Alerts for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-pinnacle-studio-25-review-2023/"><u>[Updated] 2024 Approved Pinnacle Studio 25 Review 2023</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-comprehensive-guide-to-enhancing-footage-in-gopro-studio/"><u>[Updated] Comprehensive Guide to Enhancing Footage in GoPro Studio</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-transform-your-feed-a-comprehensive-guide-to-videos-for-2024/"><u>[Updated] Transform Your Feed A Comprehensive Guide to Videos for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/jp2jpeg-movavi/"><u>簡単なスクリプトで自由にJP2形式をJPEGに変換 - Movavi</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-most-effective-non-adobe-tools-to-supercharge-your-upcoming-artistic-endeavors/"><u>Discover the Most Effective Non-Adobe Tools to Supercharge Your Upcoming Artistic Endeavors</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-guide-to-unlock-your-itel-p55-by-drfone-android/"><u>Full Guide to Unlock Your Itel P55</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>How to Stop My Spouse from Spying on My Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-essential-steps-for-cropping-images-on-websites/"><u>In 2024, Essential Steps for Cropping Images on Websites</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-master-the-hectic-editing-and-organizing-bulky-tiktok-drafts/"><u>In 2024, Master the Hectic Editing and Organizing Bulky TikTok Drafts</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/troubleshooting-tips-how-to-enable-and-watch-mov-files-on-android-smartphones-and-tablets/"><u>Troubleshooting Tips: How to Enable and Watch Mov Files on Android Smartphones and Tablets</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Tecno Camon 20 Premier 5G? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Sculpting Textual Space with AI's Powerful Features"
-date: 2024-07-11T00:23:08.713Z
-updated: 2024-07-12T00:23:08.713Z
+date: 2024-09-13T19:22:14.696Z
+updated: 2024-09-20T20:01:56.431Z
 tags: 
   - screen-recording
   - ai video
@@ -90,9 +90,23 @@ Step3 Double-click on the 3D title layer you dragged into the Timeline. When the
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -111,6 +125,13 @@ Step1 Download Filmora and run the program. Once it opens, click on **New Projec
 Step2 Head to the **Titles** tab and search for the **“3D Illustration**” title. Then, drag it into the Timeline. You can also find several other 3D titles. If you like another one better, drag that one instead of the one we mentioned here.
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
@@ -146,6 +167,18 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/omprehensive-tutorial-on-youtube-annotation-for-2024/"><u>[New] Comprehensive Tutorial on Youtube Annotation for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-instantaneous-subscriber-tracking/"><u>[New] Instantaneous Subscriber Tracking</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/trategic-video-collaborations-for-viewership-increase/"><u>[New] Strategic Video Collaborations for Viewership Increase</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-crafting-captivating-stories-15-best-snapchat-techniques/"><u>[Updated] 2024 Approved Crafting Captivating Stories 15 Best Snapchat Techniques</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-amplify-your-iphone-films-with-free-audio-additions-discover-three-ways/"><u>[Updated] Amplify Your iPhone Films with Free Audio Additions – Discover Three Ways</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-structuring-stimulating-podcast-sneak-peeks/"><u>[Updated] In 2024, Structuring Stimulating Podcast Sneak Peeks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/full-disclosure-inside-djis-next-gen-drone-inspire-2-for-2024/"><u>Full Disclosure Inside DJI's Next Gen Drone - Inspire 2 for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/get-the-latest-gigabyte-network-adapter-drivers-download-now/"><u>Get the Latest Gigabyte Network Adapter Drivers - Download Now!</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-the-quintessential-collection-of-anime-intros/"><u>In 2024, The Quintessential Collection of Anime Intros</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unlocking-youtube-videos-a-guide-to-sequential-viewing/"><u>Unlocking YouTube Videos A Guide to Sequential Viewing</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unveiling-secrets-to-amazing-photo-collages-for-2024/"><u>Unveiling Secrets to Amazing Photo Collages for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Mastering Media Importer Strategies in Windows 10\""
-date: 2024-07-11T00:24:37.416Z
-updated: 2024-07-12T00:24:37.416Z
+date: 2024-09-15T17:04:03.021Z
+updated: 2024-09-20T17:32:47.316Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,13 @@ If you are moving photos and video to Windows 10 from a smartphone, you will fir
 
 Your phone will have settings regarding file transfers when it is connected to a computer. Make sure that media viewing and transferring is selected, which will allow Windows 10 File Explorer on the computer to recognize your device.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 3: Import Photos and Videos
 
 Now that your phone is recognized, you should see the camera or phone pop up along with your hard drives and other external drives. You can right click on its icon, select “Import Photos and Videos” and proceed from there.
@@ -66,6 +73,13 @@ Go to Start -> All Apps -> Photos and open it up. Your phone or camera should be
 Click the Import button on the Photos app and choose the items that you want to import. When you have selected all the items you want, click on continue and then import. All your files will be added onto your computer and they will be visible within the Photos app.
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-photos-app.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Within the app, it is easy to see your photos and videos as they are organized based on the date they are imported. So you will be able to see exactly what you have added in the most recent imports and with future imports as well.
 
@@ -89,11 +103,25 @@ Connect the camera to your phone and then follow the above steps to import your 
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 If you own a Windows 10 desktop or laptop, it is very easy to connect a smartphone or digital camera to your computer. Then you will be able to use File Explorer or the built in Photos app to access and download your photos and videos. Adding your content to the computer lets you save the files, share them with friends, edit them using programs like Photoshop, or save space on your smartphone/camera.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -118,6 +146,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-chat-commander-the-ultimate-guide-to-text-from-voice/"><u>[New] Chat Commander The Ultimate Guide to Text From Voice</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-easy-audio-extraction-methods-from-online-videos/"><u>[Updated] In 2024, Easy Audio Extraction Methods From Online Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-prowl-these-top-ranked-sites-for-generous-vector-imagery-access-for-2024/"><u>[Updated] Prowl These Top-Ranked Sites for Generous Vector Imagery Access for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-trimming-techniques-understanding-video-crops-in-imovie/"><u>[Updated] Trimming Techniques Understanding Video Crops in iMovie</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unlocking-11-pros-window-secrets-for-2024/"><u>[Updated] Unlocking 11 Pro's Window Secrets for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/crucial-considerations-before-investing-in-restored-notebooks/"><u>Crucial Considerations Before Investing in Restored Notebooks</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-reset-itunes-backup-password-of-apple-iphone-15-pro-max-prevention-and-solution-drfone-by-drfone-ios/"><u>In 2024, Reset iTunes Backup Password Of Apple iPhone 15 Pro Max Prevention & Solution | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-understanding-how-asmr-can-benefit-your-life/"><u>In 2024, Understanding How ASMR Can Benefit Your Life</u></a></li>
+<li><a href="https://article-posts.techidaily.com/mastering-mixer-streams-on-macos-a-step-by-step-guide-for-2024/"><u>Mastering Mixer Streams on macOS A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/optimal-introduction-editor-software-apps/"><u>Optimal Introduction Editor Software (Apps)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/text-tips-enhancing-image-descriptions-for-pcmac-users/"><u>Text Tips Enhancing Image Descriptions for PC/Mac Users</u></a></li>
+<li><a href="https://article-posts.techidaily.com/top-10-must-have-accessories-for-sj4000-for-2024/"><u>Top 10 Must Have Accessories for SJ4000 for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unveiling-top-editors-perfect-entries-any-device-for-2024/"><u>Unveiling Top Editors Perfect Entries, Any Device for 2024</u></a></li>
+</ul></div>
 

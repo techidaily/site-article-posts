@@ -1,7 +1,7 @@
 ---
 title: "\"[New] End-to-End Camera Rotation Explained for 2024\""
-date: 2024-07-11T00:27:52.923Z
-updated: 2024-07-12T00:27:52.923Z
+date: 2024-09-16T18:19:21.726Z
+updated: 2024-09-20T16:46:25.993Z
 tags: 
   - screen-recording
   - ai video
@@ -52,6 +52,19 @@ thumbnail: https://thmb.techidaily.com/bf32c159170edbc355c721b22ee8ee6c67dda36fe
 
  There are other 3D camera configurations where the camera records an image, then the lens shifts slightly before another image is recorded, all happening within a fraction of a second, to result into two different views. Other 3D cameras on the other hand will use a stitching software to put together all the images to create a three dimensional image.
 
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. How Do 3D Cameras Work
 
 ![3D camera principal](https://images.wondershare.com/filmora/article-images/3d-camera-principle.png)
@@ -68,6 +81,13 @@ thumbnail: https://thmb.techidaily.com/bf32c159170edbc355c721b22ee8ee6c67dda36fe
 
  It is also important to note that most of the 3D cameras take photos or images and save them in the standard MPO format to make it possible for the images to be played back in 3D photo frames or TVs, but to view such images in 3D, a special 3D glass may be needed.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## About 360-Degree Cameras
 
 ### 1.What is 360-Degree Camera
@@ -79,6 +99,13 @@ thumbnail: https://thmb.techidaily.com/bf32c159170edbc355c721b22ee8ee6c67dda36fe
  With the normal cameras, the field of view ranges from a few degrees to at most 180 degrees. It implies that the camera capture light falling into its focal point through a hemisphere. A 360-degree camera on the other hand captures light from all directions falling onto its focal point, thus effectively covering a full sphere. One important thing to note about 360-degree cameras is that in practice, they can only cover the full 360 degrees along the equator of the sphere and this is never the case with the top or the bottom of the sphere. Should it manage to capture the top and the bottom as well, then the light rays captured in the creation of the image will not intersect at one focal point.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -103,6 +130,21 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-unlock-smooth-communication-best-10-secured-fee-free-apps-for-ios-and-android-users/"><u>[New] In 2024, Unlock Smooth Communication Best 10 Secured, Fee-Free Apps for iOS and Android Users</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-mac-users-manual-recording-high-quality-audio-with-audacity-for-2024/"><u>[New] Mac Users' Manual Recording High-Quality Audio with Audacity for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unleashing-creativity-a-guide-to-innovative-gopro-video-editing-for-2024/"><u>[New] Unleashing Creativity A Guide to Innovative GoPro Video Editing for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-premier-ios-platform-for-psp-emulation-1-5/"><u>[Updated] 2024 Approved Premier iOS Platform for PSP Emulation #1-5</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-top-15-cinematic-tools-for-gopro-videos-and-films/"><u>[Updated] 2024 Approved Top 15 Cinematic Tools for GoPro Videos and Films</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-unmatched-action-footage-top-7-best-camcorders/"><u>[Updated] 2024 Approved Unmatched Action Footage Top 7 Best Camcorders</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unleash-creative-potential-the-ultimate-hdr-guide/"><u>[Updated] Unleash Creative Potential The Ultimate HDR Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/delving-deep-into-affordable-high-quality-lut-landscapes-for-2024/"><u>Delving Deep Into Affordable High-Quality LUT Landscapes for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/discover-your-film-community-on-letterboxd-the-hidden-social-hub-for-movie-lovers/"><u>Discover Your Film Community on Letterboxd: The Hidden Social Hub for Movie Lovers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/1716465636075-get-superior-visuals-from-youtube-downloading-thumbnails-free/"><u>Get Superior Visuals From YouTube - Downloading Thumbnails Free!</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-easy-steps-making-time-lapses-on-galaxy-phones/"><u>In 2024, Easy Steps Making Time-Lapses on Galaxy Phones</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/instant-illusions-mastering-time-lapse-photography-on-samsung-for-2024/"><u>Instant Illusions Mastering Time-Lapse Photography on Samsung for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/mastering-the-update-of-intel-nuc-drivers-in-minutes-a-comprehensive-tutorial/"><u>Mastering the Update of Intel NUC Drivers in Minutes - A Comprehensive Tutorial</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/navigate-the-world-of-tech-expert-reviews-from-toms-hardware/"><u>Navigate the World of Tech: Expert Reviews From Tom's Hardware</u></a></li>
+</ul></div>
 

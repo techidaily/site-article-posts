@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Art of Elegance in Design with Canva's Hidden Tips"
-date: 2024-07-11T00:14:59.236Z
-updated: 2024-07-12T00:14:59.236Z
+date: 2024-09-14T19:07:11.431Z
+updated: 2024-09-20T19:59:56.081Z
 tags: 
   - screen-recording
   - ai video
@@ -42,6 +42,13 @@ Other interesting effects include BadTV, through which you can add cinematic and
 
 ![search and apply filters](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Add Text to Images
 
 Do you like to post Instagram or Facebook stories with catchy captions embedded in them? Canva photo editor online gives you huge and diverse options to add text on the images with fancy styles and colors. You can add an aligned text by adjusting it to various angles such as right, left, or center. Afterward, you can select the font, color, and style of your added text through finger swipes.
@@ -66,6 +73,13 @@ To create an eye-catchy YouTube thumbnail, use the “Highlight Effect” from t
 
 ![attractive youtube thumbnails](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Add Different Elements
 
 Another amazing feature of the Canva image editor is to add numerous elements to the photos effortlessly. You can add stickers, GIFs, and graphics to make an impactful photo. This tool stands out in adding elements to the images as it consists of more than 90 million graphics and stickers. Through their pre-made templates and in-built library, you can get creative ideas to design your image.
@@ -74,11 +88,25 @@ Hence, explore various stickers and graphics from this platform and instantly ap
 
 ![add different canva elements](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. Make Photo Collage
 
 Photo collage combines all of our favorite and preferred photos in a single frame, and viewers can see all the combined photos in a single place. Canva photo editor online allows the users to make photo collages by merging their photos with a single click. You can add different frames to the images and can apply filters, effects, stickers, and typography. So, combine all of your cherishing memories in a single frame and share it with your friends and family members.
 
 ![make photo collage in canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8\. Design Mockups
 
@@ -101,6 +129,19 @@ What makes the photos look more captivating? It’s a simple rule to play with c
 Moreover, you can use filters and color palettes that match well with your theme. Moreover, you can stylize the image for a magazine cover by mixing color ranges and layers through this exceptional tool. It sounds perfect!
 
 ![play with picture colors canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-10.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -128,6 +169,20 @@ Anyone can learn photo editing skills if they are provided with accurate guideli
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-breaking-records-olympics-showcase-for-short-tracks-for-2024/"><u>[New] Breaking Records Olympics Showcase for Short Tracks for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-essential-guide-to-androids-best-video-editors/"><u>[New] In 2024, The Essential Guide to Android's Best Video Editors</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-six-secrets-to-holding-your-viewers-attention/"><u>[New] The Six Secrets to Holding Your Viewers' Attention</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-are-there-legal-constraints-in-capturing-online-video-screenshots-in-2024/"><u>[Updated] Are There Legal Constraints in Capturing Online Video Screenshots, In 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-how-to-use-whiteboard-in-zoom-meeting/"><u>[Updated] How to Use Whiteboard in Zoom Meeting</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-system-specs-to-elevate-your-big-sur-experience/"><u>[Updated] In 2024, System Specs to Elevate Your Big Sur Experience</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-photography-tutorial-how-to-shoot-and-create-impressive-hdr-portraits/"><u>[Updated] Photography Tutorial How to Shoot and Create Impressive HDR Portraits</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-unmatched-warfare-the-hunt-for-top-fps-games-for-2024/"><u>[Updated] Unmatched Warfare The Hunt for Top FPS Games for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/exploring-periscopes-offerings-no-cost-entry-and-signup-process/"><u>Exploring Periscope's Offerings No Cost Entry & Signup Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-a-story-on-facebook/"><u>How to Delete a Story on Facebook</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-motorola-moto-g-5g-2023-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Motorola Moto G 5G (2023) to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/stream-like-a-pro-top-5-cams-revolutionizing-live-broadcasts-on-twitch-for-2024/"><u>Stream Like a Pro Top 5 Cams Revolutionizing Live Broadcasts on Twitch for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/streamlined-driver-update-win32-officejet-pro-8600-utility-bundle/"><u>Streamlined Driver Update: Win32 Officejet Pro 8600 Utility Bundle</u></a></li>
+</ul></div>
 

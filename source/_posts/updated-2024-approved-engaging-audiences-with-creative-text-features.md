@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Engaging Audiences with Creative Text Features\""
-date: 2024-07-11T00:21:35.614Z
-updated: 2024-07-12T00:21:35.614Z
+date: 2024-09-17T19:26:17.111Z
+updated: 2024-09-20T20:07:01.495Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ If you want to zoom in and zoom out animation for your text or title, you can us
 
 There are different variations of zoom in and out effect that you can try on your text and title to make animation creative and visually appealing. On the other hand, position refers to the location of the text on the video frame depending on X, Y, and Z axis values.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Blur and Opacity
 
 You must have seen the text animation where the blurry text comes into focus and this can be achieved using Blur parameter. Many people confused Blur with Opacity but blur refers to out of focus while opacity can be understood by fade in and fade out effect. You can adjust the horizontal and vertical blur amount separately and you can come up with stunning text animations by changing Blur value.
@@ -78,6 +85,13 @@ Tracking refers to the spacing between the characters in a word for a text. You 
 Keyframe is like stretching two points into multiple points and for every point, you can change the value of the different parameters we have mentioned. When different keyframes have different parameters, the text will automatically animate once you play the video.
 
 Therefore, keyframes are the building blocks for text animations and you have to use keyframes to create all the different online text effects. You can put the keyframes far apart or close and speed up or slow down the animation.
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2\. How to Edit Text Effects in Videos with AE
 
@@ -117,6 +131,13 @@ Step3 Double-click on the text layer on the timeline to edit the text preset. Yo
 
 ![text preset settings filmora](https://images.wondershare.com/filmora/article-images/2022/09/text-preset-settings-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Go to Animation section and click on Advanced button. Change different parameters under Customize section such as Blue, Opacity, Shadow, and much more. You can create keyframes on the timeline like AE and edit parameters as per your preference.
 
 ![add animation text in filmora](https://images.wondershare.com/filmora/article-images/2022/09/add-animation-text-in-filmora.jpg)
@@ -149,11 +170,25 @@ After Effects has “Enable per-character 3D” property to all Z axis to applic
 
 Rotation is one of the most commonly used parameters in text animations. There are unlimited variations of text animations and effects that you can create using rotation parameter in After Effects. The rotation takes place in proportion to the anchor points of the text. When you change the value of Rotation parameter, the actual rotation takes place around the anchor points.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Scale and Position
 
 If you want to zoom in and zoom out animation for your text or title, you can use the Scale property in After Effects. You can use keyframes and for each keyframe, you can adjust the scale value and create an illustration of zooming in and out very easily.
 
 There are different variations of zoom in and out effect that you can try on your text and title to make animation creative and visually appealing. On the other hand, position refers to the location of the text on the video frame depending on X, Y, and Z axis values.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Blur and Opacity
 
@@ -257,6 +292,21 @@ Motion title is a dynamic text effect template available in After Effects throug
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-shield-your-snapshots-from-times-tide-explore-cost-effective-solutions/"><u>[New] 2024 Approved Shield Your Snapshots From Time's Tide - Explore Cost-Effective Solutions</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-trending-on-twitter-unpacking-top-10-tiktok-videos/"><u>[New] 2024 Approved Trending on Twitter Unpacking Top 10 TikTok Videos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-ultimate-list-of-low-cost-desktop-encoder-software/"><u>[New] 2024 Approved Ultimate List of Low-Cost Desktop Encoder Software</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-leading-websites-for-acoustic-phone-alerts/"><u>[New] In 2024, Leading Websites for Acoustic Phone Alerts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-taking-the-first-steps-towards-vr-technology-mobile-based-headsets-vs-cabled-gear/"><u>[New] In 2024, Taking the First Steps Towards VR Technology Mobile-Based Headsets Vs. Cabled Gear</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snapchat-for-mac-users-install-and-enjoy-for-2024/"><u>[New] Snapchat for MAC Users - Install and Enjoy for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-streamline-overload-efficiently-editing-oversized-tiktok-drafts/"><u>[Updated] 2024 Approved Streamline Overload Efficiently Editing Oversized TikTok Drafts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-inside-microsofts-visionary-hololens-innovation-for-2024/"><u>[Updated] Inside Microsoft's Visionary HoloLens Innovation for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-official-konica-minolta-drivers-and-utilities-for-windows-xpvista781011/"><u>Download Official Konica Minolta Drivers & Utilities for Windows XP/Vista/7/8/10/11</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/fix-excel-formula-not-showing-result-stellar-by-stellar-guide/"><u>Fix Excel formula not showing result | Stellar</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-tecno-phantom-v-flip-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Tecno Phantom V Flip Location Settings | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-pictures-from-honor-90-by-fonelab-android-recover-pictures/"><u>Possible solutions to restore deleted pictures from Honor 90.</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/actics-to-increase-youtube-traffic-and-views-for-2024/"><u>SEO Tactics to Increase YouTube Traffic and Views for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/windows-11-tips-for-effective-sound-recording/"><u>Windows 11 Tips for Effective Sound Recording</u></a></li>
+</ul></div>
 

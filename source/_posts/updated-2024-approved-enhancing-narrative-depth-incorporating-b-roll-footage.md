@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Enhancing Narrative Depth  Incorporating B-Roll Footage\""
-date: 2024-09-09T03:01:44.726Z
-updated: 2024-09-14T16:19:35.257Z
+date: 2024-09-13T16:53:38.518Z
+updated: 2024-09-20T19:00:48.394Z
 tags: 
   - screen-recording
   - ai video
@@ -53,20 +53,34 @@ We'll examine the top 5 uses for B rolls across a variety of video genres and di
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Visual detail b roll footage
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Undirected b roll footage
 
@@ -84,23 +98,9 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -136,13 +136,14 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-discovering-tiktoks-most-popular-gamers-for-2024/"><u>[New] Discovering TikTok's Most Popular Gamers for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-exploring-new-frontiers-with-vr-game-engines/"><u>[New] Exploring New Frontiers with VR Game Engines</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-infusing-homes-with-suns-invisible-light/"><u>[New] Infusing Homes with Sun's Invisible Light</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-how-to-leverage-phantoms-retrograde-footage-tech-for-2024/"><u>[Updated] How to Leverage Phantom’s Retrograde Footage Tech for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-the-ultimate-guide-to-leveraging-preview-capabilities-on-a-mac/"><u>[Updated] The Ultimate Guide to Leveraging Preview Capabilities on a Mac</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-oppo-reno-10-pro-5g-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Oppo Reno 10 Pro 5G without App | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/perfect-your-pics-ideal-apps-list-for-iphonesandroids/"><u>Perfect Your Pics Ideal Apps List for iPhones/Androids</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unlock-creative-potential-in-photography-top-15-tricks-for-using-pixlr-for-2024/"><u>Unlock Creative Potential in Photography Top 15 Tricks for Using Pixlr for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-microsofts-vision-of-tomorrow-with-hololens-exploration/"><u>[New] 2024 Approved Microsoft’s Vision of Tomorrow With HoloLens Exploration</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-navigating-instas-archive-maze-for-optimal-results/"><u>[New] 2024 Approved Navigating Insta’s Archive Maze for Optimal Results</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-best-14-text-animation-examples/"><u>[Updated] 2024 Approved Best 14 Text Animation Examples</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-building-bonds-youtube-and-brands-in-unity/"><u>[Updated] 2024 Approved Building Bonds YouTube and Brands in Unity</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-versions-of-windows-cuttingediting-programs/"><u>[Updated] In 2024, Versions of Windows Cutting/Editing Programs</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-navigating-fb-discovering-shared-video-content/"><u>[Updated] Navigating FB Discovering Shared Video Content</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-fix-apple-iphone-11-pro-max-passcode-not-working-drfone-by-drfone-ios/"><u>In 2024, How to Fix Apple iPhone 11 Pro Max Passcode not Working? | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-iphone-qr-code-scan-issues-top-10-solutions/"><u>Troubleshooting iPhone QR Code Scan Issues - Top 10 Solutions</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-iphone-not-showing-up-in-itunes-under-windows-10-systems/"><u>Troubleshooting: IPhone Not Showing Up in iTunes Under Windows #10 Systems</u></a></li>
 </ul></div>
 

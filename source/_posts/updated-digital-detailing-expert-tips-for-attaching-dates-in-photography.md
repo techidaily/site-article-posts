@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Digital Detailing  Expert Tips for Attaching Dates in Photography\""
-date: 2024-09-14T02:34:12.066Z
-updated: 2024-09-15T11:07:58.176Z
+date: 2024-09-18T17:27:34.472Z
+updated: 2024-09-20T18:04:52.891Z
 tags: 
   - screen-recording
   - ai video
@@ -181,18 +181,18 @@ You can make your photos sharper by simply navigating to the bottom of the Modif
 
 ![sharpen your images](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step3Adjust lighting and exposure
 
 When retouching your image in the Photos app, select the Adjust tab, then drag the thumb along the Lights slider to make the necessary adjustments.
 
 ![adjust lighting and exposure](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Use inbuilt photo app on mac to add date stamps
 
@@ -236,13 +236,6 @@ Step2Select Edit & Create > Edit with Paint 3D in the upper right corner of the 
 
 ![select edit create](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-13.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3Go to the screen's top and click Text.
 
 ![click on text](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-14.jpg)
@@ -284,6 +277,13 @@ Canva is a standout online photo editor where you can edit your and **add date t
 **Add a date to a photo** using Fotor. Fotor provides great features that make photo editing a smooth and easy process. To begin, you will need to sign up and upload your photo.
 
 ![ftor](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-20.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Key Features**
 
@@ -331,13 +331,6 @@ One app that does this effectively is Timestamp camera free. You can **add dates
 Downloading the [Timestamp camera](https://www.timestampcameraapp.com/) is free on the google play store. Follow the steps below.
 
 ![downloading the timestamp camera](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step1Go to your phone app store: Apple Store or Play Store.
 
@@ -484,6 +477,19 @@ Step3Click on the text button.
 
 ![click on the text button](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-9.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4Proceed to add date and time into the text area manually.
 
 ![add data and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-10.jpg)
@@ -493,6 +499,13 @@ Step5When ready, drag and slide the date to the area of the image where you wish
 ![place the date and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-11.jpg)
 
 Step6Finally, select File>Save to add your date to the picture.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Use an inbuilt app to edit photos on Windows
 
@@ -516,13 +529,6 @@ Step3Go to the screen's top and click Text.
 
 ![click on text](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-14.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4To create a text box, click and drag.
 
 ![create a text box](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-15.jpg)
@@ -535,16 +541,16 @@ Step6Select Menu in the upper-left corner.
 
 ![select menu](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-17.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step7Proceed to click on the Save option.
 
 ![click on save option](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-18.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4\. Edit Photos Online to add date stamps
 
@@ -619,12 +625,17 @@ Hopefully, these steps will be helpful if you ever want to **add a date** or **e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-visual-virtuosity-leading-photo-frames-websites-and-tools/"><u>[New] 2024 Approved Visual Virtuosity Leading Photo Frames Websites and Tools</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-cutting-edge-tips-for-professional-lunapic-editing/"><u>[Updated] 2024 Approved Cutting-Edge Tips for Professional LunaPic Editing</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-optimal-home-theater-choosing-the-right-3d-blu-ray-devices/"><u>[Updated] 2024 Approved Optimal Home Theater Choosing the Right 3D Blu-Ray Devices</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-captivate-audience-attention-with-your-yt-shorts/"><u>[Updated] In 2024, How to Captivate Audience Attention with Your YT Shorts</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/0-ssd-controller-at-fms-2024-showcase/"><u>0 SSD Controller at FMS 2024 Showcase</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/ice-cream-capture-technology-reviewed-deeply-for-2024/"><u>Ice Cream Capture Technology Reviewed Deeply for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/live-streaming-mastery-with-manycam-top-tier-virtual-webcam-software/"><u>Live Streaming Mastery with ManyCam: Top-Tier Virtual Webcam Software</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-crafting-captivating-photo-based-video-content-using-pixizs-features-for-2024/"><u>[New] Crafting Captivating Photo-Based Video Content Using Pixiz's Features for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-bring-your-stories-alive-techniques-for-animation-in-text/"><u>[New] In 2024, Bring Your Stories Alive Techniques for Animation in Text</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-unparalleled-top-10-free-image-archiving-hubs-pics-safe-and-sound/"><u>[New] In 2024, Unparalleled Top 10 Free Image Archiving Hubs, Pics Safe and Sound</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-mastering-time-lapse-android-tips-and-tricks/"><u>[Updated] Mastering Time-Lapse Android Tips & Tricks</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-proper-techniques-for-exporting-photos-from-phone-to-snapchat/"><u>[Updated] Proper Techniques for Exporting Photos From Phone to Snapchat</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-art-of-initiating-your-youtube-content-compellingly/"><u>[Updated] The Art of Initiating Your YouTube Content Compellingly</u></a></li>
+<li><a href="https://article-posts.techidaily.com/ensuring-faster-audio-with-secure-spotify-tips-for-2024/"><u>Ensuring Faster Audio with Secure Spotify Tips for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-nine-key-points-before-investing-in-a-new-4k-lens/"><u>In 2024, Nine Key Points Before Investing in a New 4K Lens</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-art-of-screenshot-beauty-top-10-sticker-enhancing-apps-for-smartphones/"><u>In 2024, The Art of Screenshot Beauty Top 10 Sticker-Enhancing Apps for Smartphones</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/restoring-soundscape-in-cyberpunk-2077-for-pc-users-troubleshooting-guide-for-windows-10-audio-issues/"><u>Restoring Soundscape in Cyberpunk 2077 for PC Users: Troubleshooting Guide for Windows 10 Audio Issues</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-itel-p40plus-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Itel P40+ Phone Pattern Lock</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/ultimate-tutorial-for-installing-latest-screen-graphics-drivers-on-windows/"><u>Ultimate Tutorial for Installing Latest Screen Graphics Drivers on Windows</u></a></li>
 </ul></div>
 

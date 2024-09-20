@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Breaking Records  Olympics Showcase for Short Tracks for 2024\""
-date: 2024-09-12T01:58:36.171Z
-updated: 2024-09-14T16:52:06.957Z
+date: 2024-09-14T17:52:09.433Z
+updated: 2024-09-20T19:45:18.922Z
 tags: 
   - screen-recording
   - ai video
@@ -80,10 +80,10 @@ To create such a highlight video on any sports event, there are certain videos e
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -104,6 +104,13 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
 Step 3: Go to Import > Import Media Files and bring in all the still footages and short clips you have collected. You can also use the option Import with Instant Cutter Tool to trim the footages and clips for uniformity.
@@ -113,13 +120,6 @@ Step 4: Add all the still footages and clips on the Video Timeline while add aud
 Step 5: Select individual slides and apply Transition, Effects or add Titles and Elements from the top bar.
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -144,20 +144,20 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-streamline-your-soundwaves-moving-playlists-across-networks/"><u>[New] Streamline Your Soundwaves Moving Playlists Across Networks</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-ten-essential-cam-covers-to-upgrade-your-security/"><u>[New] Ten Essential Cam Covers to Upgrade Your Security</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-unlocking-fcp-a-guide-to-obtaining-copy-without-cost-for-2024/"><u>[New] Unlocking FCP A Guide to Obtaining Copy Without Cost for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-effortless-radial-blur-implementation-for-photoshop-users/"><u>[Updated] Effortless Radial Blur Implementation for Photoshop Users</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-leading-6-software-for-multilingual-video-aids/"><u>[Updated] Leading 6 Software for Multilingual Video Aids</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-leap-into-fitness-a-curated-selection-of-vr-treadmill-pros-for-2024/"><u>[Updated] Leap Into Fitness A Curated Selection of VR Treadmill Pros for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-nikons-leap-to-4k-the-d500-breakdown/"><u>[Updated] Nikon's Leap to 4K The D500 Breakdown</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-the-best-of-the-best-yts-premier-unboxing-sites-for-2024/"><u>[Updated] The Best of the Best YT's Premier Unboxing Sites for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/business-slide-show-essentials-free-access-and-customization/"><u>Business Slide Show Essentials Free Access & Customization</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-oppo-reno-10-pro-5g-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Oppo Reno 10 Pro 5G?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-oneplus-12r-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for OnePlus 12R | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-oppo-reno-10-pro-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Oppo Reno 10 Pro 5G to iPod | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/masterpiece-dialogues-across-8-film-genres/"><u>Masterpiece Dialogues Across 8 Film Genres</u></a></li>
-<li><a href="https://article-posts.techidaily.com/navigating-the-world-of-digital-backdrops-a-beginners-guide-to-chroma-keying/"><u>Navigating the World of Digital Backdrops A Beginner's Guide to Chroma Keying</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/overcoming-call-disruptions-fixes-for-the-samsung-galaxy-watch-user/"><u>Overcoming Call Disruptions: Fixes for the Samsung Galaxy Watch User</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-transform-your-feed-a-comprehensive-guide-to-videos/"><u>[New] 2024 Approved Transform Your Feed A Comprehensive Guide to Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-budget-drone-expeditions-top-5-affordable-options-for-2024/"><u>[New] Budget Drone Expeditions Top 5 Affordable Options for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-dji-quadcopter-a-deep-dive-into-phantom-3/"><u>[New] In 2024, DJI Quadcopter A Deep Dive Into Phantom 3</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-how-to-edit-hauls-a-comprehensive-video-guide/"><u>[New] In 2024, How to Edit Hauls A Comprehensive Video Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-mastering-acoustic-transitions-in-audacity-pro-suite/"><u>[New] In 2024, Mastering Acoustic Transitions in Audacity Pro Suite</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-foundational-steps-to-your-distinctive-marketing-voice/"><u>[New] The Foundational Steps to Your Distinctive Marketing Voice</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-revitalize-your-shots-10-cost-free-expandable-with-additional-luts/"><u>[Updated] 2024 Approved Revitalize Your Shots 10 Cost-Free, Expandable With Additional LUTs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-from-imagination-to-illustration-ranking-the-best-8-iphone-drawing-software/"><u>[Updated] From Imagination to Illustration Ranking the Best 8 iPhone Drawing Software</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-libertycam-studios-advanced-video-capture-capabilities/"><u>[Updated] In 2024, LibertyCam Studio's Advanced Video Capture Capabilities</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-mastering-desktop-image-blending-techniques-for-2024/"><u>[Updated] Mastering Desktop Image Blending Techniques for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/avoiding-overuse-steps-for-efficient-wlanextexe/"><u>Avoiding Overuse: Steps for Efficient Wlanext.exe</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/four-sectors-where-governments-may-impose-ai-regulations/"><u>Four Sectors Where Governments May Impose AI Regulations</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-on-iphone-6s-plus-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even On iPhone 6s Plus If Youve Tried Everything</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/simplified-methods-for-saving-screen-share-talks-for-2024/"><u>Simplified Methods for Saving Screen-Share Talks for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-dell-g5-sei-nmth-fn-a-cost-effective-beast-in-budget-gaming-pcs-with-unlimited-potential/"><u>The Ultimate Guide to the Dell G5 ˈsei Nʉmθ Fɔn | A Cost-Effective Beast in Budget Gaming PCs With Unlimited Potential</u></a></li>
 </ul></div>
 

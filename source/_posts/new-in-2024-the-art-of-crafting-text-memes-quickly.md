@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Art of Crafting Text Memes Quickly"
-date: 2024-07-11T00:13:40.273Z
-updated: 2024-07-12T00:13:40.273Z
+date: 2024-09-13T19:15:08.423Z
+updated: 2024-09-20T16:03:42.374Z
 tags: 
   - screen-recording
   - ai video
@@ -112,6 +112,19 @@ Step2 Go File> Import Media and click on Import Media Files option if you want t
 
 ![download filmora on computer](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you want to start from scratch, select a video template from Stock Media> Pexels> Videos or Stock Media> Pixabay> Videos. Instead of videos, you can select photos as well for the meme background. You can select templates that have texts and titles and you can edit them as per your preference.
 
 ![pexels video filmora](https://images.wondershare.com/filmora/article-images/2022/07/pexels-video-filmora.jpg)
@@ -120,13 +133,34 @@ Step3 Go to Stock Media> GIPHY to bring in any trending meme. Drag and drop your
 
 ![stock media giphy filmora](https://images.wondershare.com/filmora/article-images/2022/07/stock-media-giphy-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Add meme titles to your video, head over to Titles> Social Media. There are other categories as well you can check out. Select any desired title template and drop it on the Timeline. You can select any element of the title templates from the Viewer to adjust or delete as you think fit.
 
 ![choose title templates filmora](https://images.wondershare.com/filmora/article-images/2022/07/choose-title-templates-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 Drag and place the text in any desired place on the video From the Viewer. Double-click on the Title template on the Timeline and edit the title. You can select different styles, animations, and even funny WordArt. Click on Ok button when you are finished editing the texts.
 
 ![add meme template filmora](https://images.wondershare.com/filmora/article-images/2022/07/add-meme-template-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Once you have completed, click on Export button to save the video in any file format.
 
@@ -141,6 +175,13 @@ Step1 Visit Play Store(Android) or App Store(iPhone) and search for Mematic and 
 Step2 Select a style as per your requirements to get started.
 
 ![mematic meme style](https://images.wondershare.com/filmora/article-images/2022/07/mematic-meme-style.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 You need to select a background here and you can tap on Photos option to insert a photo from your phone gallery to use it as a background to your text meme. You can choose the background from a popular meme by tapping on Memes option.
 
@@ -180,6 +221,19 @@ Generating text memes on your device is no more an issue if you have no prior ex
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-business-presentation-goldmine-free-and-premium-slide-show-tools/"><u>[New] 2024 Approved Business Presentation Goldmine Free & Premium Slide Show Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-how-to-curate-a-facebook-playlist-via-phonetablet/"><u>[New] 2024 Approved How to Curate a Facebook Playlist via Phone/Tablet</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-maximize-convenience-with-these-advanced-whatsapp-features/"><u>[New] In 2024, Maximize Convenience with These Advanced WhatsApp Features</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-emulate-hand-held-shooting-effects-in-ps-for-2024/"><u>[Updated] Emulate Hand-Held Shooting Effects in PS for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-explore-eco-films-learn-and-innovate-with-yts-green-screens/"><u>[Updated] In 2024, Explore Eco-Films Learn & Innovate with YT's Green Screens</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-metaverse-vs-multiverse-what-are-the-differences-complete-guide/"><u>[Updated] In 2024, Metaverse Vs. Multiverse What Are the Differences [Complete Guide]</u></a></li>
+<li><a href="https://win-dash.techidaily.com/44cm44ol44kz44ol44kz5yuv55s744gu44ot44oh44kq44gl44kj6auy5zob6loq44gq6zplusz5aow44ov44kh44kk44or44ks44gp44gg44ke44gj44gm5yplusw5b6x44gx44gplus44gz44gl77yf44c19/"><u>「ニコニコ動画のビデオから高品質な音声ファイルをどうやって取得しますか？」</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/cookiebot-the-cutting-edge-solution-for-customized-user-experience-and-data-insights/"><u>Cookiebot: The Cutting-Edge Solution for Customized User Experience and Data Insights</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easy-methods-for-turning-and-flipping-pictures-using-windows-11-tools/"><u>Easy Methods for Turning and Flipping Pictures Using Windows 11 Tools</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-infinix-note-30-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Infinix Note 30 5G Quickly | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-honor-70-lite-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Honor 70 Lite 5G Location by Number | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-audio-alternatives-weighing-the-pros-of-podcasts-and-youtube/"><u>In 2024, Audio Alternatives Weighing the Pros of Podcasts and YouTube</u></a></li>
+</ul></div>
 

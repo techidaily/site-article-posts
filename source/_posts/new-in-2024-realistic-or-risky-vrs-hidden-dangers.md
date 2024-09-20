@@ -1,0 +1,118 @@
+---
+title: "[New] In 2024, Realistic or Risky? VR's Hidden Dangers"
+date: 2024-09-14T19:50:59.206Z
+updated: 2024-09-20T20:25:12.464Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "This Article Describes [New] In 2024, Realistic or Risky? VR's Hidden Dangers"
+excerpt: "This Article Describes [New] In 2024, Realistic or Risky? VR's Hidden Dangers"
+keywords: "VR Realism Threat,Risk in VR World,Virtual Reality Hazards,Safe VR Practices,VR Experience Safety,Hidden VR Dangers,Risky VR Use"
+thumbnail: https://thmb.techidaily.com/4a9b602cddaa14e95b4c74e25b7d2e53d393546d813f68c2847153dd0769193c.jpg
+---
+
+## Realistic or Risky? VR's Hidden Dangers
+
+# What are the disadvantages of VR?
+
+![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+##### Benjamin Arango
+
+ Mar 27, 2024• Proven solutions
+
+ When many of us think of [Virtual Reality](https://tools.techidaily.com/wondershare/filmora/download/) there is two thoughts, the first is the high heaven of VR which is the holodeck featured on the several TV versions of “Star Trek” and a crucial part of the show's flagship the starship Enterprise. The holodeck was what true Virtual Reality should be, full body tactile immersion both narrative immersion, which occurs “when the viewer becomes emotionally invested in the story” and the feeling of “really being there”, called spatial immersion.
+
+ **_You may also like:_**
+_[Differences between VR, AR and MR](https://tools.techidaily.com/wondershare/filmora/download/)_
+_[Virtual Reality Technology: Current State and Future Challenges](https://tools.techidaily.com/wondershare/filmora/download/)_
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## The equipment used for VR is very expensive
+
+ Of course with any early stage technology, there are a host of issues to overcome among the first is cost for consumers to participate. Many systems run between $100 and $600 and we have not yet discussed the cost of purchasing experiences or games.
+
+## Low resoultion content, large file size
+
+ The new goggles or headsets that are coming out offer best available high resolution displays. But gaming experience is coming on at low resolution, leaving you with a low resolution experience. Below is a greatly condensed technical discussion explaining why VR is still so profoundly mediocre.
+
+* **File size**
+
+ Current VR platforms require a some kind of download to begin. Often the file sizes are over 1 GB and requisitely, slow.
+
+* **Video quality**
+
+ The next issue is simply video quality. Most VR is in stereo format and the hardware is just not able to fully support it. The video comes through grainy and muffled like it was shot that way and of course it was not. Improved resolution is the fix. There is another obvious thought here. Why claim to have a market worthy product when one of the fundamental technologies, viewing, is still unstable?
+
+* **Resolution**
+
+ What is the issue with fixing resolution. A couple of questions must be addressed to solve the problems. What is the display resolution? This is the screen resolution. The second question is, “Does all of the images that can come through, actually come through or is it cut off in some way?” This is field-of-view resolution. These questions have technical answers and industry engineers are working to provide a seamless solution, but we are brought back to the conclusion that VR technology while close to delivering true Phase I, which is reasonably easy to use technology is not quite there. Industry insiders use language like it is still in its experimental stage, of course that will not stop the industry from selling these units to early adopters.
+
+* **Social Consequences**
+
+ There is an addictive quality of Virtual Reality environments that should not be ignored. Those who are regular users of these spaces, even in its developmental state find that it can be hard to stay away. Users find themselves in some cases, preferring the virtual world to the real one. If these anecdotal experiences are being reported by a very small sample size what will be the impact on entire cultures that embrace this technology? Considerations of Virtual Reality must extend into the world of human activity and definitions of normal behavior. And as a reminder most of us who love science fiction have a sense of what true Virtual Reality really is. It should be clear that we are a very long way from enjoying the holodeck.
+
+## Best Video Editor: [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+Benjamin Arango
+
+Benjamin Arango is a writer and a lover of all things video.
+
+Follow @Benjamin Arango
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-chucklecraft-pixel-perfect-humor-for-2024/"><u>[New] ChuckleCraft Pixel-Perfect Humor for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-full-range-virtual-sphere-review-for-2024/"><u>[New] Full Range Virtual Sphere Review for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-elevating-systems-essential-tips-for-successful-upgrades/"><u>[New] In 2024, Elevating Systems Essential Tips for Successful Upgrades</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-maximizing-video-impact-a-comprehensive-guide-to-youtube-popularity/"><u>[New] In 2024, Maximizing Video Impact A Comprehensive Guide to YouTube Popularity</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-conveniently-keep-your-linkedin-videos-with-these-6-apps/"><u>[Updated] In 2024, Conveniently Keep Your LinkedIn Videos with These 6 Apps</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-iphone-and-ipads-best-video-player-compilation-top-10-for-2024/"><u>[Updated] IPhone & iPad's Best Video Player Compilation (Top 10) for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-phones-at-odds-dissecting-iphone-x-vs-galaxy-face-recognition/"><u>[Updated] Phones at Odds Dissecting iPhone X Vs. Galaxy Face Recognition</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-youtube-seo-101-boost-your-videos-visibility/"><u>[Updated] YouTube SEO 101 Boost Your Video's Visibility</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-honor-90-gt-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Honor 90 GT? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/effortless-installation-of-hp-zbook-15-g3-graphics-and-audio-drivers-on-your-pc-running-windows/"><u>Effortless Installation of HP ZBook 15 G3 Graphics & Audio Drivers on Your PC Running Windows</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-tap-into-endless-visual-archives-from-top-4-video-platforms/"><u>In 2024, Tap Into Endless Visual Archives From Top 4 Video Platforms</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/navigating-backward-image-hunt-on-the-worlds-largest-social-site/"><u>Navigating Backward Image Hunt on the World's Largest Social Site</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/navigating-through-error-0x80070570-diagnosis-and-fixing-techniques/"><u>Navigating Through Error 0X80070570: Diagnosis and Fixing Techniques</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>Planning to Use a Pokemon Go Joystick on Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/samsung-galaxy-watch-7-revealed-find-out-your-costs-release-schedule-detailed-features-and-latest-developments/"><u>Samsung Galaxy Watch 7 Revealed: Find Out Your Costs, Release Schedule, Detailed Features, and Latest Developments</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
