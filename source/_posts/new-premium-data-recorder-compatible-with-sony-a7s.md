@@ -1,7 +1,7 @@
 ---
 title: "[New] Premium Data Recorder Compatible with Sony A7S"
-date: 2024-09-18T18:01:34.683Z
-updated: 2024-09-20T19:03:28.577Z
+date: 2024-09-23T20:49:01.310Z
+updated: 2024-09-26T23:44:05.576Z
 tags: 
   - screen-recording
   - ai video
@@ -72,6 +72,13 @@ thumbnail: https://thmb.techidaily.com/7ca1823a541bb8f1b1b4e3f36dc533291122ea53e
 * Note that there is no money saving deal in memory card price ranges. When you go to buy a 128GB memory card it will naturally cost same as if you buy two 64GB cards.
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Best Memory Cards for Sony A7S II
 
 #### 1. Sony 64GB High Performance Class 10 UHS-1/U3 SDXC
@@ -112,6 +119,13 @@ thumbnail: https://thmb.techidaily.com/7ca1823a541bb8f1b1b4e3f36dc533291122ea53e
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -135,12 +149,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-four-k-faceoff-sj6-legend-versus-xiaomis-yi-prototype/"><u>[New] In 2024, Four-K Faceoff SJ6 Legend Versus Xiaomi's Yi Prototype</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unveiling-the-power-of-reverse-recording-in-phantom-cameras-for-2024/"><u>[New] Unveiling the Power of Reverse Recording in Phantom Cameras for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-explore-virtual-realms-with-top-gadgets-and-peripherals/"><u>[Updated] 2024 Approved Explore Virtual Realms with Top Gadgets and Peripherals</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-gradual-amplitude-reduction-guide/"><u>[Updated] 2024 Approved Gradual Amplitude Reduction Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-explore-creativity-the-top-8-iphone-drawing-apps-uncovered/"><u>2024 Approved Explore Creativity The Top 8 iPhone Drawing Apps Uncovered</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-speak-the-code-vr-lingo-essentials/"><u>2024 Approved Speak the Code VR Lingo Essentials</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Motorola Edge 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/breaking-down-the-features-of-arctic-freezer-36-setting-new-standards-for-entry-level-acs/"><u>Breaking Down the Features of Arctic Freezer 36: Setting New Standards for Entry-Level ACs</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-credit-card-on-your-iphone-11-pro-max-apple-id-and-apple-pay-by-drfone-ios/"><u>In 2024, How to Change Credit Card on Your iPhone 11 Pro Max Apple ID and Apple Pay</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-infinix-zero-5g-2023-turbo-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Infinix Zero 5G 2023 Turbo For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-maximize-your-impact-with-snapchat-spotlight/"><u>In 2024, How to Maximize Your Impact with Snapchat Spotlight</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-reinstallation-steps-to-restore-photo-viewer-in-windows-10/"><u>In 2024, Reinstallation Steps to Restore Photo Viewer in Windows 10</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-zte-blade-a73-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On ZTE Blade A73 5G? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/new-authors-recommended-the-best-text-voice-generators-for-all-platforms/"><u>New Authors Recommended The Best Text Voice Generators for All Platforms</u></a></li>
+<li><a href="https://article-posts.techidaily.com/precise-participation-the-key-to-zooming-in-on-google-meet-talks/"><u>Precise Participation The Key to Zooming in on Google Meet Talks</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/samsung-galaxy-m14-4g-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy M14 4G Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-social-media-revolution-a-side-by-side-look-at-tiktok-and-snapchats-features/"><u>The Social Media Revolution A Side-By-Side Look at TikTok and Snapchat's Features</u></a></li>
+</ul></div>
 

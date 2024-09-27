@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Pioneers of Immersion  History in VR\""
-date: 2024-09-16T18:07:15.293Z
-updated: 2024-09-20T17:30:09.197Z
+date: 2024-09-21T18:57:42.340Z
+updated: 2024-09-27T00:20:58.057Z
 tags: 
   - screen-recording
   - ai video
@@ -48,15 +48,22 @@ In Pygmalions Spectacles, Stanley G. Weinbaum explains a goggle based game in wh
 
 VR headsets actually started development in the 1960s. Just 30 years from the original thought of a VR headset, Ivann Sutherland created the very first VR headset for use with military applications. Using a specialized military software as well as a motion control platform, the first VR headsets were designed for use in training exercises. These VR training tools have now become the standard in the military for training for flight exercises, combat situations and more. An immersive experience is definitely required to push military personnel and prepare them in a safe training environment before they enter into the field. Many air forces around the world require an extensive amount of VR training simulations before they will even let a pilot into one of their aircraft. With the initial development using specialized software and motion controls, VR research would continue to pave the way for training in the military and beyond. Today’s military VR headsets are far more advanced, compact and immersive and these training programs as well as the technology will continue to develop a little bit faster than some of the products that we might find as regular consumers.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## VR development in 1990s
 
 VR headsets begin to make their way into a few arcade games for simulations and Nintendo announced the first home VR system. Virtual Boy was one of the first home systems available for use with a widespread appeal. Sega also introduced a Sega VR headset for the Sega Genesis console in the year 1993\. These wraparound prototypes had stereo sound, LCD screens and head tracking. Technical development in this VR headset doom the project and the cost of the headset was extensive making it a massive flop for Sega. The Virtual Boy however was a 3-D game console that experienced a little more success. Virtual Boy was released in North America at a price of $180\. The games were entirely made in red and black and there were only a few pieces of software available with the device. Users would wear a VR headset and control the action on a regular Nintendo controller. Unfortunately the console was very uncomfortable to use and because of the lack of games as well as the lack of color, it didn't present the same strong sales as the other Nintendo consoles out at the time.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## VR development in 2014
@@ -64,10 +71,16 @@ VR headsets begin to make their way into a few arcade games for simulations and 
 Oculus VR represents the latest revolution in VR technology. When Facebook officially acquired the Oculus VR system, this showed that virtual-reality was becoming a huge concern for many of the world's top developers. Although the Oculus Rift was formed out of a kickstarter campaign in 2012, the deal in 2014 represented a huge boost in their funding and confidence. Later in 2015, Oculus began to acquire other companies like Surreal Vision and built partnerships with Samsung to develop the Samsung gear VR. As one of the leading companies in VR development, Oculus has fully functioning VR systems for consumers to purchase and use at home. With support for a wide range of applications and further applications being developed for specific use with their VR systems, this was a huge leap forward for VR. After gaining international attention with the demand after the Facebook deal, this would propel many other developers into creating their own VR development firms. Oculus in a way started a brand-new VR renaissance with a call to create immersive and simulated experiences for the average consumer. Previous VR headsets were very technical and inaccessible for the average computer user, but with plug-and-play compatibility and a wide host of supported applications, Oculus gave the average consumer hope that they can enjoy VR again.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## VR development in 2016 and beyond
@@ -77,6 +90,19 @@ With the initial surge after Oculus Rift, companies all over the world began bui
 The future of VR looks very bright and with so many new devices in development is a trend that's not going away anytime soon.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -101,5 +127,19 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-easeus-assessment-for-all/"><u>[New] In 2024, EaseUS Assessment for All</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-skilled-pilots-choice-selecting-top-5-pro-drones/"><u>[Updated] 2024 Approved Skilled Pilots' Choice - Selecting Top 5 Pro Drones</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-acoustic-windows-aficionado-toolkit/"><u>[Updated] In 2024, Acoustic Windows Aficionado Toolkit</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-love-ballad-bingo-must-haves-on-the-list-of-proposals/"><u>[Updated] Love Ballad Bingo Must-Haves on the List of Proposals</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unleash-the-power-of-words-how-to-enchant-tinder-users-with-a-bio-for-2024/"><u>[Updated] Unleash the Power of Words How to Enchant Tinder Users with a Bio for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-first-choice-of-android-photo-editors/"><u>2024 Approved First Choice of Android Photo Editors</u></a></li>
+<li><a href="https://article-posts.techidaily.com/dji-aerial-lineup-standard-drone-professional-edition-4k-quality-for-2024/"><u>DJI Aerial Lineup Standard Drone, Professional Edition, 4K Quality for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-vivo-v29-pro-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Vivo V29 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fix-your-armored-core-vi-boot-troubles-effective-solutions-for-launching-fires-of-rubicon-successfully/"><u>Fix Your Armored Core VI Boot Troubles: Effective Solutions for Launching Fires of Rubicon Successfully</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-itel-s23-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Itel S23 FRP Locks</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-vivo-v27-pro-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-best-cameras-for-youtube-from-beginners-to-professionals/"><u>The Best Cameras for YouTube From Beginners to Professionals</u></a></li>
+</ul></div>
 

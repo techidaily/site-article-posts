@@ -1,7 +1,7 @@
 ---
 title: "[New] Overcoming Virtual Reality Discomfort for 2024"
-date: 2024-09-17T17:32:56.272Z
-updated: 2024-09-20T20:35:16.251Z
+date: 2024-09-22T20:05:38.161Z
+updated: 2024-09-26T22:47:06.045Z
 tags: 
   - screen-recording
   - ai video
@@ -51,17 +51,38 @@ thumbnail: https://thmb.techidaily.com/20ff4f86f64949aeed71ebab473532ee23ffbe18d
 
  8. **Properly adjust the head gear.**Make sure your head gear fits you perfectly so there isn’t any calibration problem.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What is Virtual reality sickness?
 
  All we know about the reality of the real world around us is that it comes from the perception of our sensory organs and their co-relation with the sense-managing system of our brain to generate useful information. Thus if we present our sensory system with the kind of information that really isn’t there our brain would begin to explore it and comprehend it as reality to us. Such a type of self-made information and the resulting outcome is what we call ‘virtual reality’.
 
  You can definitely not deny all the fun you can have with this new technology once you grab on all the cool gadgets and gears. Putting on a virtual reality headset can take you to a completely different world but would it really be fun when you have to vomit after ten minutes? Virtual reality sickness is a big hurdle to the widespread use of the virtual reality technology. The fact that ‘with virtual reality comes the sickness’ has been a major worry factor to the developers and scientists. Virtual Reality sickness brings along symptoms such as headaches, nausea, vomiting, discomfort, sweating, drowsiness, disorientation and apathy. Virtual reality sickness, however, is not a new problem. It has been known since the test pilots, test drivers and astronauts have been practicing their skills in simulators and mock vehicles.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why virtual reality make people sickness
 
  Now the question arises, what is really making us sick? Is it the gadgets or gears? Or some manufacturing flaw? The link connecting virtual reality and the sickness, lies within the human body itself. When you are in a virtual environment, in some cases, your body’s sense of balance does not completely line up with the movements of your head. Also, when the environment around you moves, but your body stays stationary you experience dizziness or nausea. Typically, the bigger the mismatch the worse the sickness. According to the statement delivered by a military pilot, when you go inside a simulator, the movements don’t exactly match the same as they do in the real world, and all of a sudden, what you feel is just not right. Another reason causing the problem is based on virtual reality games and other such systems. In such a VR system you experience environment larger than the room you are in. All these factors can ultimately drive you sick!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -86,12 +107,19 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-fusionflix-your-all-inclusive-tv-streaming-companion/"><u>[New] 2024 Approved FusionFlix Your All-Inclusive TV Streaming Companion</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-background-excision-tool-affinity-photo/"><u>[Updated] Background Excision Tool Affinity Photo</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/boost-your-korean-skills-ranked-list-of-6-online-educational-tools/"><u>Boost Your Korean Skills: Ranked List of 6 Online Educational Tools</u></a></li>
+<li><a href="https://article-posts.techidaily.com/dynamic-editing-mastering-effects-on-tiktok-content-for-2024/"><u>Dynamic Editing Mastering Effects on TikTok Content for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ideal-tools-optimizing-grammar-acquisition/"><u>Ideal Tools Optimizing Grammar Acquisition</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-comprehensive-study-gopro-slr4-sliver-feature-review/"><u>In 2024, Comprehensive Study GoPro SLR4 Sliver Feature Review</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Lava Blaze 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-navigating-song-rights-on-social-media/"><u>In 2024, Navigating Song Rights on Social Media</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-step-by-step-guide-to-creating-an-eye-catching-collage/"><u>In 2024, Step-by-Step Guide to Creating an Eye-Catching Collage</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-top-7-low-cost-video-compacting-tools-for-android-devices/"><u>In 2024, Top 7 Low-Cost Video Compacting Tools for Android Devices</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/prolactinomas-somatotropinomas-and-corticotroph-adenomas-are-common-secreting-pituitary-tumors/"><u>Prolactinomas, Somatotropinomas, and Corticotroph Adenomas Are Common Secreting Pituitary Tumors.</u></a></li>
+<li><a href="https://program-issues.techidaily.com/ultimate-fix-for-fortnite-ram-crashes-enhancing-game-stability-and-playability/"><u>Ultimate Fix for Fortnite RAM Crashes: Enhancing Game Stability and Playability</u></a></li>
+</ul></div>
 
