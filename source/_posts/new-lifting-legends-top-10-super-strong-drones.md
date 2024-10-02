@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Lifting Legends  Top 10 Super-Strong Drones\""
-date: 2024-09-13T16:32:56.236Z
-updated: 2024-09-20T17:46:52.337Z
+date: 2024-09-26T01:09:38.382Z
+updated: 2024-10-02T03:39:07.226Z
 tags: 
   - screen-recording
   - ai video
@@ -61,6 +61,13 @@ Here are the best heavy lifting drones available in 2020, broken into over-10 kg
 
 ![tarot t-18 ready to fly drone](https://images.wondershare.com/filmora/article-images/tarot-t-18-ready-to-fly-drone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The Tarot T-18 Ready To Fly Drone might just be the ideal drone for those (professional or amateur) who are looking to take outstanding, aerial photography with a decent sized DSLR, thanks to its capability of carrying up to an 8 kg payload. Thanks to the Tarot T-18's octocopter design, a heavy DSLR (or any other payload) will not cause stability or power issues that can come from single-, or even double-rotor drones. With a 20 min. flight time, the Tarot T-18 can be the perfect tool to add to any aerial photographers tool chest.
 
 #### 2\. [DJI S900](https://www.amazon.com/gp/product/B00MEBTDRY/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00MEBTDRY&linkId=66e45295337a54bff961119800e62cb4)
@@ -94,6 +101,13 @@ With the capability of taking off with a payload of about 6 kg, the DJI Matrice 
 [Check at Amazon](https://www.amazon.com/gp/product/B0134Z7FYG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B0134Z7FYG&linkId=a59c7f77d8316ad2fad63db14d480093)
 
 The DJI's Matrice 100 combines the benefits of an easy-to-fly quadocpter with the ability to deliver a relatively good sized payload of around 3.6 kg. The X-configuration of the drone provides the perfect support for the on-board 4K camera, as well as space to add a supported third-party camera (like a GoPro.) With a flight time of around 50 min., the DJI's Matrice 100 is the perfect tool for anyone who needs a drone that can handle slightly heavier lifts.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Heavy lifting Drones: Over-10kg payload
 
@@ -131,7 +145,21 @@ The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads w
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -156,12 +184,23 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-navigating-the-social-network-crossroad-instagram-and-tiktok/"><u>[New] 2024 Approved Navigating the Social Network Crossroad Instagram & TikTok</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-sky-high-selfies-made-easy-dji-spark-reviewed/"><u>[New] 2024 Approved Sky High Selfies Made Easy DJI Spark Reviewed</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-ultimate-plan-for-streamlining-your-video-queue-on-youtube-for-2024/"><u>[New] The Ultimate Plan for Streamlining Your Video Queue on YouTube for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-top-8-enhanced-peripherals-for-a-richer-metaverse-experience/"><u>[Updated] 2024 Approved Top 8 Enhanced Peripherals for a Richer Metaverse Experience</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-cinematic-close-ups-elevating-your-work-with-kinemaster-for-2024/"><u>[Updated] Cinematic Close-Ups Elevating Your Work with Kinemaster for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-success-starts-here-discovering-top-tracking-and-analysis-apps/"><u>[Updated] Instagram Success Starts Here Discovering Top Tracking and Analysis Apps</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/comprehensive-analysis-of-the-powerful-asus-rog-rapture-gigabit-wifi-7-router-with-unmatched-performance-and-scalability/"><u>Comprehensive Analysis of the Powerful Asus ROG Rapture Gigabit WiFi 7 Router with Unmatched Performance and Scalability</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/decoding-the-workings-an-insight-into-chatgpts-shared-links/"><u>Decoding the Workings: An Insight Into ChatGPT’s Shared Links</u></a></li>
+<li><a href="https://article-posts.techidaily.com/enhance-your-films-innovative-kinemaster-transitions-for-2024/"><u>Enhance Your Films Innovative Kinemaster Transitions for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-xiaomi-redmi-note-12r-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Xiaomi Redmi Note 12R Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-the-essential-manual-to-acquiring-final-cut-pro-gratis/"><u>In 2024, The Essential Manual to Acquiring Final Cut Pro Gratis</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-things-you-must-know-for-screen-mirroring-apple-iphone-14-plus-drfone-by-drfone-ios/"><u>In 2024, Things You Must Know for Screen Mirroring Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-search-of-perfect-sound-top-10-podcast-microphones/"><u>In Search of Perfect Sound Top 10 Podcast Microphones</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/mastering-the-fix-a-detailed-approach-for-windows-code-errors-28/"><u>Mastering the Fix: A Detailed Approach for Windows Code Errors - 28</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-tecno-pova-5-pro-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Tecno Pova 5 Pro Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-ultimate-metaverse-meme-compendium-ideas-galore-for-2024/"><u>The Ultimate Metaverse Meme Compendium Ideas Galore for 2024</u></a></li>
+</ul></div>
 

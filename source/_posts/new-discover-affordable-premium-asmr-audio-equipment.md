@@ -1,7 +1,7 @@
 ---
 title: "[New] Discover Affordable Premium ASMR Audio Equipment"
-date: 2024-09-24T00:05:28.081Z
-updated: 2024-09-26T16:26:24.804Z
+date: 2024-10-01T04:51:56.675Z
+updated: 2024-10-02T00:01:27.383Z
 tags: 
   - screen-recording
   - ai video
@@ -54,6 +54,13 @@ Blue Yeti USB mic is well-designed with comprehensive features. Besides ASMR, th
 
 Blue Yeti mic provides end-users with several polar patterns. From stereo mode to cardio to omnidirectional and bidirectional. Thus, you need not worry about positioning the microphone. Blue is equipped with a headphone jack. With this feature, you can monitor your streams and recordings conveniently. Connecting Blue's microphone is straightforward. Thanks to the USB connectivity feature.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. HyperX Quadcast
 
 ![hyperx quadcast](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-2.jpg)
@@ -61,6 +68,13 @@ Blue Yeti mic provides end-users with several polar patterns. From stereo mode t
 Here is another powerful condenser microphone with a USB connectivity feature. HyperX Quadcast is a popular gaming mic suitable for capturing high-quality ASMR audio recordings right from your comfort zones. The mic comes with rich features that you need to make astonishing ASMR recordings. From built-in anti-vibration shock mount to a built-in pop filter to convenient gain control and more.
 
 HyperX Quadcast provides end-users with a sensitity tap-to-mute sensor that allows you to mute and unmute conveniently. Just like the aforementioned microphone, the HyperX Quadrcast mic does support multiple polar patterns. The mic comes with a standing adapter where you can mount the mic for easy recordings.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Lauten Audio LA-220
 
@@ -78,23 +92,9 @@ Readily available for as low as $150, Audio-Technica AT2020 USB is another indus
 
 Audio-Technica AT2020 USB mic comes with a low mass diaphragm which brings an extended frequency response coupled with a superior transient response. Additionally, the microphone supports features like high SPL handling, XLRM type output connector, and many others.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Rode NT1-A
 
 ![rode nt1 a](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Rode NT1-A is a popular microphone suitable for beginners in the ASMR space to capture voice recordings without hassles. You can also use it for other recording situations like YouTube, etc. This audio aid is built with great features that you need to create an engaging ASMR vocal.
 
@@ -157,13 +157,6 @@ Step1When Fiilmora opens, click on the **New Project** icon.
 
 ![new project](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 An interface as below will come up on your screen:
 
 ![interface](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-9.jpg)
@@ -171,6 +164,13 @@ An interface as below will come up on your screen:
 Locate, and click on the **Import Media** button. You will be directed to your local drive where you have to select the ASMR video. Once you've selected your preferred ASMR clip, click on **Open** to import the video.
 
 ![import media](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-10.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2Next, drag the newly imported video into the video timeline on Filmora interface. Depending on your default settings, you may get the prompt below:
 
@@ -182,16 +182,16 @@ Step3Now right-click on the video in the timeline. An interface with several opt
 
 ![timeline](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-12.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Kindly select **Detach Audio**. The audio track will immediately detach from the video. Here is an image for better understanding:
 
 ![detach audio](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-13.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4Next right-click on the detached audio. A page showing several editing features will pop up at the top left corner of your screen just as shown below:
 
@@ -223,6 +223,13 @@ Part 1\. Top 7 Best ASMR Microphones
 
 Here are the best 7 ASMR microphones available on the market today:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Blue Yeti USB Mic
 
 ![blue yeti usb mic](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-1.jpg)
@@ -237,16 +244,16 @@ Blue Yeti mic provides end-users with several polar patterns. From stereo mode t
 
 ![hyperx quadcast](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Here is another powerful condenser microphone with a USB connectivity feature. HyperX Quadcast is a popular gaming mic suitable for capturing high-quality ASMR audio recordings right from your comfort zones. The mic comes with rich features that you need to make astonishing ASMR recordings. From built-in anti-vibration shock mount to a built-in pop filter to convenient gain control and more.
 
 HyperX Quadcast provides end-users with a sensitity tap-to-mute sensor that allows you to mute and unmute conveniently. Just like the aforementioned microphone, the HyperX Quadrcast mic does support multiple polar patterns. The mic comes with a standing adapter where you can mount the mic for easy recordings.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Lauten Audio LA-220
 
@@ -260,13 +267,6 @@ Unlike the aforementioned microphones, Lauten Audio LA-220 comes with a single p
 
 ![audio technica at2020 usb](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Readily available for as low as $150, Audio-Technica AT2020 USB is another industry-leading microphone to look out for if you want to create lovely ASMR vocals that will entice your listeners. This cardioid condenser mic is built with a USB connection so you don't stress with connectivity.
 
 Audio-Technica AT2020 USB mic comes with a low mass diaphragm which brings an extended frequency response coupled with a superior transient response. Additionally, the microphone supports features like high SPL handling, XLRM type output connector, and many others.
@@ -274,13 +274,6 @@ Audio-Technica AT2020 USB mic comes with a low mass diaphragm which brings an ex
 ### 5\. Rode NT1-A
 
 ![rode nt1 a](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Rode NT1-A is a popular microphone suitable for beginners in the ASMR space to capture voice recordings without hassles. You can also use it for other recording situations like YouTube, etc. This audio aid is built with great features that you need to create an engaging ASMR vocal.
 
@@ -294,16 +287,16 @@ For as low as $39, Blue Snowball iCE is a cheap microphone perfect for ASMR voca
 
 Similar to Rode NT1-A, Blue Snowball iCE Plug ‘n Play USB microphone uses the cardioid polar pattern to capture your voice recordings. The mic supports pressure gradient, LED, etc. Blue Snowball iCE records audio without digital signal processing- one reason why it stands out amongst its competitors in similar industries.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. Sennheiser MKH416
 
 ![sennheiser mkh416](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Sennheiser is another professional microphone committed to capturing quality ASMR recordings. Although very costly, this microphone holds several incredible features that make it worth your investment. Sennheiser MKH416 has a built-in laser beam focus- a feature that lets the mic capture only your voice and rejects every other ambient sound. Connecting Sennheiser to an audio recording source requires an XLR cable and a phantom power source. This voice aid offers great services.
 
@@ -371,6 +364,13 @@ Step3Now right-click on the video in the timeline. An interface with several opt
 Kindly select **Detach Audio**. The audio track will immediately detach from the video. Here is an image for better understanding:
 
 ![detach audio](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-13.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4Next right-click on the detached audio. A page showing several editing features will pop up at the top left corner of your screen just as shown below:
 
@@ -422,24 +422,24 @@ Selecting the best ASMR microphone isn't easy, but here are some important facto
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-tech-savvy-strategies-for-harvesting-and-saving-facebooks-most-trendy-gifs/"><u>[New] 2024 Approved Tech Savvy Strategies for Harvesting & Saving Facebook's Most Trendy GIFs</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-metaverse-passage-premier-vr-equipment-showcase/"><u>[New] Metaverse Passage Premier VR Equipment Showcase</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-online-visibility-with-essential-vids-tools/"><u>[New] Unlock Online Visibility with Essential Vids' Tools</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-exploring-every-aspect-of-picsart-a-compre-cookie/"><u>[Updated] 2024 Approved Exploring Every Aspect of PicsArt A Compre Cookie</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-art-of-selecting-and-using-b-roll-in-productions/"><u>[Updated] 2024 Approved The Art of Selecting and Using B-Roll in Productions</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-comprehensive-guide-to-top-hashtag-analysis-tools-fbtwitterinsta/"><u>[Updated] Comprehensive Guide to Top Hashtag Analysis Tools (FB/Twitter/Insta)</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-flashfreeze-video-interruption-tip/"><u>[Updated] FlashFreeze Video Interruption Tip</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-unlocking-new-dimensions-in-physical-interaction-tech/"><u>[Updated] In 2024, Unlocking New Dimensions in Physical Interaction Tech</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-low-cost-action-cameras-list-for-less-than-100-savings-for-2024/"><u>[Updated] Low-Cost Action Cameras List for Less Than $100 Savings for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-transform-communication-top-free-mac-text-to-speech-software-rankings/"><u>[Updated] Transform Communication Top Free Mac Text-to-Speech Software Rankings</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-optimize-viewership-with-proficient-timestamp-placement-on-youtube/"><u>2024 Approved Optimize Viewership with Proficient Timestamp Placement on YouTube</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comparing-tp-link-archer-ax6-6000-with-nighthawk-ax12-performance-showdown/"><u>Comparing TP-Link Archer AX6# 6000 with Nighthawk AX12 - Performance Showdown</u></a></li>
-<li><a href="https://article-posts.techidaily.com/from-concept-to-reality-the-artisans-guide-to-lut-crafting-for-2024/"><u>From Concept to Reality The Artisan's Guide to LUT Crafting for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-10plus-best-photo-to-cartoon-softwares/"><u>In 2024, 10+ Best Photo to Cartoon Softwares</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Itel P40+? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-change-country-on-app-store-for-apple-iphone-13-mini-with-7-methods-by-drfone-ios/"><u>In 2024, How To Change Country on App Store for Apple iPhone 13 mini With 7 Methods</u></a></li>
-<li><a href="https://article-posts.techidaily.com/instantaneous-ease-in-podcast-broadcasts-for-2024/"><u>Instantaneous Ease in Podcast Broadcasts for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/the-platform-debate-which-appliance-prevails-podcast-or-youtube/"><u>The Platform Debate Which Appliance Prevails – Podcast or YouTube?</u></a></li>
-<li><a href="https://techtrends.techidaily.com/unveiling-the-power-and-potential-of-verizons-5g-infrastructure-where-we-stand-today/"><u>Unveiling the Power and Potential of Verizon's 5G Infrastructure: Where We Stand Today</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-capture-the-world-with-these-leading-4k-cams-for-2024/"><u>[New] Capture the World with These Leading 4K Cams for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rom-vlogs-to-viral-jake-pauls-online-empire-expansion-for-2024/"><u>[New] From Vlogs to Viral Jake Paul’s Online Empire Expansion for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-pro-tips-iphone-in-the-dark-spotlight/"><u>[Updated] 2024 Approved Pro Tips IPhone in the Dark Spotlight</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-unleash-the-power-of-split-window-on-netflix-platform/"><u>[Updated] 2024 Approved Unleash the Power of Split Window on Netflix Platform</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-anglers-guide-to-premium-fishing-cameras-for-2024/"><u>[Updated] Angler’s Guide to Premium Fishing Cameras for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-capturing-moments-like-never-before-toolwiz-apps-2023-review-for-2024/"><u>[Updated] Capturing Moments Like Never Before Toolwiz App's 2023 Review for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-from-start-to-finish-seamless-editing-with-kinemaster/"><u>[Updated] From Start to Finish Seamless Editing with Kinemaster</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-premier-tools-for-image-transformation-framecraft-pro/"><u>[Updated] In 2024, Premier Tools for Image Transformation FrameCraft Pro</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-top-5-budget-friendly-video-effect-tools/"><u>[Updated] In 2024, Top 5 Budget-Friendly Video Effect Tools</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-maximizing-your-youtube-potential-with-content-partnerships/"><u>2024 Approved Maximizing Your YouTube Potential with Content Partnerships</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-art-of-conveying-content-mastering-onestream-livestreams/"><u>2024 Approved The Art of Conveying Content Mastering OneStream Livestreams</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-turn-games-into-memories-no-fuss-nvidia-style/"><u>2024 Approved Turn Games Into Memories - No Fuss, NVIDIA Style</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/apple-iphone-7-plus-backup-password-never-set-but-still-asking-heres-the-fix-by-drfone-ios/"><u>Apple iPhone 7 Plus Backup Password Never Set But Still Asking? Heres the Fix</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/best-zero-cost-typewriting-courses-available-online-ideal-for-kids-to-seniors/"><u>Best Zero-Cost Typewriting Courses Available Online, Ideal for Kids to Seniors!</u></a></li>
+<li><a href="https://article-posts.techidaily.com/distinguished-directories-top-online-destinations-for-snapping-alert-tunes/"><u>Distinguished Directories Top Online Destinations for Snapping Alert Tunes</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/flight-sim-expertise-how-to-stop-microsoft-flight-simulator-2020-from-frequently-crashing-on-pcs/"><u>Flight Sim Expertise: How to Stop Microsoft Flight Simulator 2020 From Frequently Crashing on PCs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-podcastpivot-avoiding-dacasts-pitfalls/"><u>In 2024, PodcastPivot Avoiding DaCast's Pitfalls</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-makeup-mavens-handbook-youtube-edition/"><u>In 2024, The Makeup Maven’s Handbook YouTube Edition</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unboxing-the-kobo-nia-is-it-a-strong-contender-in-the-kindle-arena/"><u>Unboxing the Kobo Nia - Is It a Strong Contender in the Kindle Arena?</u></a></li>
 </ul></div>
 

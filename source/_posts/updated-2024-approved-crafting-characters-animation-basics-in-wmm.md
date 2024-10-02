@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Crafting Characters  Animation Basics in WMM\""
-date: 2024-09-25T20:13:05.733Z
-updated: 2024-09-26T21:44:22.077Z
+date: 2024-09-24T17:41:13.202Z
+updated: 2024-10-01T19:24:47.504Z
 tags: 
   - screen-recording
   - ai video
@@ -111,13 +111,6 @@ If you wish to clip off a section, go to "Edit" under "Video Tools" and choose t
 
 ![preview video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/preview-video-movie-maker.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step3Open the Animation Tab
 
 You may add two distinct types of animations—Transitions and Pan and Zoom—to video clips or photographs using the Animations window on the ribbon. The dropdown menu next to "Speed" in the "Edit" tab may be expanded to change the speed of a video clip. The 'Duration' dropdown menu allows you to choose how long a certain image will be shown in a movie.
@@ -125,10 +118,10 @@ You may add two distinct types of animations—Transitions and Pan and Zoom—to
 ![animation tab movie maker](https://images.wondershare.com/filmora/article-images/2022/09/animation-tab-movie-maker.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step4Add Transitions
@@ -138,10 +131,10 @@ Between two multimedia portions, a transition effect may be added. In the "Anima
 ![add transitions movie maker](https://images.wondershare.com/filmora/article-images/2022/09/add-transitions-movie-maker.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step5Save the Video
@@ -149,6 +142,13 @@ Between two multimedia portions, a transition effect may be added. In the "Anima
 When a transition is applied, a washed-out diagonal zone on the clip in the timeline indicates where the transition starts and finishes. Additionally, you have a choice in the sequence in which the effects are used. This may change how the movie is finally shown depending on the Effects, you choose. Once you're done, click Apply.
 
 ![save animation video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/save-animation-video-movie-maker.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2\. Movie Maker Alternative to Add Animations
 
@@ -177,10 +177,10 @@ Filmora helps you create your text animation using the controller window as seen
 The software's Preview window also allows you to preview the animation you've selected before adding it to the timeline with a few simple drag-and-drop actions. After finishing the production and editing of the instructional video, you may save it for distribution on social media. You may choose to save the document as an MP4, WMV, AVI, MOV, or even a GIF file.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. Related FAQs about Windows Movie Maker
@@ -221,24 +221,24 @@ Simple movies may be easily made using Windows Live Movie Maker. With Windows Vi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-expertly-designed-batteries-for-gopro-hero5-black/"><u>[New] Expertly Designed Batteries for GoPro Hero5 Black</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-10-preferred-top-free-image-editing-and-overlay-apps-for-phones/"><u>[New] In 2024, 10 Preferred Top-Free Image Editing & Overlay Apps for Phones</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-polaroid-cubeplus-action-camera-review/"><u>[New] In 2024, Polaroid Cube+ Action Camera Review</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-perfect-settings-for-live-broadcasts/"><u>[New] Perfect Settings for Live Broadcasts</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-top-ae-plug-ins-enhance-your-visual-storytelling/"><u>[New] Top AE Plug-Ins Enhance Your Visual Storytelling</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-unveiling-the-secrets-to-effective-fb-video-advertising-with-best-practices-for-2024/"><u>[New] Unveiling the Secrets to Effective FB Video Advertising with Best Practices for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-navigating-copyright-laws-for-instagram-music-postings/"><u>[Updated] In 2024, Navigating Copyright Laws for Instagram Music Postings</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-pioneering-companies-for-haptic-rich-views/"><u>[Updated] Pioneering Companies for Haptic-Rich Views</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-screensaviors-guide-global-and-regional-channels-led-by-you/"><u>[Updated] ScreenSaviors Guide Global and Regional Channels Led by You</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unveiling-drone-excellence-the-q500-experience/"><u>[Updated] Unveiling Drone Excellence The Q500 Experience</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-unveiling-the-ultimate-farming-tactics-in-valheim-for-2024/"><u>[Updated] Unveiling the Ultimate Farming Tactics in Valheim for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/bricked-your-honor-x50-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Honor X50? Heres A Full Solution | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-3-ways-to-erase-iphone-12-mini-when-its-locked-within-seconds-by-drfone-ios/"><u>In 2024, 3 Ways to Erase iPhone 12 mini When Its Locked Within Seconds</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-best-available-avi-player-cross-platform-compatibility/"><u>In 2024, Best Available AVi Player - Cross-Platform Compatibility</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/mastering-pc-hd-video-viewing-and-editing-with-windows-hdr-support/"><u>Mastering PC HD Video Viewing & Editing with Windows HDR Support</u></a></li>
-<li><a href="https://blog-min.techidaily.com/movavi-oferece-descontos-generosos-adquira-tudo-com-ate-10-de-desconto/"><u>Movavi Oferece Descontos Generosos – Adquira Tudo Com Até 10% De Desconto!</u></a></li>
-<li><a href="https://techtrends.techidaily.com/movavi-ferramenta-de-conversao-livre-mpg-para-clips-do-youtube-em-formato-mov/"><u>Movavi: Ferramenta De Conversão Livre MPG Para Clips Do YouTube Em Formato MOV</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-guide-installing-the-wd-ses-usb-drive-on-windows-8-and-above/"><u>Step-by-Step Guide: Installing the WD SES USB Drive on Windows 8 and Above</u></a></li>
-<li><a href="https://windows11.techidaily.com/win11-offline-the-essential-manual/"><u>Win11 Offline: The Essential Manual</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-simple-approach-to-getting-clownfish-voice-changer-on-windows/"><u>[New] 2024 Approved Simple Approach to Getting Clownfish Voice Changer on Windows</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-from-storyboards-to-shortcuts-instra-to-tiksync-guide-for-2024/"><u>[New] From Storyboards to Shortcuts Instra-to-TikSync Guide for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-effortless-online-subtitles-the-leading-free-services/"><u>[New] In 2024, Effortless Online Subtitles The Leading Free Services</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-15-camcorders-transforming-vlogger-content-creation-for-2024/"><u>[New] Top 15 Camcorders Transforming Vlogger Content Creation for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-ultimate-webcam-selection-for-podcasting-for-2024/"><u>[New] Ultimate Webcam Selection for Podcasting for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nlocking-facebook-integration-sharing-youtube-vids-with-ease/"><u>[New] Unlocking Facebook Integration Sharing YouTube Vids with Ease</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-ultimate-relaxation-top-10-mobile-idle-games/"><u>[Updated] 2024 Approved Ultimate Relaxation Top 10 Mobile Idle Games</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-clearer-view-deeper-insight-zoom-techniques-in-videoleap/"><u>[Updated] Clearer View, Deeper Insight Zoom Techniques in Videoleap</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-ditch-thumbnail-peek-turn-off-video-preview-yt/"><u>[Updated] Ditch Thumbnail Peek Turn Off Video Preview YT</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-20-most-reliable-hashtag-tracker-tools-fbtwitterinsta/"><u>[Updated] In 2024, 20 Most Reliable Hashtag Tracker Tools (FB/Twitter/Insta)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-review-and-insight-into-movavi-editor-plus-now-available-for-2024/"><u>[Updated] Review & Insight Into Movavi Editor Plus, Now Available for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-step-by-step-uploading-videos-to-tiktok-on-macwindows/"><u>[Updated] Step-by-Step Uploading Videos to TikTok on Mac/Windows</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-ultimate-5-display-choices-for-ps5/"><u>[Updated] Ultimate 5 Display Choices For PS5</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/fix-your-screen-flicker-steps-to-correct-known-graphic-driver-problems/"><u>Fix Your Screen Flicker: Steps to Correct Known Graphic Driver Problems</u></a></li>
+<li><a href="https://article-posts.techidaily.com/fundamentals-of-e-narrative-creation-for-2024/"><u>Fundamentals of E-Narrative Creation for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/harmonize-your-content-a-guide-to-musical-instagrams/"><u>Harmonize Your Content A Guide to Musical Instagrams</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-exit-recovery-mode-on-iphone-x-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit Recovery Mode on iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-guide-to-implementing-the-newest-connexant-driver-for-windows-10-v2004-upgrade/"><u>Step-by-Step Guide to Implementing the Newest Connexant Driver for Windows 10 v2004 Upgrade</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-15-no-cost-webcam-recording-tools-compatible-with-all-devices-movavi/"><u>Top 15 No-Cost Webcam Recording Tools Compatible with All Devices - Movavi</u></a></li>
 </ul></div>
 

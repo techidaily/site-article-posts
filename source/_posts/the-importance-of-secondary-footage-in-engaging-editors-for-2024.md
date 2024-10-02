@@ -1,7 +1,7 @@
 ---
 title: "The Importance of Secondary Footage in Engaging Editors for 2024"
-date: 2024-09-17T19:19:24.337Z
-updated: 2024-09-20T17:41:15.045Z
+date: 2024-09-25T16:07:00.711Z
+updated: 2024-10-01T18:37:40.532Z
 tags: 
   - screen-recording
   - ai video
@@ -45,16 +45,16 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. What types of b roll are there?
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Archival b roll footage
 
@@ -64,16 +64,16 @@ Aerial B roll is the solution when you like to show your viewers where your film
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Undirected b roll footage
 
@@ -84,6 +84,13 @@ This particular kind of B roll film is captured without any direction being give
 When you are sharing a narrative that has been told in the past or that has historical significance, incorporating archival material into your video gives your audience the opportunity to see the story as it occurred at the time. This is especially useful when you are discussing a narrative that has been experienced in the past or that has futuristic relevance.
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
 
@@ -96,16 +103,10 @@ If flaws were discovered during primary photography, the directors could have re
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
 
 <!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -140,5 +141,22 @@ We sincerely hope that this post will be of use to you in making your films more
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-premier-paint-shop-pro-tricks/"><u>[New] 2024 Approved Premier Paint Shop Pro Tricks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-360-degree-rigging-solutions-vr-production/"><u>[New] 360 Degree Rigging Solutions VR Production</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-best-affordable-tools-the-10-free-screen-sharing-platforms/"><u>[New] Best Affordable Tools The 10 Free Screen Sharing Platforms</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-evaluating-the-storage-power-of-64128gb-units-for-vids/"><u>[New] Evaluating the Storage Power of 64/128GB Units for Vids</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-auditory-logging-system-tones-and-voice-samples/"><u>[New] In 2024, Auditory Logging System Tones & Voice Samples</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-quick-hacks-for-ensuring-visual-discretion-in-photos/"><u>[New] In 2024, Quick Hacks for Ensuring Visual Discretion in Photos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-ultimate-visual-gear-top-10-cameras-in-4k-resolution-from-smartphones/"><u>[New] In 2024, Ultimate Visual Gear Top 10 Cameras in 4K Resolution From Smartphones</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-pinnacle-of-participation-chronicling-the-most-upvoted-posts-on-reddit/"><u>[Updated] 2024 Approved The Pinnacle of Participation Chronicling the Most Upvoted Posts on Reddit</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-pathfinding-your-way-from-adsense-to-accounts-aplenty/"><u>[Updated] In 2024, Pathfinding Your Way From AdSense to Accounts Aplenty</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-masterclass-for-viral-talent/"><u>[Updated] Masterclass for Viral Talent</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-understanding-cloud-pricing-models-and-savings-strategies/"><u>2024 Approved Understanding Cloud Pricing Models & Savings Strategies</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/complete-picture-guide-to-vsco-app/"><u>Complete Picture Guide to VSCO App</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/cutting-edge-collection-no-cost-ae-template-suite/"><u>Cutting-Edge Collection No-Cost AE Template Suite</u></a></li>
+<li><a href="https://article-posts.techidaily.com/maximizing-allure-essential-strategies-for-stellar-instagram-unboxing-videos/"><u>Maximizing Allure Essential Strategies for Stellar Instagram Unboxing Videos</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Monochrome to Motion  The Ultimate Guide to Making Videos with Pixiz for 2024\""
-date: 2024-09-22T21:25:58.621Z
-updated: 2024-09-26T21:50:25.523Z
+date: 2024-09-28T20:07:42.642Z
+updated: 2024-10-02T02:40:07.827Z
 tags: 
   - screen-recording
   - ai video
@@ -65,13 +65,6 @@ Step3Click on the select photo option and choose a photo.
 
 ![choose a photo](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4You can add more photos, in the same way, one by one (till the maximum number). Check below if the template you've chosen has the option to control the effect and speed (optional). Then, click on the **Go** button.
 
 ![click on go button](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-4.jpg)
@@ -81,10 +74,10 @@ Step5Now click on download and then save. Your photo video will be saved in GIF 
 ![click on download and save](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2\. The best software for creating slideshows - [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -97,6 +90,13 @@ The powerful video editing program Filmora is offered by Wondershare. It offers 
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How do you make photo videos using Filmora?
 
 Step1Download [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) from official website and click the setup wait till it install.
@@ -109,35 +109,42 @@ Step3**Import** photos by **clicking** (import media) and then drag and drop the
 
 ![import photos](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 **Double-click the photo** to open options to make your photos fit the screen (in case there is a gap on the sides). A new box will appear. Under the primary option, click the **transform tab**. You can **increase** the **scale** option to make the photo fit.
 
 ![option to make the photo fit](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step5**Click** on the **Title** option in the top right and select the **title template**. **Drag and drop** the **title template** at the point of the video you want it to appear.
 
 ![click on the title](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step6**Double click the text** to open the box for **making edits in text**, font, color, and other options.
 
 ![double click on the text box](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step7Let's add some music. **Click** the **audio tab** at the top right. Now **choose** some **music** and then **drag and drop** to add.
 
 ![add some music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-11.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step8You can **double-click** the music to open the **settings box** and make changes.
 
@@ -147,16 +154,16 @@ Step9To make your slideshow more appealing, you can also add transitions or effe
 
 ![add transitions or effects](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-13.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step10After finishing all the editing, you can export your creation to any format you want.
 
 ![export creation to any format](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-14.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -168,6 +175,13 @@ So, Pixiz is an excellent service to make photo videos online by just uploading 
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How do you make photo videos using Filmora?
 
 Step1Download [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) from official website and click the setup wait till it install.
@@ -179,13 +193,6 @@ Step2Now **open** **Filmora** and **click** **new project**.
 Step3**Import** photos by **clicking** (import media) and then drag and drop them.
 
 ![import photos](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4 **Double-click the photo** to open options to make your photos fit the screen (in case there is a gap on the sides). A new box will appear. Under the primary option, click the **transform tab**. You can **increase** the **scale** option to make the photo fit.
 
@@ -199,13 +206,6 @@ Step6**Double click the text** to open the box for **making edits in text**, fon
 
 ![double click on the text box](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step7Let's add some music. **Click** the **audio tab** at the top right. Now **choose** some **music** and then **drag and drop** to add.
 
 ![add some music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-11.jpg)
@@ -215,10 +215,10 @@ Step8You can **double-click** the music to open the **settings box** and make ch
 ![change music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step9To make your slideshow more appealing, you can also add transitions or effects.
@@ -261,16 +261,22 @@ So, Pixiz is an excellent service to make photo videos online by just uploading 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-steps-to-uncover-youtubes-central-editing-nexus/"><u>[New] 2024 Approved Steps to Uncover YouTube’s Central Editing Nexus</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-ideal-sites-to-discover-3d-golden-tinted-typography-for-2024/"><u>[New] Ideal Sites to Discover 3D Golden Tinted Typography for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-behind-the-scenes-how-to-flip-your-snaps/"><u>[New] In 2024, Behind-the-Scenes How to Flip Your Snaps</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-turning-shorts-into-cash-youtube-guide/"><u>[New] Turning Shorts Into Cash YouTube Guide</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-peekintobettercams-beyond-mycam/"><u>[Updated] In 2024, PeekIntoBetterCams Beyond MyCam?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twit-favorites-of-the-year-amazon-primes-peak-series/"><u>[Updated] In 2024, Twit-Favorites of the Year Amazon Prime's Peak Series</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-quintessential-5-for-elevated-slow-videos/"><u>[Updated] Quintessential 5 for Elevated Slow Videos</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-shoot-the-worlds-hustle-and-bustle-iphone-tips-for-shutter-speed-blurs-for-2024/"><u>[Updated] Shoot the World's Hustle and Bustle IPhone Tips for Shutter Speed Blurs for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-visionary-logo-tactics-elevating-your-podcasts-look-for-2024/"><u>[Updated] Visionary Logo Tactics Elevating Your Podcast's Look for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-motorola-g54-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Motorola G54 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/helio-ring-by-amazfit-unveiling-the-costs-arrival-timeline-and-device-features/"><u>Helio Ring by Amazfit: Unveiling the Costs, Arrival Timeline, and Device Features</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-a-practical-guide-to-downloading-audio-content-from-pinterest/"><u>[New] 2024 Approved A Practical Guide to Downloading Audio Content From Pinterest</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/omprehensively-reviewing-youtubes-restrictions-vs-cc-flexibility-for-2024/"><u>[New] Comprehensively Reviewing YouTube's Restrictions Vs. CC Flexibility for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-monitor-metamorphosis-from-standard-to-stunning-with-asus-mg28uq/"><u>[New] In 2024, Monitor Metamorphosis From Standard to Stunning With ASUS MG28UQ</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-leading-free-cam-stream-and-recorder-tool/"><u>[New] Leading Free Cam Stream & Recorder Tool</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-pilots-toolkit-top-drones-must-have-gear-and-replacements/"><u>[New] Pilot's Toolkit Top Drones Must-Have Gear and Replacements</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-quintet-at-the-pinnacle-youtube-subscribers/"><u>[New] The Quintet at the Pinnacle YouTube Subscribers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-today-in-virtual-reality-hardware-for-2024/"><u>[New] Today in Virtual Reality Hardware for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-apk-gaming-revolution-welcome-funimate-pro-android-edition/"><u>[Updated] APK Gaming Revolution Welcome Funimate Pro Android Edition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-guidance-for-effortless-addition-of-youtube-playlists-to-your-site/"><u>[Updated] Guidance for Effortless Addition of YouTube Playlists to Your Site</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-exploring-the-power-of-yi-4k-cameras/"><u>[Updated] In 2024, Exploring the Power of YI 4K Cameras</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-the-hidden-paths-techniques-to-skip-without-watching-edgenuity-videos/"><u>[Updated] In 2024, The Hidden Paths Techniques to Skip Without Watching Edgenuity Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unveiling-the-next-gen-cinema-through-vr/"><u>[Updated] Unveiling the Next Gen Cinema Through VR</u></a></li>
+<li><a href="https://win-forum.techidaily.com/mkv-m4v-movavi/"><u>線上無架限 高效率 MKV 到 M4V 影片轉換工具 - 全功能 Movavi 編輯解碼器</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/complete-tutorial-on-disabling-the-ai-assistant-copilot-from-windows-11/"><u>Complete Tutorial on Disabling the AI Assistant, Copilot, From Windows 11</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-efficiently-manipulate-iphone-images-to-your-desired-scale/"><u>In 2024, Efficiently Manipulate iPhone Images to Your Desired Scale</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Oppo Reno 10 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/resolving-itunes-update-issues-for-a-smooth-music-experience-on-windows-and-macos/"><u>Resolving iTunes Update Issues for a Smooth Music Experience on Windows & macOS</u></a></li>
 </ul></div>
 

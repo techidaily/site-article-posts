@@ -1,7 +1,7 @@
 ---
 title: "\"Revamping Your Windows 11 Photo Viewer  Add Filters and Background Music\""
-date: 2024-09-13T17:04:56.016Z
-updated: 2024-09-20T17:21:10.205Z
+date: 2024-10-01T02:45:41.928Z
+updated: 2024-10-01T19:25:50.536Z
 tags: 
   - screen-recording
   - ai video
@@ -58,6 +58,13 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 **Step 5**: Just select one you like. Preview it and then click Done.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to add music on Windows 10 Photos App
 
 Now that you have learnt how to **_add filters using Windows 10 Photos app._** Do you think there is any possibility regarding adding music over it? Adding music to your video would make it more enjoyable. The artificial intelligence feature on Windows 10 Photos app helps it add music to videos with a single click. It’s easy to do, but meanwhile there will be some twitches to the way artificial intelligence videos show up as you try to match the volume and tempo of the music. But, you can do it with the help of default Microsoft tools.
@@ -70,9 +77,23 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 5**: Hit the ‘Done’ button.
 
@@ -81,6 +102,13 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -105,12 +133,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-integrate-and-play-srt-files-on-windowsmacos/"><u>[New] 2024 Approved Integrate and Play SRT Files on Windows/macOS</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-complete-guide-to-morphvox-voice-changer/"><u>[Updated] In 2024, Complete Guide to MorphVOX Voice Changer</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-optimizing-engagement-on-igtv-through-thoughtful-dimension-tweaks-for-2024/"><u>[Updated] Optimizing Engagement on IGTV Through Thoughtful Dimension Tweaks for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-hands-free-tricks-capturing-gotomeetings-on-the-fly/"><u>2024 Approved Hands-Free Tricks Capturing GoToMeetings on the Fly</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-perfect-plays-in-a-minute-tiktok-templates-for-stellar-videos/"><u>2024 Approved Perfect Plays in a Minute TikTok Templates for Stellar Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/elevate-your-media-creation-skills-with-windows-11-tips-for-2024/"><u>Elevate Your Media Creation Skills with Windows 11 Tips for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-aligning-with-audience-habits-in-podcast-releases/"><u>In 2024, Aligning with Audience Habits in Podcast Releases</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-honor-play-40c-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Honor Play 40C to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/top-5-best-fluid-simulation-games-for-you/"><u>Top 5 Best Fluid Simulation Games for You</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-6-coupons-and-discounts-sites-save-big-on-every-purchase/"><u>Top 6 Coupons & Discounts Sites: Save Big on Every Purchase</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-and-solutions-for-midgard-the-tribal-clashes/"><u>Troubleshooting and Solutions for Midgard: The Tribal Clashes</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unveiling-the-secrets-of-apple-music-in-videos-for-2024/"><u>Unveiling the Secrets of Apple Music in Videos for 2024</u></a></li>
+</ul></div>
 

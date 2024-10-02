@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Filmmaker's Toolkit for Dynamic Video Colors"
-date: 2024-09-25T19:11:41.808Z
-updated: 2024-09-26T16:29:16.593Z
+date: 2024-09-28T20:46:25.029Z
+updated: 2024-10-02T05:10:15.939Z
 tags: 
   - screen-recording
   - ai video
@@ -87,13 +87,6 @@ Alternatively, color grading for documentaries focuses on color accuracy. As suc
 
 The above is a snippet of how color grading will affect your videos. However, you will get more insight into its effects in the next section.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 7 Types of Color Grading that are Worth Trying
 
 Simply put, color grading is the play on colors to achieve a specific finish. As such, here are seven types of color grading worth trying in your next video project.
@@ -127,281 +120,6 @@ Bleach bypass color grading involves you emphasizing the color contrast in your 
 You can observe the effect of bleach bypass color grading in the movie 300\. The producer offers a stark contrast between colors, especially with red. Below is how bleach bypass color grading will affect your video.
 
 ![different type of color grading - bleach bypass color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-4.jpg)
-
-#### 5\. Cross processing color grading
-
-The technique involves applying opposite adjustments to colors in your video. The result is extreme color shifts leaving your video with an unconventional look.
-
-![different type of color grading - Cross processing color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-5.jpg)
-
-#### 6\. High Key Saturated color grading
-
-In high key saturated color grading, you will make edits on the hue and saturation levels of your video’s color scheme. You may also have to adjust contrast levels to prevent one color from dominating the rest. As a result, your video features bright and color-rich scenes. Here is an example of the technique in use.
-
-![different type of color grading - High Key Saturated color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-6.jpg)
-
-#### 7\. Triadic color grading
-
-Triadic color grading involves using evenly-spaced colors on the color wheel. You select a dominant color for your video and use the other two to complement it. Consequently, you focus your audience’s attention on a singular subject in your video. Although triadic color grading is losing popularity, you can apply it to your videos for a unique vintage look.
-
-Examples of triadic color schemes include red-yellow-blue or purple-green-orange. Here is a sample of how to apply vintage color grading using triadic colors.
-
-![different type of color grading - Triadic color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-7.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Conclusion
-
-**●** As you can see, there is a lot you can achieve when using color grading. You can influence emotions, set a theme or create your unique identity as a video artist. The above types of color grading cover each creative spectrum and provide you with a solid base to specialize your creativity. It is time to start raking in those views or what do you think?
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-What makes an excellent picture? A high-end camera and perfect weather conditions?
-
-Although the above is true, most of the magic happens during editing. You will need a decent video editing program and a few techniques to apply exquisite finishes to your creations. Some of the techniques you can use include white balancing, exposure adjustments, and color grading. For example, applying vintage color grading to your photos gives them a retro look while maintaining a flawless finish.
-
-As you keep reading, you will discover the seven types of color grading that are worth trying, regardless of the software you use. Additionally, you will also find recommendations on where to get additional resources for your color grading projects.
-
-#### In this article
-
-01 [How different types of color grading affect your video.](#part1)
-
-02 [7 Types of Color Grading that are Worth Trying](#part2)
-
-## How different types of color grading affect your video
-
-Before exploring how different types of color grading affect your video, it is essential to know what the technique involves. Color grading refers to a video editing technique that involves manipulating the hues of your original footage to achieve a specific look. You do this as part of your post-production process and require you to have specialist software.
-
-Popular video editing software includes Adobe After Effects, Apple Final Cut Pro, and Filmora, with each offering you different degrees of usability and video editing tools. Nevertheless, color grading is an essential part of filmmaking and can be the secret sauce to you becoming an elite video maker.
-
-#### 1\. Your camera is genre-less
-
-Your camera equipment only determines the quality of video you will produce. As such, you need to edit it further to present your message precisely. For example, your desert video can be the backdrop for a horror film or romantic comedy. However, your audience may struggle to make the distinction when viewing the video in its original form.
-
-Therefore, applying techniques like color grading can help you lead them to the genre you want to depict. You will learn more about this as you read further down.
-
-#### 2\. Your creative identity
-
-The other reason for color grading is purely artistic. As a videographer, you would like audiences to instantly recognize your work, without them looking at the credits. Color grading can help you achieve this, provided you remain consistent in your editing.
-
-For example, British filmmaker Christopher Nolan is famous for his use of film as compared to digital video, which allows him to portray color in its raw natural form. You can see this in the movie The Dark Night, where he emphasizes shadows by applying different shades of black and gray to his scenes.
-
-With the justifications for the technique out of the way, here is how different types of color grading will affect your videos.
-
-#### • It can help you set a timeline for your video
-
-Do you know that certain color schemes are specific to an era? Before you go down a rabbit hole of misinformation, here is a quick overview to get you up to speed.
-
-Back in the day, most photos and videos were shot using film and incandescent lighting. As such, videos of that era had a similar color scheme due to the lack of variety in equipment. However, current technology makes it difficult to revert to those times with camera manufacturers focusing more on the technical aspects. For example, you now have smartphones that offer up to 50X zoom, which was unheard of in the 1930s.
-
-So, how do you tell your audience that your video is from a bygone era? Unless you have access to a 70-year-old-camera, color grading is your only option. Typically, old westerns and classical films are synonymous with warm colors. Therefore, you can apply warm color grading or vintage color grading to achieve a similar look. For example, Hollywood directors brown wash their films to signify historical times.
-
-#### • Color grading is an essential tool to elicit emotions
-
-Which color is anger? According to psychologists, different colors can represent emotions. That is why most romantic comedies feature warm colors and more serious flicks emphasize cool colors.
-
-For example, you can use teal and orange color grading to inspire a feeling of warmth and joy in your video. The colors are opposites, meaning they contrast impeccably and vary between emotions if you apply them correctly.
-
-#### • Set a genre with color grading
-
-You can also use color grading to inform audiences of the genre of your video. For example, horror films focus on red color grading to make you feel on edge and inspire fear. Your focus is more on the artistic effect, and you can achieve different levels of terror, depending on your edit.
-
-Alternatively, color grading for documentaries focuses on color accuracy. As such, you will apply color grades that emphasize the natural colors of your subject matter. For example, if you are editing a travel vlog, using orange teal color grading can better highlight the skin tones of participants.
-
-The above is a snippet of how color grading will affect your videos. However, you will get more insight into its effects in the next section.
-
-## 7 Types of Color Grading that are Worth Trying
-
-Simply put, color grading is the play on colors to achieve a specific finish. As such, here are seven types of color grading worth trying in your next video project.
-
-#### 1\. Analogous Color Grading
-
-Analogous color grading involves applying colors next to each other on the color wheel. For example, you can apply warm color grading to your video by using different levels of red and orange. As a result, you create a sense of harmony in your video.
-
-Analogous color grading is best for landscape and nature videos. Here is a sample of how to use this type of color grading.
-
-![different type of color grading - analogous color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-1.jpg)
-
-In this picture, director Ridley Scott applies orange teal color grading to highlight the sand and peaks. Additionally, the sky has lost its blue color, resulting in an alien planet feel.
-
-#### 2\. Moody color grading
-
-The technique involves employing cool colors to create a sense of mystery and intrigue. It works best for scenes with lots of shadows and dim lighting. As such, you only need to adjust the contrast to articulate the effect.
-
-![different type of color grading - moody color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-2.jpg)
-
-#### 3\. Vintage color grading
-
-Vintage color grading applies a retro look to your video, allowing you to depict a sense of nostalgia from your audience. Filmmakers use this type of color grading in flashback scenes or movies that represent a specific time in history. It involves toning down your contrast levels and highlighting the warm colors. Below is a sample of vintage color grading.
-
-![different type of color grading - vintage color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-3.jpg)
-
-#### 4\. Bleach Bypass
-
-Bleach bypass color grading involves you emphasizing the color contrast in your video with little regard to each color’s saturation. As a result, your video projects a sense of chaos since the colors do not blend seamlessly.
-
-You can observe the effect of bleach bypass color grading in the movie 300\. The producer offers a stark contrast between colors, especially with red. Below is how bleach bypass color grading will affect your video.
-
-![different type of color grading - bleach bypass color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-#### 5\. Cross processing color grading
-
-The technique involves applying opposite adjustments to colors in your video. The result is extreme color shifts leaving your video with an unconventional look.
-
-![different type of color grading - Cross processing color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-5.jpg)
-
-#### 6\. High Key Saturated color grading
-
-In high key saturated color grading, you will make edits on the hue and saturation levels of your video’s color scheme. You may also have to adjust contrast levels to prevent one color from dominating the rest. As a result, your video features bright and color-rich scenes. Here is an example of the technique in use.
-
-![different type of color grading - High Key Saturated color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-6.jpg)
-
-#### 7\. Triadic color grading
-
-Triadic color grading involves using evenly-spaced colors on the color wheel. You select a dominant color for your video and use the other two to complement it. Consequently, you focus your audience’s attention on a singular subject in your video. Although triadic color grading is losing popularity, you can apply it to your videos for a unique vintage look.
-
-Examples of triadic color schemes include red-yellow-blue or purple-green-orange. Here is a sample of how to apply vintage color grading using triadic colors.
-
-![different type of color grading - Triadic color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Conclusion
-
-**●** As you can see, there is a lot you can achieve when using color grading. You can influence emotions, set a theme or create your unique identity as a video artist. The above types of color grading cover each creative spectrum and provide you with a solid base to specialize your creativity. It is time to start raking in those views or what do you think?
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-What makes an excellent picture? A high-end camera and perfect weather conditions?
-
-Although the above is true, most of the magic happens during editing. You will need a decent video editing program and a few techniques to apply exquisite finishes to your creations. Some of the techniques you can use include white balancing, exposure adjustments, and color grading. For example, applying vintage color grading to your photos gives them a retro look while maintaining a flawless finish.
-
-As you keep reading, you will discover the seven types of color grading that are worth trying, regardless of the software you use. Additionally, you will also find recommendations on where to get additional resources for your color grading projects.
-
-#### In this article
-
-01 [How different types of color grading affect your video.](#part1)
-
-02 [7 Types of Color Grading that are Worth Trying](#part2)
-
-## How different types of color grading affect your video
-
-Before exploring how different types of color grading affect your video, it is essential to know what the technique involves. Color grading refers to a video editing technique that involves manipulating the hues of your original footage to achieve a specific look. You do this as part of your post-production process and require you to have specialist software.
-
-Popular video editing software includes Adobe After Effects, Apple Final Cut Pro, and Filmora, with each offering you different degrees of usability and video editing tools. Nevertheless, color grading is an essential part of filmmaking and can be the secret sauce to you becoming an elite video maker.
-
-#### 1\. Your camera is genre-less
-
-Your camera equipment only determines the quality of video you will produce. As such, you need to edit it further to present your message precisely. For example, your desert video can be the backdrop for a horror film or romantic comedy. However, your audience may struggle to make the distinction when viewing the video in its original form.
-
-Therefore, applying techniques like color grading can help you lead them to the genre you want to depict. You will learn more about this as you read further down.
-
-#### 2\. Your creative identity
-
-The other reason for color grading is purely artistic. As a videographer, you would like audiences to instantly recognize your work, without them looking at the credits. Color grading can help you achieve this, provided you remain consistent in your editing.
-
-For example, British filmmaker Christopher Nolan is famous for his use of film as compared to digital video, which allows him to portray color in its raw natural form. You can see this in the movie The Dark Night, where he emphasizes shadows by applying different shades of black and gray to his scenes.
-
-With the justifications for the technique out of the way, here is how different types of color grading will affect your videos.
-
-#### • It can help you set a timeline for your video
-
-Do you know that certain color schemes are specific to an era? Before you go down a rabbit hole of misinformation, here is a quick overview to get you up to speed.
-
-Back in the day, most photos and videos were shot using film and incandescent lighting. As such, videos of that era had a similar color scheme due to the lack of variety in equipment. However, current technology makes it difficult to revert to those times with camera manufacturers focusing more on the technical aspects. For example, you now have smartphones that offer up to 50X zoom, which was unheard of in the 1930s.
-
-So, how do you tell your audience that your video is from a bygone era? Unless you have access to a 70-year-old-camera, color grading is your only option. Typically, old westerns and classical films are synonymous with warm colors. Therefore, you can apply warm color grading or vintage color grading to achieve a similar look. For example, Hollywood directors brown wash their films to signify historical times.
-
-#### • Color grading is an essential tool to elicit emotions
-
-Which color is anger? According to psychologists, different colors can represent emotions. That is why most romantic comedies feature warm colors and more serious flicks emphasize cool colors.
-
-For example, you can use teal and orange color grading to inspire a feeling of warmth and joy in your video. The colors are opposites, meaning they contrast impeccably and vary between emotions if you apply them correctly.
-
-#### • Set a genre with color grading
-
-You can also use color grading to inform audiences of the genre of your video. For example, horror films focus on red color grading to make you feel on edge and inspire fear. Your focus is more on the artistic effect, and you can achieve different levels of terror, depending on your edit.
-
-Alternatively, color grading for documentaries focuses on color accuracy. As such, you will apply color grades that emphasize the natural colors of your subject matter. For example, if you are editing a travel vlog, using orange teal color grading can better highlight the skin tones of participants.
-
-The above is a snippet of how color grading will affect your videos. However, you will get more insight into its effects in the next section.
-
-## 7 Types of Color Grading that are Worth Trying
-
-Simply put, color grading is the play on colors to achieve a specific finish. As such, here are seven types of color grading worth trying in your next video project.
-
-#### 1\. Analogous Color Grading
-
-Analogous color grading involves applying colors next to each other on the color wheel. For example, you can apply warm color grading to your video by using different levels of red and orange. As a result, you create a sense of harmony in your video.
-
-Analogous color grading is best for landscape and nature videos. Here is a sample of how to use this type of color grading.
-
-![different type of color grading - analogous color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-In this picture, director Ridley Scott applies orange teal color grading to highlight the sand and peaks. Additionally, the sky has lost its blue color, resulting in an alien planet feel.
-
-#### 2\. Moody color grading
-
-The technique involves employing cool colors to create a sense of mystery and intrigue. It works best for scenes with lots of shadows and dim lighting. As such, you only need to adjust the contrast to articulate the effect.
-
-![different type of color grading - moody color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-2.jpg)
-
-#### 3\. Vintage color grading
-
-Vintage color grading applies a retro look to your video, allowing you to depict a sense of nostalgia from your audience. Filmmakers use this type of color grading in flashback scenes or movies that represent a specific time in history. It involves toning down your contrast levels and highlighting the warm colors. Below is a sample of vintage color grading.
-
-![different type of color grading - vintage color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-3.jpg)
-
-#### 4\. Bleach Bypass
-
-Bleach bypass color grading involves you emphasizing the color contrast in your video with little regard to each color’s saturation. As a result, your video projects a sense of chaos since the colors do not blend seamlessly.
-
-You can observe the effect of bleach bypass color grading in the movie 300\. The producer offers a stark contrast between colors, especially with red. Below is how bleach bypass color grading will affect your video.
-
-![different type of color grading - bleach bypass color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-4.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 5\. Cross processing color grading
 
@@ -495,6 +213,13 @@ Analogous color grading is best for landscape and nature videos. Here is a sampl
 
 ![different type of color grading - analogous color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 In this picture, director Ridley Scott applies orange teal color grading to highlight the sand and peaks. Additionally, the sky has lost its blue color, resulting in an alien planet feel.
 
 #### 2\. Moody color grading
@@ -502,13 +227,6 @@ In this picture, director Ridley Scott applies orange teal color grading to high
 The technique involves employing cool colors to create a sense of mystery and intrigue. It works best for scenes with lots of shadows and dim lighting. As such, you only need to adjust the contrast to articulate the effect.
 
 ![different type of color grading - moody color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 3\. Vintage color grading
 
@@ -537,16 +255,151 @@ In high key saturated color grading, you will make edits on the hue and saturati
 ![different type of color grading - High Key Saturated color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-6.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983471">
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+#### 7\. Triadic color grading
+
+Triadic color grading involves using evenly-spaced colors on the color wheel. You select a dominant color for your video and use the other two to complement it. Consequently, you focus your audience’s attention on a singular subject in your video. Although triadic color grading is losing popularity, you can apply it to your videos for a unique vintage look.
+
+Examples of triadic color schemes include red-yellow-blue or purple-green-orange. Here is a sample of how to apply vintage color grading using triadic colors.
+
+![different type of color grading - Triadic color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-7.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982596">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Conclusion
+
+**●** As you can see, there is a lot you can achieve when using color grading. You can influence emotions, set a theme or create your unique identity as a video artist. The above types of color grading cover each creative spectrum and provide you with a solid base to specialize your creativity. It is time to start raking in those views or what do you think?
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+What makes an excellent picture? A high-end camera and perfect weather conditions?
+
+Although the above is true, most of the magic happens during editing. You will need a decent video editing program and a few techniques to apply exquisite finishes to your creations. Some of the techniques you can use include white balancing, exposure adjustments, and color grading. For example, applying vintage color grading to your photos gives them a retro look while maintaining a flawless finish.
+
+As you keep reading, you will discover the seven types of color grading that are worth trying, regardless of the software you use. Additionally, you will also find recommendations on where to get additional resources for your color grading projects.
+
+#### In this article
+
+01 [How different types of color grading affect your video.](#part1)
+
+02 [7 Types of Color Grading that are Worth Trying](#part2)
+
+## How different types of color grading affect your video
+
+Before exploring how different types of color grading affect your video, it is essential to know what the technique involves. Color grading refers to a video editing technique that involves manipulating the hues of your original footage to achieve a specific look. You do this as part of your post-production process and require you to have specialist software.
+
+Popular video editing software includes Adobe After Effects, Apple Final Cut Pro, and Filmora, with each offering you different degrees of usability and video editing tools. Nevertheless, color grading is an essential part of filmmaking and can be the secret sauce to you becoming an elite video maker.
+
+#### 1\. Your camera is genre-less
+
+Your camera equipment only determines the quality of video you will produce. As such, you need to edit it further to present your message precisely. For example, your desert video can be the backdrop for a horror film or romantic comedy. However, your audience may struggle to make the distinction when viewing the video in its original form.
+
+Therefore, applying techniques like color grading can help you lead them to the genre you want to depict. You will learn more about this as you read further down.
+
+#### 2\. Your creative identity
+
+The other reason for color grading is purely artistic. As a videographer, you would like audiences to instantly recognize your work, without them looking at the credits. Color grading can help you achieve this, provided you remain consistent in your editing.
+
+For example, British filmmaker Christopher Nolan is famous for his use of film as compared to digital video, which allows him to portray color in its raw natural form. You can see this in the movie The Dark Night, where he emphasizes shadows by applying different shades of black and gray to his scenes.
+
+With the justifications for the technique out of the way, here is how different types of color grading will affect your videos.
+
+#### • It can help you set a timeline for your video
+
+Do you know that certain color schemes are specific to an era? Before you go down a rabbit hole of misinformation, here is a quick overview to get you up to speed.
+
+Back in the day, most photos and videos were shot using film and incandescent lighting. As such, videos of that era had a similar color scheme due to the lack of variety in equipment. However, current technology makes it difficult to revert to those times with camera manufacturers focusing more on the technical aspects. For example, you now have smartphones that offer up to 50X zoom, which was unheard of in the 1930s.
+
+So, how do you tell your audience that your video is from a bygone era? Unless you have access to a 70-year-old-camera, color grading is your only option. Typically, old westerns and classical films are synonymous with warm colors. Therefore, you can apply warm color grading or vintage color grading to achieve a similar look. For example, Hollywood directors brown wash their films to signify historical times.
+
+#### • Color grading is an essential tool to elicit emotions
+
+Which color is anger? According to psychologists, different colors can represent emotions. That is why most romantic comedies feature warm colors and more serious flicks emphasize cool colors.
+
+For example, you can use teal and orange color grading to inspire a feeling of warmth and joy in your video. The colors are opposites, meaning they contrast impeccably and vary between emotions if you apply them correctly.
+
+#### • Set a genre with color grading
+
+You can also use color grading to inform audiences of the genre of your video. For example, horror films focus on red color grading to make you feel on edge and inspire fear. Your focus is more on the artistic effect, and you can achieve different levels of terror, depending on your edit.
+
+Alternatively, color grading for documentaries focuses on color accuracy. As such, you will apply color grades that emphasize the natural colors of your subject matter. For example, if you are editing a travel vlog, using orange teal color grading can better highlight the skin tones of participants.
+
+The above is a snippet of how color grading will affect your videos. However, you will get more insight into its effects in the next section.
+
+## 7 Types of Color Grading that are Worth Trying
+
+Simply put, color grading is the play on colors to achieve a specific finish. As such, here are seven types of color grading worth trying in your next video project.
+
+#### 1\. Analogous Color Grading
+
+Analogous color grading involves applying colors next to each other on the color wheel. For example, you can apply warm color grading to your video by using different levels of red and orange. As a result, you create a sense of harmony in your video.
+
+Analogous color grading is best for landscape and nature videos. Here is a sample of how to use this type of color grading.
+
+![different type of color grading - analogous color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-1.jpg)
+
+In this picture, director Ridley Scott applies orange teal color grading to highlight the sand and peaks. Additionally, the sky has lost its blue color, resulting in an alien planet feel.
+
+#### 2\. Moody color grading
+
+The technique involves employing cool colors to create a sense of mystery and intrigue. It works best for scenes with lots of shadows and dim lighting. As such, you only need to adjust the contrast to articulate the effect.
+
+![different type of color grading - moody color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+#### 3\. Vintage color grading
+
+Vintage color grading applies a retro look to your video, allowing you to depict a sense of nostalgia from your audience. Filmmakers use this type of color grading in flashback scenes or movies that represent a specific time in history. It involves toning down your contrast levels and highlighting the warm colors. Below is a sample of vintage color grading.
+
+![different type of color grading - vintage color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-3.jpg)
+
+#### 4\. Bleach Bypass
+
+Bleach bypass color grading involves you emphasizing the color contrast in your video with little regard to each color’s saturation. As a result, your video projects a sense of chaos since the colors do not blend seamlessly.
+
+You can observe the effect of bleach bypass color grading in the movie 300\. The producer offers a stark contrast between colors, especially with red. Below is how bleach bypass color grading will affect your video.
+
+![different type of color grading - bleach bypass color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-4.jpg)
+
+#### 5\. Cross processing color grading
+
+The technique involves applying opposite adjustments to colors in your video. The result is extreme color shifts leaving your video with an unconventional look.
+
+![different type of color grading - Cross processing color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-5.jpg)
+
+#### 6\. High Key Saturated color grading
+
+In high key saturated color grading, you will make edits on the hue and saturation levels of your video’s color scheme. You may also have to adjust contrast levels to prevent one color from dominating the rest. As a result, your video features bright and color-rich scenes. Here is an example of the technique in use.
+
+![different type of color grading - High Key Saturated color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 7\. Triadic color grading
@@ -556,6 +409,141 @@ Triadic color grading involves using evenly-spaced colors on the color wheel. Yo
 Examples of triadic color schemes include red-yellow-blue or purple-green-orange. Here is a sample of how to apply vintage color grading using triadic colors.
 
 ![different type of color grading - Triadic color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-7.jpg)
+
+## Conclusion
+
+**●** As you can see, there is a lot you can achieve when using color grading. You can influence emotions, set a theme or create your unique identity as a video artist. The above types of color grading cover each creative spectrum and provide you with a solid base to specialize your creativity. It is time to start raking in those views or what do you think?
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+What makes an excellent picture? A high-end camera and perfect weather conditions?
+
+Although the above is true, most of the magic happens during editing. You will need a decent video editing program and a few techniques to apply exquisite finishes to your creations. Some of the techniques you can use include white balancing, exposure adjustments, and color grading. For example, applying vintage color grading to your photos gives them a retro look while maintaining a flawless finish.
+
+As you keep reading, you will discover the seven types of color grading that are worth trying, regardless of the software you use. Additionally, you will also find recommendations on where to get additional resources for your color grading projects.
+
+#### In this article
+
+01 [How different types of color grading affect your video.](#part1)
+
+02 [7 Types of Color Grading that are Worth Trying](#part2)
+
+## How different types of color grading affect your video
+
+Before exploring how different types of color grading affect your video, it is essential to know what the technique involves. Color grading refers to a video editing technique that involves manipulating the hues of your original footage to achieve a specific look. You do this as part of your post-production process and require you to have specialist software.
+
+Popular video editing software includes Adobe After Effects, Apple Final Cut Pro, and Filmora, with each offering you different degrees of usability and video editing tools. Nevertheless, color grading is an essential part of filmmaking and can be the secret sauce to you becoming an elite video maker.
+
+#### 1\. Your camera is genre-less
+
+Your camera equipment only determines the quality of video you will produce. As such, you need to edit it further to present your message precisely. For example, your desert video can be the backdrop for a horror film or romantic comedy. However, your audience may struggle to make the distinction when viewing the video in its original form.
+
+Therefore, applying techniques like color grading can help you lead them to the genre you want to depict. You will learn more about this as you read further down.
+
+#### 2\. Your creative identity
+
+The other reason for color grading is purely artistic. As a videographer, you would like audiences to instantly recognize your work, without them looking at the credits. Color grading can help you achieve this, provided you remain consistent in your editing.
+
+For example, British filmmaker Christopher Nolan is famous for his use of film as compared to digital video, which allows him to portray color in its raw natural form. You can see this in the movie The Dark Night, where he emphasizes shadows by applying different shades of black and gray to his scenes.
+
+With the justifications for the technique out of the way, here is how different types of color grading will affect your videos.
+
+#### • It can help you set a timeline for your video
+
+Do you know that certain color schemes are specific to an era? Before you go down a rabbit hole of misinformation, here is a quick overview to get you up to speed.
+
+Back in the day, most photos and videos were shot using film and incandescent lighting. As such, videos of that era had a similar color scheme due to the lack of variety in equipment. However, current technology makes it difficult to revert to those times with camera manufacturers focusing more on the technical aspects. For example, you now have smartphones that offer up to 50X zoom, which was unheard of in the 1930s.
+
+So, how do you tell your audience that your video is from a bygone era? Unless you have access to a 70-year-old-camera, color grading is your only option. Typically, old westerns and classical films are synonymous with warm colors. Therefore, you can apply warm color grading or vintage color grading to achieve a similar look. For example, Hollywood directors brown wash their films to signify historical times.
+
+#### • Color grading is an essential tool to elicit emotions
+
+Which color is anger? According to psychologists, different colors can represent emotions. That is why most romantic comedies feature warm colors and more serious flicks emphasize cool colors.
+
+For example, you can use teal and orange color grading to inspire a feeling of warmth and joy in your video. The colors are opposites, meaning they contrast impeccably and vary between emotions if you apply them correctly.
+
+#### • Set a genre with color grading
+
+You can also use color grading to inform audiences of the genre of your video. For example, horror films focus on red color grading to make you feel on edge and inspire fear. Your focus is more on the artistic effect, and you can achieve different levels of terror, depending on your edit.
+
+Alternatively, color grading for documentaries focuses on color accuracy. As such, you will apply color grades that emphasize the natural colors of your subject matter. For example, if you are editing a travel vlog, using orange teal color grading can better highlight the skin tones of participants.
+
+The above is a snippet of how color grading will affect your videos. However, you will get more insight into its effects in the next section.
+
+## 7 Types of Color Grading that are Worth Trying
+
+Simply put, color grading is the play on colors to achieve a specific finish. As such, here are seven types of color grading worth trying in your next video project.
+
+#### 1\. Analogous Color Grading
+
+Analogous color grading involves applying colors next to each other on the color wheel. For example, you can apply warm color grading to your video by using different levels of red and orange. As a result, you create a sense of harmony in your video.
+
+Analogous color grading is best for landscape and nature videos. Here is a sample of how to use this type of color grading.
+
+![different type of color grading - analogous color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+In this picture, director Ridley Scott applies orange teal color grading to highlight the sand and peaks. Additionally, the sky has lost its blue color, resulting in an alien planet feel.
+
+#### 2\. Moody color grading
+
+The technique involves employing cool colors to create a sense of mystery and intrigue. It works best for scenes with lots of shadows and dim lighting. As such, you only need to adjust the contrast to articulate the effect.
+
+![different type of color grading - moody color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+#### 3\. Vintage color grading
+
+Vintage color grading applies a retro look to your video, allowing you to depict a sense of nostalgia from your audience. Filmmakers use this type of color grading in flashback scenes or movies that represent a specific time in history. It involves toning down your contrast levels and highlighting the warm colors. Below is a sample of vintage color grading.
+
+![different type of color grading - vintage color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-3.jpg)
+
+#### 4\. Bleach Bypass
+
+Bleach bypass color grading involves you emphasizing the color contrast in your video with little regard to each color’s saturation. As a result, your video projects a sense of chaos since the colors do not blend seamlessly.
+
+You can observe the effect of bleach bypass color grading in the movie 300\. The producer offers a stark contrast between colors, especially with red. Below is how bleach bypass color grading will affect your video.
+
+![different type of color grading - bleach bypass color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-4.jpg)
+
+#### 5\. Cross processing color grading
+
+The technique involves applying opposite adjustments to colors in your video. The result is extreme color shifts leaving your video with an unconventional look.
+
+![different type of color grading - Cross processing color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-5.jpg)
+
+#### 6\. High Key Saturated color grading
+
+In high key saturated color grading, you will make edits on the hue and saturation levels of your video’s color scheme. You may also have to adjust contrast levels to prevent one color from dominating the rest. As a result, your video features bright and color-rich scenes. Here is an example of the technique in use.
+
+![different type of color grading - High Key Saturated color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-6.jpg)
+
+#### 7\. Triadic color grading
+
+Triadic color grading involves using evenly-spaced colors on the color wheel. You select a dominant color for your video and use the other two to complement it. Consequently, you focus your audience’s attention on a singular subject in your video. Although triadic color grading is losing popularity, you can apply it to your videos for a unique vintage look.
+
+Examples of triadic color schemes include red-yellow-blue or purple-green-orange. Here is a sample of how to apply vintage color grading using triadic colors.
+
+![different type of color grading - Triadic color grading](https://images.wondershare.com/filmora/article-images/2022/03/warm-color-grading-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -585,14 +573,22 @@ Examples of triadic color schemes include red-yellow-blue or purple-green-orange
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-mastering-mac-recording-settings-for-snapchat-use/"><u>2024 Approved Mastering Mac Recording Settings for Snapchat Use</u></a></li>
-<li><a href="https://article-posts.techidaily.com/audiences-choice-top-8-best-for-uhd-blu-ray/"><u>Audience's Choice Top 8 Best for UHD Blu-Ray</u></a></li>
-<li><a href="https://article-posts.techidaily.com/behind-the-scenes-top-storytelling-channels-on-yt-2023/"><u>Behind-the-Scenes Top Storytelling Channels on YT, 2023</u></a></li>
-<li><a href="https://article-posts.techidaily.com/cosmic-comforts-top-10-starry-night-accessories-for-sj4000/"><u>Cosmic Comforts Top 10 Starry Night Accessories for SJ4000</u></a></li>
-<li><a href="https://article-posts.techidaily.com/crafting-the-perfect-tone-accessible-software-for-effortless-vocal-transformation/"><u>Crafting the Perfect Tone Accessible Software for Effortless Vocal Transformation</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/forgot-iphone-passcode-again-unlock-iphone-11-pro-without-passcode-now-by-drfone-ios/"><u>Forgot iPhone Passcode Again? Unlock iPhone 11 Pro Without Passcode Now</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-google-pixel-8-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Google Pixel 8</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/navigating-the-world-of-hardware-tips-and-reviews-by-tom/"><u>Navigating the World of Hardware - Tips & Reviews by Tom</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-using-compressor-in-final-cut-pro-x-best-practices-and-workflows/"><u>Updated Using Compressor in Final Cut Pro X Best Practices and Workflows</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-11-step-by-step-pathways-to-perfect-grading/"><u>[New] 11 Step by Step Pathways to Perfect Grading</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-diy-tips-for-instant-custom-youtube-shorts-coverage/"><u>[New] 2024 Approved DIY Tips for Instant Custom YouTube Shorts Coverage</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essentials-of-youtube-mastery-free-online-course-series-for-2024/"><u>[New] Essentials of YouTube Mastery Free Online Course Series for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-a-comprehensive-tour-youtube-creator-suite/"><u>[Updated] In 2024, A Comprehensive Tour YouTube Creator Suite</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-srt-to-sub-how-to-convert-srt-to-sub-with-3-actionable-ways/"><u>[Updated] In 2024, SRT to SUB How to Convert SRT to SUB with 3 Actionable Ways</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-depth-look-at-final-cut-pro-functions-and-features/"><u>[Updated] In-Depth Look at Final Cut Pro Functions and Features</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-iphone-photography-breakthroughs-with-lifelike-motion-for-2024/"><u>[Updated] IPhone Photography Breakthroughs with Lifelike Motion for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-melody-on-calls-the-complete-guide-to-downloading-and-editing-tamil-tracks-for-2024/"><u>[Updated] Melody on Calls The Complete Guide to Downloading & Editing Tamil Tracks for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-securing-your-facebook-memories-top-5-downloading-methods/"><u>[Updated] Securing Your Facebook Memories Top 5 Downloading Methods</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-audio-enhancement-strategies-using-premiere-pro/"><u>2024 Approved Audio Enhancement Strategies Using Premiere Pro</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-the-art-of-labeling-images-adding-captions-to-photos-in-the-microsoft-suite/"><u>2024 Approved The Art of Labeling Images Adding Captions to Photos in the Microsoft Suite</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-strategic-sharing-spoken-engagement-for-youtube-viewers/"><u>In 2024, Strategic Sharing Spoken Engagement for YouTube Viewers</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-the-future-of-conversation-facebooks-upgraded-messaging-on-instagram-and-messenger/"><u>Introducing the Future of Conversation: Facebook's Upgraded Messaging on Instagram & Messenger</u></a></li>
+<li><a href="https://article-posts.techidaily.com/setup-guide-connect-obs-and-streamlabs-on-your-mac-for-2024/"><u>Setup Guide Connect OBS and Streamlabs on Your Mac for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/standout-vr-film-highlights-to-discover/"><u>Standout VR Film Highlights to Discover</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/water-damage-no-more-mastering-the-art-of-drying-a-soaked-iphone-or-ipod/"><u>Water Damage No More: Mastering the Art of Drying a Soaked iPhone or iPod</u></a></li>
 </ul></div>
 

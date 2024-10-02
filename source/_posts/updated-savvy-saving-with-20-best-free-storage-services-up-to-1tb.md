@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Savvy Saving with 20 Best Free Storage Services, Up To 1TB"
-date: 2024-09-21T17:58:23.473Z
-updated: 2024-09-26T18:15:25.909Z
+date: 2024-09-25T21:10:24.462Z
+updated: 2024-10-01T18:00:30.151Z
 tags: 
   - screen-recording
   - ai video
@@ -75,13 +75,6 @@ However, this article will focus on plans for regular users, including the most 
 | 19.     | Mimedia                    | 10GB                  |
 | 20.     | CBackup                    | 10GB                  |
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Detailed Review: 20 Best Free Cloud Storage Services
 
 Collaboration and sharing are now more accessible thanks to cloud storage. Fifty-three percent of people use cloud storage for file sharing, according to [**Reviews.com**](https://www.reviews.com/). Businesses now use cloud storage instead of local storage drives. Many **cloud storage** providers only offer accounts to businesses. This is because they have some features that people may find confusing and are not particularly helpful. Task management and other features are provided expressly for businesses. Here is a compilation of the 20 **best free cloud storage** services:
@@ -105,13 +98,6 @@ However, to avoid this, subscribe to a premium plan that costs $6.99.
 
 ![usercloud](https://images.wondershare.com/filmora/article-images/2022/11/free-cloud-storage-2.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### No.2 Trainbit
 
 Trainbit is a safe **free online storage**, backup, and collaboration tool to enable you to store and share files (such as music, documents, and images) with others. Web admins can view statistics and have access to excellent tools at Trainbit. Trainbit offers free accounts, quick upload and direct download options, and cloud storage and backup space for storing all of your files.
@@ -121,13 +107,6 @@ Trainbit is a safe **free online storage**, backup, and collaboration tool to en
 **Max free space**: 5TB
 
 ![trainbit](https://images.wondershare.com/filmora/article-images/2022/11/free-cloud-storage-3.jpeg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### No.3 Terabox
 
@@ -160,13 +139,6 @@ With only a web app available for the desktop, Degoo Cloud relies heavily on its
 **Max free space**: 100GB
 
 ![deego](https://images.wondershare.com/filmora/article-images/2022/11/free-cloud-storage-6.jpeg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### No. 6 Mega
 
@@ -224,6 +196,13 @@ The box is an **online free cloud storage** service for managing and sharing fil
 
 ![box](https://images.wondershare.com/filmora/article-images/2022/11/free-cloud-storage-11.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### No. 11\. WorkDrive
 
 Zoho WorkDrive is a platform that enables contemporary teams, small companies, and major corporations to store files online, sync those files, and collaborate on projects. It does this by introducing something called Team Folders, which allows teams of any size to work together in a safe environment as if they were right there with you. In addition, it will provide you with comprehensive access metrics at both the team level and the team folder level, as well as the Zoho Office Suite Editors. WorkDrive's Android and iOS mobile applications, in addition to the desktop sync application, provide comprehensive solutions to all of your mobility requirements.
@@ -253,6 +232,13 @@ Your data will be safe and secure with Internxt, an open-source cloud storage se
 **Max free space**: 10GB
 
 ![internxt](https://images.wondershare.com/filmora/article-images/2022/11/free-cloud-storage-14.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### No. 14 Koofr
 
@@ -317,6 +303,13 @@ A promising new addition to the list of the best free cloud storage providers av
 **Max free space**: 10GB
 
 ![mimedia](https://images.wondershare.com/filmora/article-images/2022/11/free-cloud-storage-20.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### No. 20\. CBackup
 
@@ -367,13 +360,6 @@ Quick Review
 
 Collaboration and sharing are now more accessible thanks to cloud storage. Fifty-three percent of people use cloud storage for file sharing, according to [**Reviews.com**](https://www.reviews.com/). Businesses now use cloud storage instead of local storage drives. Many **cloud storage** providers only offer accounts to businesses. This is because they have some features that people may find confusing and are not particularly helpful. Task management and other features are provided expressly for businesses. Here is a compilation of the 20 **best free cloud storage** services:
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### No.1 Userscloud.com
 
 A free cloud service is available at userscloud.com. They offer limitless online storage and remote backup space in addition to cutting-edge uploading and downloading tools. With this, you can store documents, images, videos, and audio in one location. Additionally, you can find options on Userscloud.com if you require secure remote storage for off-site backups. Userscloud.com is excellent for accessing personal data from various devices without carrying a USB stick. You can earn money on the website through referrals by[**clicking here**](https://userscloud.wordpress.com/).
@@ -403,6 +389,13 @@ Trainbit is a safe **free online storage**, backup, and collaboration tool to en
 
 ![trainbit](https://images.wondershare.com/filmora/article-images/2022/11/free-cloud-storage-3.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### No.3 Terabox
 
 Most cloud storage services only provide a small amount of free storage; if you need more space, you must purchase a premium subscription. However, TeraBox gives its users an incredible 1TB of free storage. Additionally, this cloud storage option includes a recycle bin where you can access deleted files for up to ten days before being permanently deleted. The advertising and the restricted upload size are drawbacks of the free Terabox plan, but you can overcome these with the paid plan option.
@@ -412,6 +405,19 @@ Most cloud storage services only provide a small amount of free storage; if you 
 **Max free space**: 1TB cloud storage.
 
 ![terabox](https://images.wondershare.com/filmora/article-images/2022/11/free-cloud-storage-4.jpeg)
+
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### No.4 Blomp
 
@@ -447,6 +453,13 @@ Most of these are straightforward tasks, like setting up the desktop and mobile 
 
 ![mega](https://images.wondershare.com/filmora/article-images/2022/11/free-cloud-storage-7.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### No. 7 Google Drive
 
 It would be absurd if we left Google Drive out of a list of the best free online cloud storage. Due to its seamless Google Docs integration and generous 15GB free storage limit, Google Drive is one of the best free cloud services, as demonstrated by our review.
@@ -480,6 +493,13 @@ A fascinating new player in the cloud storage market, Icedrive is focused primar
 **Max free space**: 10GB
 
 ![ice drive](https://images.wondershare.com/filmora/article-images/2022/11/free-cloud-storage-10.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### No. 10\. box
 
@@ -541,20 +561,6 @@ IDrive is a hybrid solution that serves as a backup service rather than a cloud 
 
 ![idrive](https://images.wondershare.com/filmora/article-images/2022/11/free-cloud-storage-16.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### No. 16\. Media Fire
 
 MediaFire's three primary functions are file hosting, cloud storage, and synchronization. It is the **best free cloud storage,** a simple solution for managing digital things online and while you are on the move. iPhone, Windows, OS X, Android, and the web are all supported platforms for MediaFire's free unlimited cloud storage service.
@@ -579,13 +585,6 @@ LetsUpload stands out from the other **1TB free cloud storage** providers on thi
 
 ![letsupload](https://images.wondershare.com/filmora/article-images/2022/11/free-cloud-storage-18.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### No. 18\. Zoolz BigMIND
 
 Zoolz is a market-leading provider of **free cloud storage of 100GB** that offers a cloud solution that is both affordable and secure. Businesses and individuals can take advantage of this service. BigMIND is the platform name that allows users to store, manage, back up easily, and access large amounts of data. Cloud-based storage solution Zoolz caters primarily to small and medium-sized businesses (SMBs), but individuals can also use it.
@@ -605,6 +604,13 @@ A promising new addition to the list of the best free cloud storage providers av
 **Max free space**: 10GB
 
 ![mimedia](https://images.wondershare.com/filmora/article-images/2022/11/free-cloud-storage-20.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### No. 20\. CBackup
 
@@ -650,24 +656,24 @@ Tell us about your experiences in the comments section if you try any of the pro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-artistic-transformation-tool-for-photos-pcs-and-macs-alike/"><u>[New] Artistic Transformation Tool for Photos, PCs & Macs Alike</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-luminous-transformations-for-android-videos-step-by-step/"><u>2024 Approved Luminous Transformations for Android Videos Step by Step</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-ranked-instagrams-top-8-popular-ae-composition-tools/"><u>2024 Approved Ranked Instagram's Top 8 Popular AE Composition Tools</u></a></li>
-<li><a href="https://article-posts.techidaily.com/breakthrough-strategies-for-rapid-fb-media-delivery/"><u>Breakthrough Strategies for Rapid FB Media Delivery</u></a></li>
-<li><a href="https://article-posts.techidaily.com/clearview-cuts-excellence-in-4k-displays-for-editing-for-2024/"><u>ClearView Cuts Excellence in 4K Displays for Editing for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/common-razer-man-o-war-microphone-problems-and-their-fixes/"><u>Common Razer Man O' War Microphone Problems and Their Fixes</u></a></li>
-<li><a href="https://article-posts.techidaily.com/comparing-m1-laptop-performance-in-air-vs-pro-for-2024/"><u>Comparing M1 Laptop Performance in Air Vs. Pro for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/compress-iphone-videos-how-to-shorten-without-quality-loss-for-2024/"><u>Compress iPhone Videos How to Shorten Without Quality Loss for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/craft-your-visual-narrative-top-10-iphoneandroid-screenshot-sticker-apps/"><u>Craft Your Visual Narrative – Top 10 iPhone/Android Screenshot Sticker Apps</u></a></li>
-<li><a href="https://article-posts.techidaily.com/crafting-visual-narratives-the-leading-10-vector-editors/"><u>Crafting Visual Narratives The Leading 10 Vector Editors</u></a></li>
-<li><a href="https://article-posts.techidaily.com/creating-characters-in-the-metaverse-an-easy-methodology-for-2024/"><u>Creating Characters in the Metaverse An Easy Methodology for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/cultivating-an-online-community-via-periscope-for-2024/"><u>Cultivating an Online Community via Periscope for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/data-purge-masterclass-stellars-premium-ios-erasure-suite/"><u>Data Purge Masterclass: Stellar's Premium iOS Erasure Suite</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oppo-k11x-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Oppo K11x to Outlook | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Oppo A1 5G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-pioneers-designing-the-online-avengers-landscape/"><u>In 2024, Pioneers Designing the Online Avengers Landscape</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/launching-gpt-on-windows/"><u>Launching GPT on Windows</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/navigating-the-world-of-filmmaking-best-cameras-for-novices-for-2024/"><u>Navigating the World of Filmmaking Best Cameras for Novices for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unlocking-your-tabletop-adventures-how-to-leverage-chatgpt-as-an-ideal-dm-compannion/"><u>Unlocking Your Tabletop Adventures: How to Leverage ChatGPT as an Ideal DM Compannion</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-photo-viewer-revival-techniques-for-enhanced-windows-11-experience/"><u>[New] 2024 Approved Photo Viewer Revival Techniques for Enhanced Windows 11 Experience</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-blending-images-for-a-captivating-visual-journey-for-2024/"><u>[New] Blending Images for a Captivating Visual Journey for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-conquer-video-editing-on-pclaptop-with-inshot-for-2024/"><u>[New] Conquer Video Editing on PC/Laptop with Inshot for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-prolific-iphone-photography-cutting-edge-app-selection-guide/"><u>[New] In 2024, Prolific iPhone Photography Cutting-Edge App Selection Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-game-film-mastery-using-fbx-recorder/"><u>[New] In-Game Film Mastery Using FBX Recorder</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-strategies-for-improving-your-interview-prowess/"><u>[Updated] 2024 Approved Strategies for Improving Your Interview Prowess</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-embrace-audio-freedom-the-revolutionary-pazera-extractor-guide-for-2024/"><u>[Updated] Embrace Audio Freedom The Revolutionary Pazera Extractor Guide for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-how-to-make-youtube-video-the-ultimate-guide-for-2024/"><u>[Updated] How to Make YouTube Video The Ultimate Guide for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-seamless-integration-of-skype-meetings-into-zoom-platform-for-2024/"><u>[Updated] Seamless Integration of Skype Meetings Into Zoom Platform for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-essentials-of-effective-video-narration-techniques-for-2024/"><u>[Updated] The Essentials of Effective Video Narration Techniques for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/2024s-finest-usb-wireless-adapters-reviewed-and-ranked/"><u>2024'S Finest USB Wireless Adapters Reviewed and Ranked</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/best-video-calls-uncompromising-security-and-ease-for-startups/"><u>Best Video Calls Uncompromising Security & Ease for Startups</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>How to Change Location On Facebook Dating for your Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-beginner-to-pro-selecting-the-best-cinema-cameras/"><u>In 2024, Beginner to Pro Selecting the Best Cinema Cameras</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-infinix-note-30-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Infinix Note 30 Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/speedy-conversion-techniques-for-your-srt-to-txt-tasks-for-2024/"><u>Speedy Conversion Techniques for Your SRT to TXT Tasks for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/tips-for-adding-youtube-music-to-video-for-2024/"><u>Tips For Adding YouTube Music To Video for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-windows-11-solutions-when-your-search-feature-fails/"><u>Troubleshooting Windows 11: Solutions When Your Search Feature Fails</u></a></li>
 </ul></div>
 

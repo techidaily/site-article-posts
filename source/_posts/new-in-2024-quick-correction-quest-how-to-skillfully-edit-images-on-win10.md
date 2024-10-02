@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Quick Correction Quest  How to Skillfully Edit Images on WIN10\""
-date: 2024-09-15T18:00:46.958Z
-updated: 2024-09-20T16:49:03.838Z
+date: 2024-09-24T19:36:29.079Z
+updated: 2024-10-02T00:39:52.422Z
 tags: 
   - screen-recording
   - ai video
@@ -66,19 +66,47 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/lunapic-drawing.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Select the color from the range of palette available
 * Select the pen size using the given number scroll option
 * Click on apply if you are all set to draw or click on clear if you wish to make changes
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/editing-drawings-on-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * To save your drawing on the image, you must click on Apply after each action you make with the tool
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
 The Photos app has an interface that is restructured with dark theme options and new drawing and editing features making it a great tool. If you want to draw on Photos in Windows 10, follow the above steps and make your actions easier. If you want to have more options to edit videos with drawing in Windows 10, why not choose [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)? You can edit your video with various drawing and text style.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -105,12 +133,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-exclusive-insight-into-low-cost-footage-websites/"><u>[New] 2024 Approved Exclusive Insight Into Low-Cost Footage Websites</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-making-classroom-content-video-editing-insights/"><u>[New] 2024 Approved Making Classroom Content Video Editing Insights</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-crafting-compelling-podcast-teasers/"><u>[New] In 2024, Crafting Compelling Podcast Teasers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-passport-photos-made-simple-10-free-high-quality-images-available/"><u>[New] Passport Photos Made Simple 10 Free, High-Quality Images Available</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-advanced-techniques-using-jump-cuts-effectively/"><u>[Updated] 2024 Approved Advanced Techniques Using Jump Cuts Effectively</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-discover-the-13-essential-earning-tactics-for-novices-on-reddit/"><u>[Updated] 2024 Approved Discover the 13 Essential Earning Tactics for Novices on Reddit</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-core-skills-in-video-and-film-creation/"><u>[Updated] In 2024, Core Skills in Video and Film Creation</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unveiling-a-new-era-with-sony-xperia-xz-premium-review/"><u>[Updated] Unveiling a New Era with Sony - Xperia XZ Premium Review</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/amplifying-audience-size-on-igtv-proven-approaches-for-success-for-2024/"><u>Amplifying Audience Size on IGTV Proven Approaches for Success for 2024</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/dicas-para-configurar-subtitulos-fiables-no-vlc-um-guia-atualizado-e-detalhado/"><u>Dicas Para Configurar Subtítulos Fiables No VLC: Um Guia Atualizado E Detalhado</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/effortlessly-extract-and-save-pictures-in-microsoft-word/"><u>Effortlessly Extract & Save Pictures in Microsoft Word</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-master-the-art-of-clean-up-a-guide-to-bg-elimination/"><u>In 2024, Master the Art of Clean-Up A Guide to BG Elimination</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-quickcam-plus-audio-guide-integration-tool/"><u>In 2024, QuickCam + Audio Guide Integration Tool</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/security-protocol-evaluation-how-secure-is-chatgpt/"><u>Security Protocol Evaluation: How Secure Is ChatGPT?</u></a></li>
+<li><a href="https://win11.techidaily.com/strategies-and-tips-to-find-missing-game-hub/"><u>Strategies and Tips to Find Missing Game Hub</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-vivo-s17-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Vivo S17 Hard Reset | Dr.fone</u></a></li>
+</ul></div>
 

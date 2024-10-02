@@ -1,7 +1,7 @@
 ---
 title: "\"Deep Dive Into SRT  The Basics for Beginners\""
-date: 2024-09-16T18:03:25.786Z
-updated: 2024-09-20T19:19:45.833Z
+date: 2024-09-25T20:53:14.947Z
+updated: 2024-10-01T23:42:26.588Z
 tags: 
   - screen-recording
   - ai video
@@ -81,6 +81,13 @@ The fact that SRT is highly compatible with almost every platform makes it a goo
 
 As stated earlier, due to the fact SRT files can be indexed and crawled by Google, it helps improve their video SEO. When a user searches a particular keyword online, the keywords in the phrases of your subtitles will be analyzed by Google, and if it matches, it'll increase the chances of your video being in Google first page.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to make SRT file?
 
 Now that you know what SRT file is and why you should use it, let's learn the step-by-step process of how to make an SRT file on any computer.
@@ -88,6 +95,13 @@ Now that you know what SRT file is and why you should use it, let's learn the st
 Step1 Launch TextEdit if you're using a Mac or Notepad if you're using Windows and create a New file.
 
 ![launch textedit](https://images.wondershare.com/filmora/article-images/2022/07/everything-you-should-know-about-srt-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2 Now, type 1 to indicate the beginning of the first caption sequence. Then click on ‘Enter’ on your Keyboard.
 
@@ -131,6 +145,13 @@ Step2 Move the uploaded SRT file to the Timeline and right-click on it. Then cho
 
 ![choose advanced edit](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Now take advantage of the Filmora software advanced editing to edit the SRT file.
 
 ![use filmora to edit srt file](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-3.jpg)
@@ -140,10 +161,10 @@ Step4 Once you're done with editing the SRT file, move the cursor to the timelin
 ![select subtitle file](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: Hot FAQs on SRT files
@@ -152,23 +173,9 @@ Step4 Once you're done with editing the SRT file, move the cursor to the timelin
 
 SRT and VTT are quite similar. However, VTT has more editing options compared to SRT making it easier to play on most video players. Plus, it contains metadata and other advanced options compared to SRT. The only notable downside about VTT, when compared to SRT, is that it can't be played on social media platforms.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Are SRT files closed captions?
 
 Yes, SRT files are raw closed caption files.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. How do I use SRT files for YouTube?
 
@@ -210,6 +217,20 @@ Here is an SRT format example;
 
 ![an example of srt file](https://images.wondershare.com/filmora/article-images/2022/07/an-example-of-srt-file.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Why should I use SRT files?
 
 Having understood what an SRT file is, let's take a look at some top reasons why you should use SRT files. The details have been explained below;
@@ -234,13 +255,6 @@ The fact that SRT is highly compatible with almost every platform makes it a goo
 
 As stated earlier, due to the fact SRT files can be indexed and crawled by Google, it helps improve their video SEO. When a user searches a particular keyword online, the keywords in the phrases of your subtitles will be analyzed by Google, and if it matches, it'll increase the chances of your video being in Google first page.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How to make SRT file?
 
 Now that you know what SRT file is and why you should use it, let's learn the step-by-step process of how to make an SRT file on any computer.
@@ -248,6 +262,13 @@ Now that you know what SRT file is and why you should use it, let's learn the st
 Step1 Launch TextEdit if you're using a Mac or Notepad if you're using Windows and create a New file.
 
 ![launch textedit](https://images.wondershare.com/filmora/article-images/2022/07/everything-you-should-know-about-srt-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2 Now, type 1 to indicate the beginning of the first caption sequence. Then click on ‘Enter’ on your Keyboard.
 
@@ -264,6 +285,13 @@ Step5 Repeat step 3 & 4 until you've completed the Transcript. Make sure you che
 Step6 To Save your file in .srt format, click on **‘File’** \> **Save**. Under ‘Save As’ enter the name of your file and change the file extension to .srt and hit the Save button to complete the process.
 
 ![click on file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-make-srt-file-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
@@ -300,13 +328,6 @@ Step4 Once you're done with editing the SRT file, move the cursor to the timelin
 ![select subtitle file](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-4.jpg)
 
 ## Part 5: Hot FAQs on SRT files
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Which Is Better, SRT or VTT?
 
@@ -360,5 +381,20 @@ That being said, if you plan on using SRT for your videos you can employ the sim
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-edu-top-ten-inspiring-educational-content-yt/"><u>[New] In 2024, Edu-Top Ten Inspiring Educational Content YT</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-how-much-money-does-mr-beast-make/"><u>[New] In 2024, How Much Money Does Mr. Beast Make</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-integrating-marketing-the-power-of-youtube-and-brand-collaboration/"><u>[New] In 2024, Integrating Marketing The Power of YouTube and Brand Collaboration</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-becoming-a-gif-maestro-the-meme-creators-handbook/"><u>[Updated] 2024 Approved Becoming a GIF Maestro The Meme Creator’s Handbook</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-foremost-8-4k-blu-ray-systems-reviewed/"><u>[Updated] 2024 Approved The Foremost 8 4K Blu-Ray Systems Reviewed</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-tips-for-embedding-music-in-social-media-videos/"><u>[Updated] 2024 Approved Tips for Embedding Music in Social Media Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-direct-engagement-or-mass-distribution-twitch-and-youtube-contrast/"><u>[Updated] Direct Engagement or Mass Distribution? Twitch & YouTube Contrast</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-skype-call-capture-the-most-effective-free-and-paid-approaches/"><u>[Updated] Skype Call Capture The Most Effective Free & Paid Approaches</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/expert-advice-on-fixing-recurrerent-graphics-driver-glitches/"><u>Expert Advice on Fixing Recurrerent Graphics Driver Glitches</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-consolidating-zoom-schedules-on-android-ios-and-desktop-platforms/"><u>In 2024, Consolidating Zoom Schedules on Android, iOS & Desktop Platforms</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ng-up-your-digital-stage-your-first-youtube-profile-for-2024/"><u>Setting Up Your Digital Stage Your First YouTube Profile for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/the-comprehensive-look-at-apeaksofts-recording-software/"><u>The Comprehensive Look at Apeaksoft’s Recording Software</u></a></li>
+</ul></div>
 
