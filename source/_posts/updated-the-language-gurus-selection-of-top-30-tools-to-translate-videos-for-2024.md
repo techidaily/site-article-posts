@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Language Guru’s Selection of Top 30 Tools to Translate Videos for 2024"
-date: 2024-09-26T16:52:47.904Z
-updated: 2024-10-02T01:39:29.754Z
+date: 2024-10-03T21:22:17.887Z
+updated: 2024-10-07T10:40:30.504Z
 tags: 
   - screen-recording
   - ai video
@@ -50,13 +50,6 @@ To break the barrier between the audience that are in different languages with y
 | ----------------- | ----------------- | ------------------ |
 | [4 - CapCut](#4)  | [5 - Kapwing](#5) | [6 - Flixier](#6)  |
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Filmora
 
 Filmora is an offline [video editing tool](https://tools.techidaily.com/wondershare/filmora/download/) which can achieve the free translation for your video. Easily [transcript the video speech to text](https://tools.techidaily.com/wondershare/filmora/download/) in one click. Make your video be more readable to reach wider range of audience. The high accuracy can perfectly save your time to check.
@@ -66,19 +59,6 @@ Filmora is an offline [video editing tool](https://tools.techidaily.com/wondersh
 [Translate Your Video](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
-
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -96,13 +76,6 @@ Arabic, Bengali, Chinese(Mandarin/Cantonese), Croatian, Danish, Dutch, English(U
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
@@ -117,33 +90,26 @@ Arabic, Bengali, Chinese(Mandarin/Cantonese), Croatian, Danish, Dutch, English(U
 
 ![customize subtitles](https://images.wondershare.com/filmora/article-images/settings-of-subtitles.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** Wait for the AI video translator for working. Filmora will extract human voices and generate subtitles in different languages with high accuracy.
 
 ![complete speech to text conversion](https://images.wondershare.com/filmora/article-images/complete-speech-to-text-conversion.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4:** A '**CC**' file will be attached to your video. You are allowed to transcribe current text to other languages instantly.
 
 ![auto add subtitile to video](https://images.wondershare.com/filmora/article-images/auto-add-subtitles-to-video.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 5:** If needed, double click on the CC track to customize the font style or re-edit the text.
 
@@ -213,6 +179,13 @@ Arabic, Bengali, Chinese(Mandarin/Cantonese), Croatian, Danish, Dutch, English(U
 [Flixier](https://flixier.com/tools/translate-your-video-online) is another online tool to add translation to your video easily. It is free to translate subtitles into another language. Click the 'Generate Subtitle' to create subtitles in the target language or keep the original text.
 
 ![flixier video translator](https://images.wondershare.com/filmora/article-images/2023/flixier-video-translator.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Main Features of Flixier:**
 
@@ -247,6 +220,13 @@ To break the barrier between the audience that are in different languages with y
 | ----------------- | ----------------- | ------------------ |
 | [4 - CapCut](#4)  | [5 - Kapwing](#5) | [6 - Flixier](#6)  |
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Filmora
 
 Filmora is an offline [video editing tool](https://tools.techidaily.com/wondershare/filmora/download/) which can achieve the free translation for your video. Easily [transcript the video speech to text](https://tools.techidaily.com/wondershare/filmora/download/) in one click. Make your video be more readable to reach wider range of audience. The high accuracy can perfectly save your time to check.
@@ -299,19 +279,19 @@ Arabic, Bengali, Chinese(Mandarin/Cantonese), Croatian, Danish, Dutch, English(U
 
 ![change video captions](https://images.wondershare.com/filmora/article-images/change-video-captions.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Main Features of Filmora Video Translator:**
 
 * Support up to 26 languages for precise video and audio translation in 1-click.
 * Supports importing external files, including SRT format, for further translation.
 * Offers Text to Speech (TTS) function for getting different languages' sounds file.
 * Supports editing the translated text for correction or decoration.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Veed.io
 
@@ -323,6 +303,19 @@ Arabic, Bengali, Chinese(Mandarin/Cantonese), Croatian, Danish, Dutch, English(U
 
 * Veed.io's accuracy is higher than Google Translate.
 * Supports to export your subtitles as VTT, SRT, or TXT file.
+
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Media.io
 
@@ -340,13 +333,6 @@ Arabic, Bengali, Chinese(Mandarin/Cantonese), Croatian, Danish, Dutch, English(U
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
@@ -357,17 +343,17 @@ Arabic, Bengali, Chinese(Mandarin/Cantonese), Croatian, Danish, Dutch, English(U
 
 ![capcut video translator](https://images.wondershare.com/filmora/article-images/2023/capcut-video-translator.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Main Features of CapCut:**
 
 * The translated text will be displayed on the screen in sync with real-time playback.
 * Apply different subtitles on your TikTok videos directly,.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Kapwing
 
@@ -379,11 +365,25 @@ Arabic, Bengali, Chinese(Mandarin/Cantonese), Croatian, Danish, Dutch, English(U
 
 * Support up to 70 languages for video subtitle translation.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Flixier
 
 [Flixier](https://flixier.com/tools/translate-your-video-online) is another online tool to add translation to your video easily. It is free to translate subtitles into another language. Click the 'Generate Subtitle' to create subtitles in the target language or keep the original text.
 
 ![flixier video translator](https://images.wondershare.com/filmora/article-images/2023/flixier-video-translator.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Main Features of Flixier:**
 
@@ -424,24 +424,21 @@ Use the above video translator to make your video stand out!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-fullscape-synergy-the-smart-mcn-picking-game/"><u>[New] In 2024, FullScape Synergy The Smart MCN Picking Game</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-obs-and-shadowplay-which-streams-better/"><u>[Updated] 2024 Approved Obs and ShadowPlay - Which Streams Better?</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-elevating-engagement-split-screen-tactics-on-social-media-platforms/"><u>[Updated] Elevating Engagement Split Screen Tactics on Social Media Platforms</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-social-media-strategists-guide-top-10-ig-video-editing-apps/"><u>[Updated] Social Media Strategists' Guide Top 10 IG Video Editing Apps</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-twitter-video-download-tool-for-mp3-conversion/"><u>[Updated] Twitter Video Download Tool for MP3 Conversion</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-best-electrolytes-for-hero5-authentic-and-3rd-party-companies/"><u>2024 Approved Best Electrolytes for Hero5 - Authentic & 3Rd Party Companies</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-creative-conceptions-selecting-the-finest-10-free-macdrawers/"><u>2024 Approved Creative Conceptions Selecting the Finest 10 FREE MacDrawers</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-drones-unveiled-a-comprehensive-buyers-preparation-plan/"><u>2024 Approved Drones Unveiled A Comprehensive Buyer’s Preparation Plan</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-extended-aerial-triumphs-top-10-drones-list/"><u>2024 Approved Extended Aerial Triumphs Top 10 Drones List</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-freezing-fun-at-the-beijing-olympics-2022/"><u>2024 Approved Freezing Fun at the Beijing Olympics 2022</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-master-your-youtube-settings-stop-auto-play-videos/"><u>2024 Approved Master Your YouTube Settings - Stop Auto-Play Videos</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-streamlining-video-production-with-clear-sound-effects/"><u>2024 Approved Streamlining Video Production with Clear Sound Effects</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-top-tips-acquiring-high-quality-backdrop-visuals/"><u>2024 Approved Top Tips Acquiring High-Quality Backdrop Visuals</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-unveiling-the-most-economical-cloud-stores/"><u>2024 Approved Unveiling the Most Economical Cloud Stores</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-weaving-a-web-of-sound-youtube-music-and-video-integration-guide/"><u>2024 Approved Weaving a Web of Sound YouTube Music & Video Integration Guide</u></a></li>
-<li><a href="https://extra-support.techidaily.com/introduction-to-interactive-graphic-design-for-2024/"><u>Introduction to Interactive Graphic Design for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/premium-picks-top-macpc-bd-players-and-codecs/"><u>Premium Picks Top Mac/PC BD Players and Codecs</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/securely-erase-data-from-iphone-follow-our-stellar-method-for-peace-of-mind/"><u>Securely Erase Data From iPhone? Follow Our Stellar Method for Peace of Mind</u></a></li>
-<li><a href="https://win-forum.techidaily.com/step-by-step-guide-removing-unlisted-software-from-your-pc/"><u>Step-by-Step Guide: Removing Unlisted Software From Your PC</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-the-ultimate-guide-to-melodic-content-on-instagram/"><u>[New] In 2024, The Ultimate Guide to Melodic Content on Instagram</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-versions-of-windows-cuttingediting-programs/"><u>[New] Versions of Windows Cutting/Editing Programs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-childs-drone-pick-top-five-suggestions-for-2024/"><u>[Updated] Child's Drone Pick Top Five Suggestions for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-eliminating-unsteadiness-from-high-altitude-cinematography-for-2024/"><u>[Updated] Eliminating Unsteadiness From High-Altitude Cinematography for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-how-to-use-luts-in-after-effect-for-2024/"><u>[Updated] How to Use LUTs in After Effect for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-7-pulse-pounding-workouts-that-gain-traction-on-social-media/"><u>[Updated] In 2024, 7 Pulse-Pounding Workouts That Gain Traction on Social Media</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-perfect-classic-vacation-flicks-top-10-for-summer-fun/"><u>[Updated] In 2024, Perfect Classic Vacation Flicks Top 10 for Summer Fun</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unveiling-the-mechanism-behind-cross-audio-blending/"><u>[Updated] Unveiling the Mechanism Behind Cross-Audio Blending</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-invest-in-quality-screen-capture-bandicam-or-camtasia/"><u>2024 Approved Invest in Quality Screen Capture Bandicam or Camtasia?</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/adjusting-screen-resolution-after-upgrading-to-win10/"><u>Adjusting Screen Resolution After Upgrading to Win10</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/avoid-imposters-ensure-authenticity-in-your-next-switch-gaming-purchase/"><u>Avoid Imposters: Ensure Authenticity in Your Next Switch Gaming Purchase</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/comprehensive-tips-to-fix-missing-dsounddll-error-on-your-system/"><u>Comprehensive Tips to Fix Missing dsound.dll Error on Your System</u></a></li>
+<li><a href="https://article-posts.techidaily.com/enhance-mobile-cinematography-must-have-iphone-accessories-for-2024/"><u>Enhance Mobile Cinematography Must-Have iPhone Accessories for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-xiaomi-mi-11-a-guide-to-screen-recording-pro/"><u>In 2024, Xiaomi Mi 11 A Guide to Screen Recording Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/overview-and-assessment-parrots-advanced-edition/"><u>Overview and Assessment - Parrot's Advanced Edition</u></a></li>
+<li><a href="https://article-posts.techidaily.com/pro-cameras-showdown-gopro-max-vs-hero-11-comparison-for-2024/"><u>Pro Cameras Showdown GoPro Max VS Hero 11 Comparison for 2024</u></a></li>
 </ul></div>
 

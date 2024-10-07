@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Getting Started with Azure's Speech-to-Text Feature for 2024\""
-date: 2024-09-26T00:58:40.740Z
-updated: 2024-10-02T04:56:59.046Z
+date: 2024-10-02T00:39:15.297Z
+updated: 2024-10-06T22:11:27.001Z
 tags: 
   - screen-recording
   - ai video
@@ -43,6 +43,13 @@ If you're not good with programming languages, use Speech CLI, a command tool th
 
 It is also worth noting that Azure Speech Studio supports keyword recognition or keyword spotting. You can generate keyword recognition models and specify any short phrase or word. Users can also personalize keywords with the correct punctuations. And best of all, there is no extra cost for customizing keywords.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Step by Step Guide to Transcribe Speech to Text with Microsoft Speech Studio
 
 Now let's learn how to use Microsoft Azure speech recognition services. Remember, the conversion may not be accurate if the audio has lots of domain-industry jargon or ambient noises. Therefore, use crisp-clear audio with an external mic or train the software to recognize specific words or keywords. Let's get started!
@@ -54,6 +61,13 @@ Step2After creating a Microsoft Azure portal, you'll see all Azure services. Cli
 Step3The program will take a while to deploy an instance. Now tap Keys and endpoints on the left pane and copy the key and region identifier as you may need them later on.
 
 ![micrsoft azure speech to text copy key and region](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4Download and install Microsoft Visual C++ and .NET Core 3.1 Runtime. Next, install Speech CL on .NET by running this command “**dotnet tool install -global Microsoft.CognitiveServices.Speech.CLI.**” Alternatively, download and install Speech CLI for Windows PCs as a [ZIP file](https://aka.ms/speech/spx-windows).
 
@@ -70,6 +84,13 @@ Step6Now it's time to convert speech to text using Azure STT Service. To do that
 We should all agree that using Microsoft Azures Speech Service is not a walk in the park. You need some knowledge of programming and Windows Command Prompt. Even worse, you'll have to pay each time you want to convert speech to text after depleting the free credits.
 
 Fortunately, there's no shortage of free speech to text converters for beginners. So, in this part, we'll discuss some free Microsoft Azure STT alternatives for beginners.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -89,13 +110,6 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 
 [Make STT Videos](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Use Filmora To Make STT videos
 
 ##### Step 1
@@ -110,16 +124,22 @@ Click the "Speech-to-Text" icon, and it will show the parameter settings. You ca
 
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Google Docs - Free
 
 ![micrsoft azure speech to text alternative google docs](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 If you're looking for free voice typing software, you're better off with Google Docs. Most of you may not be aware that Google Docs can accurately convert speech to text. This makes it a handy tool if you find speaking easier than writing. As expected, this voice transcription tool recognizes hundreds of languages, like English, French, Italian, Hindi, etc.
 
@@ -137,13 +157,6 @@ Step3Click the Microphone icon to start dictating texts on Google Docs. After di
 
 ![micrsoft azure speech to text alternative audtext](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If Google's voice recognition service is too slow for your liking, consider Audtext. It's a highly rated online program that uses cutting-edge machine learning technology to transcribe audio to text in 60+ languages. You can easily train this program to identify the speaker in your interview or podcast file.
 
 Meanwhile, Audtext can transcribe typical video and audio formats, including MP3, WAV, M4A, MP4, MOV, and more. And after transcribing audio to text, exploit the inbuilt text editor to retouch and make your text presentable.
@@ -157,10 +170,10 @@ Step2Drag-n-drop your video or audio file on the program and then choose the tra
 Step3Finally, click the transcribed text file to edit it with new texts and punctuations on the inbuilt editor. You can export your transcription in .txt, .srt, or .docx formats. Directly export to Google Drive is also available.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Final Words
@@ -177,19 +190,6 @@ In that case, use a more straightforward option like Google Docs to dictate text
 
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
-
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 
 <ins class="adsbygoogle"
@@ -210,24 +210,17 @@ In that case, use a more straightforward option like Google Docs to dictate text
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-best-pixel-perfect-grids-elevate-image-quality-online-for-2024/"><u>[New] Best Pixel Perfect Grids Elevate Image Quality Online for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instagram-reels-sonic-boom-integrating-music-voiceovers/"><u>[New] Instagram Reels Sonic Boom Integrating Music, Voiceovers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-a-fresh-take-on-samsungs-ultrablade-k850-review/"><u>[Updated] A Fresh Take on Samsung’s UltraBlade K850 Review</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-biography-breakthroughs-101-expert-tips-and-tricks-for-facebook-biographers/"><u>2024 Approved Biography Breakthroughs 101 Expert Tips and Tricks for Facebook Biographers</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-chiefs-best-sky-vault-for-firms/"><u>2024 Approved Chiefs’ Best Sky Vault for Firms</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-essential-guide-linking-zoom-to-your-gmail-account/"><u>2024 Approved Essential Guide Linking Zoom to Your Gmail Account</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-fade-to-darkness-instantaneously/"><u>2024 Approved Fade to Darkness Instantaneously</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-from-novice-to-pro-your-complete-reddit-post-blueprint/"><u>2024 Approved From Novice to Pro Your Complete Reddit Post Blueprint</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-interface-feedback-for-screen-players-choice/"><u>2024 Approved Interface Feedback for Screen Players' Choice</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-perfecting-the-art-of-media-preservation-macs-dvd-burn-guide/"><u>2024 Approved Perfecting the Art of Media Preservation Mac's DVD Burn Guide</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-pinnacle-ai-editor-with-advanced-features/"><u>2024 Approved Pinnacle AI Editor with Advanced Features</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-premier-text-manipulation-software-for-ae/"><u>2024 Approved Premier Text Manipulation Software for AE</u></a></li>
-<li><a href="https://article-posts.techidaily.com/30-pathways-to-unique-metaverse-meme-production/"><u>30 Pathways to Unique Metaverse Meme Production</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-vivo-y36i-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Vivo Y36i</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-contacts-from-poco-f5-5g-by-fonelab-android-recover-contacts/"><u>How to Rescue Lost Contacts from Poco F5 5G?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-realme-12-pro-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Realme 12 Pro 5G Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-realme-v30-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Realme V30 Android SIM Unlock APK</u></a></li>
-<li><a href="https://techtrends.techidaily.com/rumored-details-on-the-new-samsung-galaxy-s25-find-out-about-forecast-prices-expected-launch-and-specs/"><u>Rumored Details on the New Samsung Galaxy S25 - Find Out About Forecast Prices, Expected Launch & Specs!</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/showcase-a-dialogue-in-one-instagram-post-for-2024/"><u>Showcase a Dialogue in One Instagram Post for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-master-the-art-of-tokenization-with-these-7-nft-creation-apps/"><u>[New] 2024 Approved Master the Art of Tokenization with These 7 NFT Creation Apps</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-punpixel-producer/"><u>[New] 2024 Approved PunPixel Producer</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-top-10-escape-room-games/"><u>[New] 2024 Approved Top 10 Escape Room Games</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-decoding-sound-sequence-confluence-crossfading-explained/"><u>[New] Decoding Sound Sequence Confluence Crossfading Explained</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-building-rapport-an-interviewers-toolkit-for-2024/"><u>[Updated] Building Rapport An Interviewer's Toolkit for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-the-social-sphere-instaplustiktok/"><u>2024 Approved Navigating the Social Sphere Insta+TikTok</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-poco-c51-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Poco C51 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/google-meet-not-hearing-you-fix-microphone-problems-on-windows-10-and-11-easily/"><u>Google Meet Not Hearing You? Fix Microphone Problems on Windows 10 and 11 Easily</u></a></li>
+<li><a href="https://blog-min.techidaily.com/gratuit-gebaseerd-ogg-videos-in-mp4-format-vervangen-kortsluiteren-met-movavi/"><u>Gratuit Gebaseerd Ogg-Video's in MP4 Format Vervangen - Kortsluiteren Met Movavi</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/steady-path-adding-your-bio-to-tiktok-unhackable-way/"><u>Steady Path Adding Your Bio to TikTok Unhackable Way</u></a></li>
+<li><a href="https://article-posts.techidaily.com/transcending-visual-limits-with-hdr-technology/"><u>Transcending Visual Limits with HDR Technology</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-the-article-introduces-some-of-the-best-free-online-video-loopers-for-windows-mac-and-linux/"><u>Updated In 2024, The Article Introduces some of the Best Free Online Video Loopers for Windows, Mac and Linux</u></a></li>
 </ul></div>
 

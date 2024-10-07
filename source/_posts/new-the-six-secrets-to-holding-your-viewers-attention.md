@@ -1,7 +1,7 @@
 ---
 title: "[New] The Six Secrets to Holding Your Viewers' Attention"
-date: 2024-09-13T17:35:20.873Z
-updated: 2024-09-20T19:45:58.610Z
+date: 2024-10-01T17:47:03.617Z
+updated: 2024-10-07T05:48:50.523Z
 tags: 
   - screen-recording
   - ai video
@@ -65,6 +65,13 @@ How-to videos are an effective way to show your audience how to use your product
 
 <https://www.youtube.com/watch?v=sh819O3khKE>
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Customer stories or Testimonials
 
 Testimonial videos are the best way to show your audience why you're the best. We all know that testimonials are the most common form of content on the Internet and they are one of the most effective ways to get your customers' attention.
@@ -73,31 +80,11 @@ Testimonial videos work because they tell a story. When you tell a story, you ca
 
 ![customer stories or testimonials](https://images.wondershare.com/filmora/article-images/2022/07/customer-stories-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Key elements of an effective testimonial videos**
 
 * Give context - Describe the audience for your testimonial and give context around its significance. This will help viewers understand the value of your work, why it's important to them, and how it can help them achieve their goals.
 * Tell a story - To make your video more impactful, tell a story about how your product or service has impacted someone's life or made a positive change in their business. Make sure to include personal anecdotes from other people who have used your product or service to illustrate this point, if possible.
 * Show the results - People love seeing results! Showing real-life examples of how others have benefited from using your products is the best way to prove that they're worth investing in. If possible, include photos or videos from before and after projects so viewers can see exactly how much they've changed since using your product or service — that way they won't just be reading about it.
-
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Example: Click Funnels: What Is It and What Makes It So Different
 
@@ -112,10 +99,10 @@ Not only do they provide an opportunity for you to show off your product in all 
 ![product demonstrations](https://images.wondershare.com/filmora/article-images/2022/07/product-demo-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Key elements of an effective product demonstration video:**
@@ -125,15 +112,22 @@ Not only do they provide an opportunity for you to show off your product in all 
 * An engaging presentation that helps viewers understand what you're trying to tell them about your product or service.
 * A strong call-to-action — a way for viewers to get involved and participate in your business if they like what they see (or don't like it!).
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Example: Pixie Product Demo
 
 <https://www.youtube.com/watch?v=N-Z8eCYZod8>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Interviews with experts
@@ -141,6 +135,13 @@ Not only do they provide an opportunity for you to show off your product in all 
 Interviews with experts are a great way to add credibility and authority to your brand. These videos showcase the personal experiences of your customers, and they're an incredibly effective way to build trust and credibility with your audience.
 
 ![interviews with experts](https://images.wondershare.com/filmora/article-images/2022/07/interview-experts-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Key elements of an effective interview with the expert's video:**
 
@@ -153,6 +154,13 @@ Interviews with experts are a great way to add credibility and authority to your
 ### Example: What Is Branding? 4 Minute Crash Course
 
 <https://www.youtube.com/watch?v=sO4te2QNsHY&t=3s>
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Animated explainer videos
 
@@ -169,19 +177,6 @@ Animated explainer videos are usually created using the same principles as any o
 * It should be informative, but not too long or boring.
 * It should have a sense of humor so that the audience will appreciate it even more!
 * It should have a professional look and feel that makes it unique from other videos on the same topic.
-
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Example: MacBook Air — Online Ad — The fastest yet (Stickers)
 
@@ -219,5 +214,23 @@ Are you using video to promote your products or services? If not, you should be!
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-creating-a-calm-sequence-the-art-of-reducing-sound-in-pp-for-2024/"><u>[New] Creating a Calm Sequence The Art of Reducing Sound in PP for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-dynamic-directionality-prime-phone-friendly-tripods/"><u>[Updated] Dynamic Directionality Prime Phone-Friendly Tripods</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-elite-avc-playback-software-for-smartphones-and-pcs/"><u>[Updated] Elite AVC Playback Software for Smartphones and PCs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-film-editing-expertise-exchange-for-2024/"><u>[Updated] Film Editing Expertise Exchange for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-fostering-connection-through-respectful-engagement-for-2024/"><u>[Updated] Fostering Connection Through Respectful Engagement for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/all-about-the-apple-watch-ultra-2-anticipated-costs-launch-timeline-and-features-unveiled/"><u>All About the Apple Watch Ultra 2: Anticipated Costs, Launch Timeline & Features Unveiled</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/free-online-converter-change-mov-videos-into-mp4-format-moovavi/"><u>Free Online Converter: Change MOV Videos Into MP4 Format - Moovavi</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/free2x-webcam-recorder-software-review/"><u>Free2X Webcam Recorder Software Review</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-vivo-y78plus-t1-edition-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Vivo Y78+ (T1) Edition to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-achieve-professional-quality-on-yt-with-simple-blurring/"><u>In 2024, Achieve Professional Quality on YT with Simple Blurring</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-eliminating-suggested-podcast-selections-on-spotify/"><u>In 2024, Eliminating Suggested Podcast Selections on Spotify</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-change-country-on-app-store-for-apple-iphone-14-plus-with-7-methods-by-drfone-ios/"><u>In 2024, How To Change Country on App Store for Apple iPhone 14 Plus With 7 Methods</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-mastering-media-management-on-instagram/"><u>In 2024, Mastering Media Management on Instagram</u></a></li>
+<li><a href="https://article-posts.techidaily.com/leading-edge-of-technology-top-10-4k-displays/"><u>Leading Edge of Technology #Top 10 4K Displays</u></a></li>
+<li><a href="https://os-tips.techidaily.com/successfully-streaming-from-your-ipad-to-the-big-screen-tv-compatibility-tips/"><u>Successfully Streaming From Your iPad to the Big Screen - TV Compatibility Tips</u></a></li>
+<li><a href="https://article-posts.techidaily.com/visionaries-convergence-dissecting-virtual-reality-augmented-and-mixed-realms-for-2024/"><u>Visionaries Convergence Dissecting Virtual Reality, Augmented & Mixed Realms for 2024</u></a></li>
+</ul></div>
 

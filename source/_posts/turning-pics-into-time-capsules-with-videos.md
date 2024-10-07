@@ -1,7 +1,7 @@
 ---
 title: "Turning Pics Into Time Capsules With Videos"
-date: 2024-09-19T20:03:07.853Z
-updated: 2024-09-20T18:36:23.988Z
+date: 2024-10-05T08:17:53.879Z
+updated: 2024-10-06T23:35:31.401Z
 tags: 
   - screen-recording
   - ai video
@@ -83,6 +83,13 @@ To convert your old photos into stunning videos, you can take the assistance of 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 To learn how to come up with an impressive video collage using Filmora, just follow these steps:
 
 #### 1\.  Import your digitized photos
@@ -91,11 +98,25 @@ To start with, you can just launch Filmora on your system and import your photos
 
 ![import Digitized Photos](https://images.wondershare.com/filmora/article-images/import-digitized-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2\. Create a timeline for your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
 
 ![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3\. Edit the video
 
@@ -124,6 +145,13 @@ Besides that, you can also add a track to the video by visiting the “Audio” 
 That’s it! After making all the changes, you can preview your video on the right side. If you are satisfied with the results, then click on the “Export” button from the top. This will open a dedicated window, letting you select a preferred format to export your file. You can also select a resolution for your video to adjust its size as well.
 
 ![Export Book Trailer File](https://images.wondershare.com/filmora/article-images/book-trailer-export-file.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Find more fancy ways to make the best photo and video slideshow with Filmora!
 
@@ -182,12 +210,18 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-elite-story-creation-centers-avoiding-the-ordinary-top-8/"><u>[New] 2024 Approved Elite Story Creation Centers – Avoiding the Ordinary (Top 8)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-premium-avplayer-xpress-for-mobile-and-desktop-users/"><u>[New] 2024 Approved Premium AVPlayer Xpress for Mobile & Desktop Users</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-pixelpower-boost-your-phone-pics-for-free/"><u>[New] In 2024, PixelPower Boost Your Phone Pics for Free</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-key-vr-film-experiences-to-witness/"><u>[New] Key VR Film Experiences to Witness</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-xsplit-vs-obs-the-showdown-to-enhance-live-broadcasts/"><u>[Updated] In 2024, XSplit Vs. OBS – The Showdown to Enhance Live Broadcasts</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/comprehensive-gigabyte-b76eb-ds3h-ax-matrix-an-in-depth-look-at-the-affordable-entry-level-micro-atx-motherboard/"><u>Comprehensive Gigabyte B76eb DS3H AX MATRIX - An In-Depth Look at the Affordable Entry-Level Micro ATX Motherboard</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/crafting-harmonies-with-ai-chatgpt-for-daw-users/"><u>Crafting Harmonies with AI - ChatGPT for DAW Users</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-do-you-remove-restricted-mode-on-apple-iphone-14-pro-max-by-drfone-ios/"><u>How Do You Remove Restricted Mode on Apple iPhone 14 Pro Max</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-xiaomi-redmi-a2plusfrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Xiaomi Redmi A2+FRP Lock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/optimal-gear-for-pacing-your-jog-reviewing-the-superior-running-watches-of-this-year/"><u>Optimal Gear for Pacing Your Jog: Reviewing the Superior Running Watches of This Year</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-photos-after-oppo-reno-10-pro-5g-has-been-deleted-by-fonelab-android-recover-photos/"><u>Recover your photos after Oppo Reno 10 Pro 5G has been deleted.</u></a></li>
+</ul></div>
 

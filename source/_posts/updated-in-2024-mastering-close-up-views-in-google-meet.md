@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mastering Close-Up Views in Google Meet\""
-date: 2024-09-30T00:57:42.770Z
-updated: 2024-10-01T20:17:51.016Z
+date: 2024-10-03T09:45:50.635Z
+updated: 2024-10-07T03:30:23.602Z
 tags: 
   - screen-recording
   - ai video
@@ -43,27 +43,33 @@ Step1 Set up a video conferencing setup and start a conference in your web brows
 
 ![setup google meet](https://images.wondershare.com/filmora/article-images/2022/07/setup-google-meet.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Hover over the shared screen and click the Pin symbol to save it. Go to the "Webcam Settings" window, pick the "Camera Control" option at the top, then select the webcam from the drop-down list.
 
 ![google meeting settings panel](https://images.wondershare.com/filmora/article-images/2022/07/google-meeting-settings-panel.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 The "Layout" option is next to the slider; click it. Adjust it in the direction the zoom-in zooms in using the slider. The "Ok" button may assist you in making all of your decisions. Select the Minimize icon while your cursor is on your own picture.
 
 ![layout options google meet](https://images.wondershare.com/filmora/article-images/2022/07/layout-options-google-meet.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 Change your Layout to "Focus" in the Meet Menu (three dots). By repeatedly hitting CTRL+ minus (-), you can zoom out (!). The Meet controls at the bottom get smaller as a result. With CTRL+0, you may subsequently reverse your zoom.
 
@@ -72,10 +78,17 @@ Step5 To turn off the browser UI, press F11\. By hitting F11 once again, full sc
 ![full screen mode google meet](https://images.wondershare.com/filmora/article-images/2022/07/full-screen-mode-google-meet.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. Tips and tricks to use Google Meet
@@ -90,13 +103,6 @@ Those who have a Google Account are able to start a meeting. It's simple to make
 * For added convenience, Google Meet lets you cast a meeting to another screen. The TV in your living room or conference room may be projected from your laptop or desktop, in other words.
 * Similar to the subtitle feature seen on other applications like Skype, this feature allows you to have the dialogue show in text on your screen in real-time so that you can more easily understand what is being said during video chats. It is exclusively offered in English. Click Turn on Captions in the Meet's bottom right corner to turn it on.
 * Users of Google Meet will be able to pin many individuals to the top of their tiled screen. This will be especially useful if you have meetings where two or three people talk the majority of the time.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -132,21 +138,21 @@ You may show additional information on your Google Meet by zooming in and out. O
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-crafting-a-compelling-profile-visual-experience/"><u>[New] 2024 Approved Crafting a Compelling Profile Visual Experience</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-from-jumble-to-flow-kinemasters-editing-masterclass/"><u>[New] 2024 Approved From Jumble to Flow Kinemaster's Editing Masterclass</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-ignite-attention-driving-success-in-instagram-posts/"><u>[Updated] Ignite Attention Driving Success in Instagram Posts</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-superior-selection-best-windows-videophone-apps-guide/"><u>[Updated] Superior Selection Best Windows Videophone Apps Guide</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-visual-purity-how-to-exclude-backgrounds-in-recordings/"><u>[Updated] Visual Purity How to Exclude Backgrounds in Recordings</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-best-humor-image-processor/"><u>2024 Approved Best Humor Image Processor</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-framing-photos-and-videos-playing-with-text-deformation/"><u>2024 Approved Framing Photos & Videos Playing With Text Deformation</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-free-visual-magic-for-your-videos-online/"><u>2024 Approved Free Visual Magic for Your Videos Online</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-how-to-use-windows-media-player-to-rip-and-burn-cd/"><u>2024 Approved How to Use Windows Media Player to Rip and Burn Cd</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-navigating-timecodes-and-text-in-srt-with-macos/"><u>2024 Approved Navigating Timecodes and Text in SRT with macOS</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-open-source-game-tunes-library-web/"><u>2024 Approved Open Source Game Tunes Library Web</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-streamline-viewing-learn-to-insert-timestamps-on-videos/"><u>2024 Approved Streamline Viewing Learn to Insert Timestamps on Videos</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/inside-the-jaunt-vr-experience/"><u>Inside the Jaunt VR Experience</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/mastering-photo-editing-in-minutes-pixlr-quick-hacks/"><u>Mastering Photo Editing in Minutes Pixlr Quick Hacks</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/step-by-step-guide-adding-interactive-flipbook-content-to-your-site-via-flipbuilder/"><u>Step-by-Step Guide: Adding Interactive Flipbook Content to Your Site via FlipBuilder</u></a></li>
-<li><a href="https://fox-http.techidaily.com/the-synergy-of-content-and-platform-for-peak-performance-for-2024/"><u>The Synergy of Content and Platform for Peak Performance for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/to-retweet-vs-to-re-tweet-are-they-synonymous-in-twitter-usage/"><u>'To Retweet' Vs. 'To Re-Tweet': Are They Synonymous in Twitter Usage?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-discover-the-leading-15-cost-effective-online-photo-editors-2023/"><u>[New] Discover the Leading 15 Cost-Effective Online Photo Editors, 2023</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-hdr-tech-showdown-sns-vs-alternatives-for-2024/"><u>[New] HDR Tech Showdown SNS vs Alternatives for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-ultimate-guide-to-becoming-a-tiktok-live-companion/"><u>[New] The Ultimate Guide to Becoming a TikTok Live Companion</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-captivate-your-imagery-with-illustrators-motion-blur-tricks/"><u>[Updated] Captivate Your Imagery with Illustrator's Motion Blur Tricks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-effortless-capture-of-webcast-radios-your-practical-guide-for-2024/"><u>[Updated] Effortless Capture of Webcast Radios Your Practical Guide for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-mastering-close-up-techniques-with-videoleap/"><u>[Updated] In 2024, Mastering Close-Up Techniques with Videoleap</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-evolution-of-digital-music-composing-magix-music-maker-2024/"><u>[Updated] The Evolution of Digital Music Composing Magix Music Maker 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/6-effective-strategies-to-overcome-iphone-apple-watch-pairing-problems/"><u>6 Effective Strategies to Overcome iPhone-Apple Watch Pairing Problems</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722967181815-effortless-installation-amd-vega-graphics-card-updates-and-downloads-perfected/"><u>Effortless Installation: AMD Vega Graphics Card Updates & Downloads Perfected</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-realme-v30-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Realme V30 Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-social-media-savvy-quick-fire-tips-for-aspiring-online-marketers/"><u>In 2024, Social Media Savvy Quick-Fire Tips for Aspiring Online Marketers</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/intuitive-elearning-software-customizable-for-flexible-education-experiences/"><u>Intuitive eLearning Software: Customizable for Flexible Education Experiences</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/seconds-in-a-20mb-hd-video-file-for-2024/"><u>Seconds in a 20MB HD Video File for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-patekfly-12-a-companion-for-all-terrains/"><u>The Patekfly 12: A Companion for All Terrains</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-tecno-camon-20-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Tecno Camon 20 Bricked Devices | Dr.fone</u></a></li>
 </ul></div>
 

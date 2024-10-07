@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Comprehensive Examination of Syma X5C  Perfect for UAV Newbies for 2024\""
-date: 2024-09-15T18:22:58.906Z
-updated: 2024-09-20T18:10:11.041Z
+date: 2024-10-03T21:01:36.165Z
+updated: 2024-10-07T10:04:54.091Z
 tags: 
   - screen-recording
   - ai video
@@ -65,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/a4224fc73a6465f58bae54c290236f5e5e4311745
 
  There are so many incredible features inside Syma X5C that make it suitable device for [aerial photography](https://tools.techidaily.com/wondershare/filmora/download/). The intuitive controls are much easier to explore even for beginners. The remote control is user friendly and all other latest features make it a must buy product for drone lovers.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review for Syma X5C
 
 #### 1\.  Basic Specs Info
@@ -96,11 +103,31 @@ thumbnail: https://thmb.techidaily.com/a4224fc73a6465f58bae54c290236f5e5e4311745
 
 ![syma x5c controller](https://images.wondershare.com/filmora/article-images/syma-x5c-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The remote unit or transmitter works with a 2.4GHz frequency setting with 4 channel type control. It helps pilots to enjoy wider flying range with spread spectrum technology. The maximum flying range falls between 30 to 50 meters and no lags have been reported yet in control selection and quadcopter reactions. Using flip switch, you can directly adjust the movements in air.
 
 #### 6\.  Camera
 
 ![syma x5c camera](https://images.wondershare.com/filmora/article-images/syma-x5c-camera.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Syma H5C camera is rated as moderately stable and it is capable enough to take impressive pictures from air. This device is equipped with a 2GB MicroSD card that offers personal storage space to all recorded videos and images. The sad part is here that controller unit of this device is able to send signals to drone only; it cannot control the camera actions. Thus your camera stays focused in only one direction all the time and have fixed focus during shoots. You cannot apply zoom, direction sensing inputs or focus adjustment controls when your device is in air. If you are searching for a highly controlled footage generator then it is good to go for other Phantom series and other competing models as per your budget. But Syma H5C is really a good choice to start with.
 
@@ -109,6 +136,13 @@ thumbnail: https://thmb.techidaily.com/a4224fc73a6465f58bae54c290236f5e5e4311745
  Syma's X5C can be included in the list of must buy product for beginners due to its all incredible features. If you are a beginner and are just going to learn about flight basics then this advanced camera unit can serve you best with all impressive controls. Its sleek design along with feature rich platform offers lots of things to explore in air. You will definitely love to enjoy its regular and expert mode settings with unique flight experiences.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -133,12 +167,21 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discord-videos.techidaily.com/new-make-your-discord-conversation-stand-out-with-pins-for-2024/"><u>[New] Make Your Discord Conversation Stand Out with Pins for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-revolutionizing-receiving-packages-boosting-joyful-openings/"><u>[New] Revolutionizing Receiving Packages Boosting Joyful Openings</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-pathway-to-perfect-images-step-by-step-backdrop-erasure/"><u>[New] The Pathway to Perfect Images Step-By-Step Backdrop Erasure</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-unveiling-novel-window-11-secrets-for-enhanced-usage/"><u>[Updated] 2024 Approved Unveiling Novel WINDOW 11 Secrets for Enhanced Usage</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-cross-platform-connectivity-sharing-youtube-and-twitter-videos-on-snapchat/"><u>[Updated] Cross Platform Connectivity Sharing YouTube & Twitter Videos on Snapchat</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-how-to-record-webinar-for-free-for-2024/"><u>[Updated] How to Record Webinar for Free for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-best-practices-selecting-among-top-9-free-logo-designers/"><u>[Updated] In 2024, Best Practices Selecting Among Top 9 Free Logo Designers</u></a></li>
+<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-infinix-hot-40-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Infinix Hot 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-optimal-variety-premium-webcam-stands-and-mounts/"><u>2024 Approved Optimal Variety Premium Webcam Stands & Mounts</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/cambia-gratis-i-file-aiff-in-formato-m4r-online-con-convertitore-audiovideo-movavi/"><u>Cambia Gratis I File AIFF in Formato M4R Online Con Convertitore Audiovideo - Movavi</u></a></li>
+<li><a href="https://article-posts.techidaily.com/ensuring-easy-download-of-youtubes-srt-subs/"><u>Ensuring Easy Download of YouTube's SRT Subs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-comprehensive-guide-merging-primary-and-secondary-footage/"><u>In 2024, Comprehensive Guide Merging Primary and Secondary Footage</u></a></li>
+<li><a href="https://extra-information.techidaily.com/photo-wit-funnypictorials/"><u>Photo Wit FunnyPictorials</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quick-and-easy-guide-to-updating-asus-vg24qe-display-driver-on-windows-pcs-what-you-need-to-know/"><u>Quick & Easy Guide to Updating Asus VG24#qe Display Driver on Windows PCs - What You Need to Know!</u></a></li>
+</ul></div>
 

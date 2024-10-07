@@ -1,7 +1,7 @@
 ---
 title: "\"Illuminating Craftsmanship  Avoiding Common Film-Lighting Pitfalls\""
-date: 2024-09-30T18:04:45.525Z
-updated: 2024-10-02T02:18:39.228Z
+date: 2024-09-30T09:34:14.349Z
+updated: 2024-10-07T02:38:18.516Z
 tags: 
   - screen-recording
   - ai video
@@ -98,16 +98,10 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Summary
@@ -144,21 +138,24 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-comprehensive-razer-camera-study/"><u>[New] 2024 Approved Comprehensive Razer Camera Study</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-all-purpose-capture-software-azs-app-critiques/"><u>[New] All-Purpose Capture Software - AZ's App Critiques</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-delving-into-the-drawbacks-of-vr-experiences/"><u>[Updated] 2024 Approved Delving Into the Drawbacks of VR Experiences</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2023s-elite-professionals-choosing-360-cameras-for-2024/"><u>2023'S Elite Professionals Choosing 360 Cameras for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-ae-text-preset-collection-the-best-of-both-worlds/"><u>2024 Approved AE Text Preset Collection The Best of Both Worlds</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-essential-haul-editing-skills-making-every-purchase-memorable/"><u>2024 Approved Essential Haul Editing Skills Making Every Purchase Memorable</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-forge-viral-content-adobe-memes/"><u>2024 Approved Forge Viral Content Adobe Memes</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-frame-your-photos-right-with-top-tools-editors/"><u>2024 Approved Frame Your Photos Right with Top Tools Editors</u></a></li>
-<li><a href="https://article-posts.techidaily.com/30-quick-steps-to-metaverse-humor-from-copycat-to-creator/"><u>30 Quick Steps to Metaverse Humor From Copycat to Creator</u></a></li>
-<li><a href="https://article-posts.techidaily.com/5-groundbreaking-advice-points-from-successful-marketers-online-for-2024/"><u>5 Groundbreaking Advice Points From Successful Marketers Online for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/happiness-in-highlights-iosandroids-top-35-edits/"><u>Happiness in Highlights IOS/Android's Top 35 Edits</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-a-comprehensive-guide-to-apple-iphone-15-pro-max-blacklist-removal-tips-and-tools-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to Apple iPhone 15 Pro Max Blacklist Removal Tips and Tools</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-can-we-unlock-our-oppo-find-n3-flip-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Oppo Find N3 Flip Phone Screen?</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722976479355-mrs-analyzes-the-biochemical-makeup-of-brain-tissue-and-can-help-differentiate-between-types-of-brain-lesions/"><u>MRS Analyzes the Biochemical Makeup of Brain Tissue and Can Help Differentiate Between Types of Brain Lesions</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Honor Magic 5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/quick-guide-unlocking-windows-11/"><u>Quick Guide: Unlocking Windows 11</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-conquer-the-skies-and-landscapes-in-a-canon-time-lapse/"><u>[New] 2024 Approved Conquer the Skies and Landscapes in a Canon Time-Lapse</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-premiere-trailers-showcase/"><u>[New] 2024 Approved Premiere Trailers Showcase</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-complete-connoisseurs-manual-for-expertise-in-morphvox-voice-changing-for-2024/"><u>[New] Complete Connoisseur’s Manual for Expertise in MorphVOX Voice Changing for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-essential-guide-to-21-hdmi-monitors-comparative-analysis-for-2024/"><u>[New] Essential Guide to 2.1 HDMI Monitors - Comparative Analysis for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-essential-top-10-live-streamers-android-and-iphone-edition/"><u>[Updated] Essential Top 10 Live Streamers Android & iPhone Edition</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-ideal-audio-gear-compatible-with-cutting-edge-4k-technology-for-2024/"><u>[Updated] Ideal Audio Gear Compatible with Cutting-Edge 4K Technology for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-skyrocketing-views-tactics-for-a-100kplus-youtube-hit/"><u>[Updated] In 2024, Skyrocketing Views Tactics for a 100K+ YouTube Hit</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-full-review-of-lgs-high-definition-monitoring-experience/"><u>[Updated] The Full Review of LG's High Definition Monitoring Experience</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1723862816833-189-for-power-and-performance-minisforums-new-laptop-boasts-a-156-inch-144hz-1440p-screen-gaming-at-its-best/"><u>$189 for Power & Performance: Minisforum's New Laptop Boasts a 15.6 Inch, 144Hz, 1440P Screen - Gaming at Its Best</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1726030488971-clipchamp/"><u>Clipchampによる動画統合手順の解説</u></a></li>
+<li><a href="https://article-posts.techidaily.com/guidelines-for-effective-video-integration-in-teaching-for-2024/"><u>Guidelines for Effective Video Integration in Teaching for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-exclusive-overlooked-the-creme-de-la-creme-mac-transcribers/"><u>In 2024, Exclusive, Overlooked The Crème De La Crème Mac Transcribers</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-password-on-your-apple-iphone-12-mini-drfone-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID Password On your Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/lock-your-nokia-g42-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Nokia G42 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://driver-install.techidaily.com/optimize-system-sounds-for-ws11-guide-to-audio-driver-update/"><u>Optimize System Sounds for WS11: Guide to Audio Driver Update</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/simple-steps-for-transferring-bluprint-course-downloads-onto-both-windows-and-macos-systems/"><u>Simple Steps for Transferring Bluprint Course Downloads Onto Both Windows & macOS Systems</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/solving-the-problem-of-off-closed-captions-on-roku-quick-tips-and-tricks/"><u>Solving the Problem of Off Closed Captions on Roku: Quick Tips & Tricks</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-lava-blaze-curve-5g-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Lava Blaze Curve 5G Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Vivo V30 Lite 5G | Dr.fone</u></a></li>
 </ul></div>
 

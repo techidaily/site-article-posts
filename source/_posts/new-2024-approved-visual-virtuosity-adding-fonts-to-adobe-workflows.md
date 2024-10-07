@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Visual Virtuosity  Adding Fonts to Adobe Workflows\""
-date: 2024-09-25T03:21:57.028Z
-updated: 2024-10-02T04:14:57.440Z
+date: 2024-09-30T16:10:37.042Z
+updated: 2024-10-06T21:28:19.783Z
 tags: 
   - screen-recording
   - ai video
@@ -49,16 +49,10 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 * You can also use the font dropdown menu as a shortcut to use the fonts instantly. In Adobe After Effects interface, you can then select the "Character" panel to add or change the fonts to your videos.
 
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2\. Types of Fonts in After Effects
@@ -80,10 +74,10 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 * After you are done, save the project and your text effects will be added to the final video successfully.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4\. Alternative ways to edit text fonts
@@ -98,22 +92,16 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
-
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -121,13 +109,6 @@ These features also include adding texts and changing the fonts of those texts o
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -149,6 +130,13 @@ These features also include adding texts and changing the fonts of those texts o
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -178,20 +166,18 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/2024-approved-acclaimed-top-5-compact-cameras-for-filming/"><u>2024 Approved Acclaimed Top 5 Compact Cameras for Filming</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-elite-cloud-saving-solutions-compilation/"><u>2024 Approved Elite Cloud Saving Solutions Compilation</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-from-parts-to-proficiency-assembling-a-powerhouse-4k-video-editor-pc/"><u>2024 Approved From Parts to Proficiency Assembling a Powerhouse 4K Video Editor PC</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-insiders-guide-to-efficient-phone-recording/"><u>2024 Approved Insider's Guide to Efficient Phone Recording</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-premium-templates-for-panzoid-introduction/"><u>2024 Approved Premium Templates for Panzoid Introduction</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-subtlety-in-audio-mixdown-with-alive/"><u>2024 Approved Subtlety in Audio Mixdown with Alive</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-upside-down-visuals-investigating-insta-video-anomalies/"><u>2024 Approved Upside Down Visuals Investigating Insta Video Anomalies</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/advanced-accessories-for-immersive-gaming-worlds/"><u>Advanced Accessories for Immersive Gaming Worlds</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/androids-premier-3d-visualization-app-for-2024/"><u>Android's Premier 3D Visualization App for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apple-tvpluss-unfulfilled-promises-vital-features-absent-after-five-years/"><u>Apple TV+'s Unfulfilled Promises: Vital Features Absent After Five Years</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/comprehensive-techniques-for-iphones-in-virtual-space-for-2024/"><u>Comprehensive Techniques for iPhones in Virtual Space for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-any-realme-11x-5g-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Realme 11X 5G Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/steer-clear-of-deception-the-top-5-chatgpt-scams-exposed/"><u>Steer Clear of Deception: The Top 5 ChatGPT Scams Exposed</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-steps-to-correct-update-error-0x8024401c-in-windows-11/"><u>Troubleshooting Steps to Correct Update Error 0X8024401C in Windows 11</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/unleashing-creativity-a-guide-to-innovative-gopro-video-editing/"><u>Unleashing Creativity A Guide to Innovative GoPro Video Editing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-aerial-sovereign-unpacking-the-gopro-karma-system/"><u>[New] Aerial Sovereign Unpacking the GoPro Karma System</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-visualcutter-critique-detailed-review/"><u>[New] In 2024, VisualCutter Critique – Detailed Review</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-depth-look-at-facetune-complete-app-revision-for-2024/"><u>[New] In-Depth Look at Facetune Complete App Revision for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-architects-of-unique-virtual-environments-for-2024/"><u>[Updated] Architects of Unique Virtual Environments for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-stop-the-mist-secrets-to-a-clean-gopro-shot/"><u>[Updated] In 2024, Stop the Mist Secrets to a Clean GoPro Shot</u></a></li>
+<li><a href="https://extra-information.techidaily.com/advanced-photo-manipulation-twisting-images/"><u>Advanced Photo Manipulation Twisting Images</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-free-up-apple-iphone-11-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Free Up Apple iPhone 11 Space | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-vivo-t2-pro-5g-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Vivo T2 Pro 5G by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/icloud-unlocker-download-unlock-icloud-lock-for-your-apple-iphone-xs-max-by-drfone-ios/"><u>iCloud Unlocker Download Unlock iCloud Lock for your Apple iPhone XS Max</u></a></li>
+<li><a href="https://article-posts.techidaily.com/prove-youre-a-pro-lightning-fast-editing-in-windows-11-videos/"><u>Prove You're a Pro Lightning-Fast Editing in Windows 11 Videos</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/resolve-graphics-glitch-in-windowsminecraft/"><u>Resolve Graphics Glitch in Windows/Minecraft</u></a></li>
+<li><a href="https://article-tips.techidaily.com/skyrocketing-your-iphone-film-quality-essential-filmmaking-insights/"><u>Skyrocketing Your iPhone Film Quality Essential Filmmaking Insights</u></a></li>
 </ul></div>
 

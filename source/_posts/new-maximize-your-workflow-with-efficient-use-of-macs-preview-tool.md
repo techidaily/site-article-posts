@@ -1,7 +1,7 @@
 ---
 title: "[New] Maximize Your Workflow with Efficient Use of Mac's Preview Tool"
-date: 2024-09-29T16:12:27.665Z
-updated: 2024-10-01T21:47:42.027Z
+date: 2024-10-03T23:39:43.602Z
+updated: 2024-10-07T09:15:51.682Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,10 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to View and Edit Photos in Preview on Mac
@@ -92,6 +92,19 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -120,13 +133,6 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Remove Background in Preview
 
 As it is with some of the advanced image manipulation programs, even the **Preview app** allows you to remove background from a photo, and that too pretty easily. To get this done:
@@ -142,6 +148,13 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Removing background requires the image to be in PNG format. If the photo you are working on is JPG, Preview prompts with a confirmation box asking your permission to convert the photo from JPG to PNG. You must allow this conversion in order to proceed with the background removal process.
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Combine Images into One
 
@@ -160,10 +173,10 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Save Images in Different Formats
@@ -177,13 +190,6 @@ After opening an image, click **File** from the menu bar at the top, and click *
 **Step 2: Choose Output Format and Export**
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
 
@@ -244,20 +250,16 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-top-15-ff-extensions-for-easy-fb-video-download/"><u>[New] In 2024, Top 15 FF Extensions For Easy FB Video Download</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-premium-steadicam-brands-for-drones-and-camera-work/"><u>[Updated] Premium Steadicam Brands for Drones and Camera Work</u></a></li>
-<li><a href="https://article-posts.techidaily.com/add-personal-touch-to-videos-with-text-labels-using-photos-app-windows-11-for-2024/"><u>Add Personal Touch to Videos with Text Labels Using Photos App (Windows 11) for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/audiences-choice-in-drama-writings-for-2024/"><u>Audience's Choice in Drama Writings for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/best-tales-spun-8-divisions-of-cinematic-genres/"><u>Best Tales Spun 8 Divisions of Cinematic Genres</u></a></li>
-<li><a href="https://article-posts.techidaily.com/camera-buying-made-easy-for-film-novices-for-2024/"><u>Camera Buying Made Easy for Film Novices for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/capture-every-angle-top-360-streaming-devices-reviewed-for-2024/"><u>Capture Every Angle Top 360° Streaming Devices Reviewed for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/comprehensive-step-by-step-on-zooms-video-broadcasting-for-2024/"><u>Comprehensive Step-by-Step on Zoom's Video Broadcasting for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/crossing-media-boundaries-insta-to-tiktok-guide/"><u>Crossing Media Boundaries Insta-to-TikTok Guide</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/dont-risk-lockout-ensure-your-apple-account-is-accessible-with-a-simple-5-minute-setup/"><u>Don't Risk Lockout – Ensure Your Apple Account Is Accessible with a Simple 5-Minute Setup!</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/galaxy-s23plus-examined-does-this-new-release-truly-enhance-your-smartphone-experience/"><u>Galaxy S23+ Examined: Does This New Release Truly Enhance Your Smartphone Experience?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-high-speed-screen-grabber-with-audible-narration/"><u>In 2024, High-Speed Screen Grabber with Audible Narration</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Samsung Galaxy XCover 6 Pro Tactical Edition? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/masterclass-in-minimal-photoshop-alterations/"><u>Masterclass in Minimal Photoshop Alterations</u></a></li>
-<li><a href="https://win11.techidaily.com/the-10-safest-free-software-download-sites-for-windows/"><u>The 10 Safest Free Software Download Sites for Windows</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-embracing-room-light-outdoor-integration-tips-for-2024/"><u>[New] Embracing Room Light Outdoor Integration Tips for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-complete-mac-users-bible-to-srt-alteration/"><u>[Updated] 2024 Approved The Complete Mac User's Bible to SRT Alteration</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-how-does-youtube-work-after-a-video-is-uploaded/"><u>[Updated] How Does YouTube Work After a Video Is Uploaded</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-passport-photo-creation-made-easy-10-images-at-no-cost/"><u>[Updated] In 2024, Passport Photo Creation Made Easy 10 Images at No Cost</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-advanced-hd-screenshot-and-recording-programs-guide/"><u>2024 Approved Advanced HD Screenshot and Recording Programs Guide</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-live-video-quest-evaluating-the-strengths-of-obs-and-twitch-studio/"><u>2024 Approved Live Video Quest Evaluating the Strengths of OBS and Twitch Studio</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-lava-yuva-2-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Lava Yuva 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-locked-apple-id-from-apple-iphone-xs-by-drfone-ios/"><u>In 2024, How to Fix Locked Apple ID from Apple iPhone XS</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/leading-add-ons-to-improve-sea-camera-shots/"><u>Leading Add-Ons to Improve Sea Camera Shots</u></a></li>
+<li><a href="https://article-posts.techidaily.com/revolutionary-6-applications-to-enhance-photo-editing-experience-for-2024/"><u>Revolutionary 6 Applications to Enhance Photo Editing Experience for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-unexpected-verdict-on-nikon-l340-reviewed/"><u>The Unexpected Verdict on Nikon L340 Reviewed</u></a></li>
 </ul></div>
 

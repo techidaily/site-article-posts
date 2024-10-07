@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Strategies for Effective B-Roll Application\""
-date: 2024-09-25T05:31:53.544Z
-updated: 2024-10-02T00:33:19.515Z
+date: 2024-09-29T21:41:04.046Z
+updated: 2024-10-07T00:18:33.689Z
 tags: 
   - screen-recording
   - ai video
@@ -37,13 +37,6 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Methods to use b roll
 
 Now that there are so many stock footage platforms, you have a lot of choices when you need just the right scene for your project. Most of the time, filmmakers don't use B roll footage. One good way to use it is to use it as a way to move from one scene to the next. It can also be used to set the mood for an event or show what time of day it is when filming.
@@ -64,33 +57,33 @@ Aerial B roll is the solution when you like to show your viewers where your film
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
 
 When you are sharing a narrative that has been told in the past or that has historical significance, incorporating archival material into your video gives your audience the opportunity to see the story as it occurred at the time. This is especially useful when you are discussing a narrative that has been experienced in the past or that has futuristic relevance.
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
 
@@ -99,15 +92,22 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -143,21 +143,24 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-boosting-your-browser-lightning-speed-profile-hunts/"><u>[New] 2024 Approved Boosting Your Browser Lightning Speed Profile Hunts</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-mukbang-mastery-from-novice-to-pro-video-creator/"><u>[New] 2024 Approved Mukbang Mastery From Novice to Pro Video Creator</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-leveraging-multimedia-tools-for-enhanced-screencasts-for-2024/"><u>[New] Leveraging Multimedia Tools for Enhanced Screencasts for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-the-ultimate-guide-to-adaptive-igtv-video-dimensions-for-2024/"><u>[Updated] The Ultimate Guide to Adaptive IGTV Video Dimensions for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-cut-copy-and-paste-quickly-create-perfect-video-conclusions-no-cost/"><u>2024 Approved Cut, Copy & Paste Quickly Create Perfect Video Conclusions (No Cost)</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-navigating-through-quantum-hdr-expertise/"><u>2024 Approved Navigating Through Quantum HDR Expertise</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-premier-stream-gear-with-superior-360-degree-cameras/"><u>2024 Approved Premier Stream Gear with Superior 360-Degree Cameras</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-top-6-fiscal-picks-in-the-4k-projector-market/"><u>2024 Approved Top 6 Fiscal Picks in the 4K Projector Market</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-unlock-your-fcp-potential-with-these-10-plugs/"><u>2024 Approved Unlock Your FCP Potential with These 10 Plugs</u></a></li>
-<li><a href="https://article-posts.techidaily.com/b-footage-techniques-for-creating-engaging-video-content/"><u>B-Footage Techniques for Creating Engaging Video Content</u></a></li>
-<li><a href="https://article-posts.techidaily.com/complete-scrutiny-gopro-silver-hero4-version-for-2024/"><u>Complete Scrutiny GoPro Silver Hero4 Version for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-samsung-galaxy-a14-5g-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Samsung Galaxy A14 5G to Laptop Without USB | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/innovative-design-and-graphics-free-and-affordable-sources-for-2024/"><u>Innovative Design and Graphics Free & Affordable Sources for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/spectral-film-reset-guide/"><u>Spectral Film Reset Guide</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/the-ultimate-list-of-animation-tools-for-schools/"><u>The Ultimate List of Animation Tools for Schools</u></a></li>
-<li><a href="https://techidaily.com/xiaomi-14-pro-messages-recovery-recover-deleted-messages-from-xiaomi-14-pro-by-fonelab-android-recover-messages/"><u>Xiaomi 14 Pro Messages Recovery - Recover Deleted Messages from Xiaomi 14 Pro</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-essential-methods-youtube-to-mpeg-transformation-guide/"><u>[New] 2024 Approved Essential Methods YouTube to MPEG Transformation Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-best-buy-in-4k-budget-savvy-camera-picks-for-2024/"><u>[New] Best Buy in 4K Budget-Savvy Camera Picks for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-crafting-engaging-instagram-reels-step-by-step/"><u>[New] Crafting Engaging Instagram Reels Step-by-Step</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-unveiling-the-future-of-gaming-an-in-depth-look-at-lg-27ud68/"><u>[New] In 2024, Unveiling the Future of Gaming An In-Depth Look at LG 27UD68</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-shining-spotlight-on-luminous-hdr-techniques-for-2024/"><u>[New] Shining Spotlight on Luminous HDR Techniques for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-ultimate-guide-for-sustainable-visual-recording/"><u>[New] Ultimate Guide for Sustainable Visual Recording</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-elevate-photo-beauty-with-top-10-iphoneandroid-stickers-apps/"><u>[Updated] 2024 Approved Elevate Photo Beauty with Top 10 iPhone/Android Stickers Apps</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-gaming-insiders-youtube-channels-you-should-see/"><u>[Updated] 2024 Approved Gaming Insiders' YouTube Channels You Should See</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-insightful-analysis-the-dji-inspire-2-story/"><u>[Updated] 2024 Approved Insightful Analysis - The DJI Inspire 2 Story</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-top-8-factors-in-choosing-a-4k-cam-lens-upgrade/"><u>[Updated] 2024 Approved Top 8 Factors in Choosing a 4K Cam Lens Upgrade</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-elevating-expectations-innovative-gift-box-experiences/"><u>[Updated] Elevating Expectations Innovative Gift Box Experiences</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-pair-phonetablet-and-computer-calendars-for-seamless-zoom-scheduling-for-2024/"><u>[Updated] Pair Phone/Tablet & Computer Calendars for Seamless Zoom Scheduling for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/die-10-beste-video-editing-software-fur-ihren-windows-11-und-10-computer/"><u>Die 10 Beste Video-Editing Software Für Ihren Windows 11 Und 10 Computer</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On OnePlus Nord N30 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/inquiry-youtubes-payment-scheme-for-creators-for-2024/"><u>Inquiry YouTube's Payment Scheme for Creators for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/online-signature-for-pdf-v10-document-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>Online signature for PDF v1.0 document</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/premium-7-cameras-boosting-vlogging-creativity-and-viewership-for-2024/"><u>Premium 7 Cameras Boosting Vlogging Creativity & Viewership for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlock-a-new-dimension-of-marvel-explore-it-with-apple-vision-pro-on-its-release-may-30-detailed-coverage-by-zdnet/"><u>Unlock a New Dimension of Marvel - Explore It with Apple Vision Pro on Its Release, May 30 | Detailed Coverage by ZDNet</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-free-and-paid-imovie-alternatives-for-windows-10-a-comprehensive-list-for-2024/"><u>Updated Free and Paid iMovie Alternatives for Windows 10 A Comprehensive List for 2024</u></a></li>
 </ul></div>
 

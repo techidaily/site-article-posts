@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Virtuality Unveiled  Evolution of Escapism\""
-date: 2024-09-27T21:11:50.718Z
-updated: 2024-10-01T18:03:41.454Z
+date: 2024-09-30T12:19:57.624Z
+updated: 2024-10-07T08:48:44.245Z
 tags: 
   - screen-recording
   - ai video
@@ -45,10 +45,10 @@ _[Virtual Reality Technology: Current State and Future Challenges](https://tools
 In Pygmalions Spectacles, Stanley G. Weinbaum explains a goggle based game in which individuals can watch a holographic recording of virtual stories including touch and smell. This amazing vision of the future would actually turn into what we think of as virtual-reality today. While it's difficult to introduce touch and smell elements into the average virtual-reality experience, these are visions that creators have in mind for the very near future of virtual-reality experiences. It's amazing to think that 85+ years ago, people were already thinking about creating simulation experiences using technology. We still think of these types of plans as we look towards the future of VR. With rapidly changing technology however, these improvements to the VR simulation experience may be far closer than decades away.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## VR development in 1960s
@@ -56,10 +56,10 @@ In Pygmalions Spectacles, Stanley G. Weinbaum explains a goggle based game in wh
 VR headsets actually started development in the 1960s. Just 30 years from the original thought of a VR headset, Ivann Sutherland created the very first VR headset for use with military applications. Using a specialized military software as well as a motion control platform, the first VR headsets were designed for use in training exercises. These VR training tools have now become the standard in the military for training for flight exercises, combat situations and more. An immersive experience is definitely required to push military personnel and prepare them in a safe training environment before they enter into the field. Many air forces around the world require an extensive amount of VR training simulations before they will even let a pilot into one of their aircraft. With the initial development using specialized software and motion controls, VR research would continue to pave the way for training in the military and beyond. Today’s military VR headsets are far more advanced, compact and immersive and these training programs as well as the technology will continue to develop a little bit faster than some of the products that we might find as regular consumers.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## VR development in 1990s
@@ -67,10 +67,10 @@ VR headsets actually started development in the 1960s. Just 30 years from the or
 VR headsets begin to make their way into a few arcade games for simulations and Nintendo announced the first home VR system. Virtual Boy was one of the first home systems available for use with a widespread appeal. Sega also introduced a Sega VR headset for the Sega Genesis console in the year 1993\. These wraparound prototypes had stereo sound, LCD screens and head tracking. Technical development in this VR headset doom the project and the cost of the headset was extensive making it a massive flop for Sega. The Virtual Boy however was a 3-D game console that experienced a little more success. Virtual Boy was released in North America at a price of $180\. The games were entirely made in red and black and there were only a few pieces of software available with the device. Users would wear a VR headset and control the action on a regular Nintendo controller. Unfortunately the console was very uncomfortable to use and because of the lack of games as well as the lack of color, it didn't present the same strong sales as the other Nintendo consoles out at the time.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## VR development in 2014
@@ -86,10 +86,16 @@ The future of VR looks very bright and with so many new devices in development i
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -117,14 +123,20 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-ace-your-social-media-game-essential-video-marketing-techniques-on-facebook-for-2024/"><u>[New] Ace Your Social Media Game Essential Video Marketing Techniques on Facebook for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-odins-vengeance-the-ragnarok-trilogy/"><u>[New] Odin's Vengeance The Ragnarok Trilogy</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-magical-jargon-uncover-the-best-marketing-phrases/"><u>[Updated] In 2024, Magical Jargon Uncover the Best Marketing Phrases</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-enhancing-visibility-the-power-of-strategic-facebook-giveaways/"><u>2024 Approved Enhancing Visibility The Power of Strategic Facebook Giveaways</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-ffmpeg-and-the-art-of-audio-preservation/"><u>2024 Approved FFmpeg and the Art of Audio Preservation</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-laughing-lane-the-no-10-guide-to-memelore/"><u>2024 Approved Laughing Lane - The No. 10 Guide to Memelore</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-number-1-in-the-elite-8-virtual-composite-maker/"><u>2024 Approved Number 1 in the Elite 8 Virtual Composite Maker</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/kinemasters-secret-to-meme-making-mastery-for-2024/"><u>KineMaster's Secret to Meme-Making Mastery for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-next-generation-of-video-splitters-post-xplit-for-2024/"><u>The Next Generation of Video Splitters Post-Xplit for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-advanced-editing-guide-for-creating-compelling-360-degree-videos-using-premiere-pro/"><u>[New] 2024 Approved Advanced Editing Guide for Creating Compelling 360-Degree Videos Using Premiere Pro</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevate-your-channels-templates-at-no-charge-for-2024/"><u>[New] Elevate Your Channels - Templates at No Charge for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-mastering-ffpm-a-guide-to-firefoxs-pip-feature/"><u>[New] Mastering FFPM A Guide to Firefox's PIP Feature</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-digital-horizons-meta-to-omni-contrast/"><u>[Updated] 2024 Approved Digital Horizons Meta to Omni Contrast</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-hero5-black-vs-yi-4k-which-takes-the-crown-in-action-cam-war/"><u>[Updated] 2024 Approved Hero5 Black Vs. Yi 4K Which Takes the Crown in Action Cam War?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-leading-graphics-cards-in-4k-resolution/"><u>[Updated] 2024 Approved Leading Graphics Cards in 4K Resolution</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-leading-6-software-for-multilingual-video-aids/"><u>[Updated] Leading 6 Software for Multilingual Video Aids</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-high-quality-streaming-top-5-recorder-devices-reviewed/"><u>2024 Approved High-Quality Streaming Top 5 Recorder Devices Reviewed</u></a></li>
+<li><a href="https://article-files.techidaily.com/chucklechops-witworks-corp/"><u>ChuckleChops WitWorks Corp</u></a></li>
+<li><a href="https://article-posts.techidaily.com/funimate-pro-unboxed-your-essential-apk-guide/"><u>Funimate Pro Unboxed Your Essential APK Guide</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/how-to-troubleshoot-and-repair-dvd-shrink-compatibility-problems-on-modern-windows-systems/"><u>How to Troubleshoot and Repair DVD Shrink Compatibility Problems on Modern Windows Systems</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-huawei-p60-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Huawei P60 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/in-depth-btoes-review-a-comprehensive-overview-of-international-operational-mastery/"><u>In-Depth BTOES Review: A Comprehensive Overview of International Operational Mastery</u></a></li>
+<li><a href="https://win11.techidaily.com/simplifying-unblocked-files-via-powershell-on-pc/"><u>Simplifying Unblocked Files via PowerShell on PC</u></a></li>
 </ul></div>
 

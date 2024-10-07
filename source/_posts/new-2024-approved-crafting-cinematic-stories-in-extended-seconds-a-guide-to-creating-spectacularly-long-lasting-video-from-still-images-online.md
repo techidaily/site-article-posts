@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Crafting Cinematic Stories in Extended Seconds  A Guide to Creating Spectacularly Long Lasting Video From Still Images Online\""
-date: 2024-09-29T16:20:47.637Z
-updated: 2024-10-02T05:22:06.129Z
+date: 2024-09-30T08:35:29.315Z
+updated: 2024-10-06T21:42:04.786Z
 tags: 
   - screen-recording
   - ai video
@@ -48,10 +48,10 @@ Navigate to the folder where your video file is located and right click on it. Y
 If you do not see the option anywhere on your Photos app, there is a chance you are running an outdated version of Windows 10 on your computer. All you need to do is navigate to Windows Update through your system menu. When all the updates install, you will have the latest Photos app with this feature.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2：Customizing the Slow Motion Effect
@@ -65,10 +65,16 @@ Now you can select the beginning and end point using the bottom slider on the Ph
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/make-slow-motion-microsoft-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 We recommend that you save your video file under a new name when you are done making your desired changes. It ensures that you still have the original copy of the video saved on your computer or external hard drive.
@@ -93,6 +99,13 @@ Click on the “upload video” button so that it can be added into the database
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/ezgif-change-videos-speed-import.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Output**
 
 The program will let you adjust the video speed to your liking. Then you will get a URL for the output video, which will have been slowed down according to your settings. There is even an option to keep the audio track at the same speed, but you can slow down the audio at the same rate as the video if you want.
@@ -100,23 +113,10 @@ The program will let you adjust the video speed to your liking. Then you will ge
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/change-video-speed-ezgif-edit.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -150,24 +150,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-decoding-podcast-access-a-detailed-iphone-guidebook/"><u>[Updated] 2024 Approved Decoding Podcast Access A Detailed iPhone Guidebook</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-epic-viewership-winners-youtubes-ultimate-list/"><u>[Updated] Epic Viewership Winners YouTube's Ultimate List</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-unraveling-instagrams-policies-on-sharing-songs/"><u>[Updated] In 2024, Unraveling Instagram's Policies on Sharing Songs</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-no-displayed-video-fixing-camera-issue-with-sony-a6400-for-2024/"><u>[Updated] No Displayed Video Fixing Camera Issue with Sony A6400 for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-captivating-concepts-explore-14-innovative-text-movements/"><u>2024 Approved Captivating Concepts Explore 14 Innovative Text Movements</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-discover-the-best-smartphone-arvr-adventures/"><u>2024 Approved Discover the Best Smartphone AR/VR Adventures</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-efficient-reliable-and-free-your-ultimate-guide-to-videodownloading-pins/"><u>2024 Approved Efficient, Reliable & Free! Your Ultimate Guide to Videodownloading Pins</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-funflicks-full-evaluation-and-instructions-24/"><u>2024 Approved FunFlicks Full Evaluation & Instructions '24</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-lightning-fast-video-delivery-on-facebook-select-extensions-and-apps/"><u>2024 Approved Lightning-Fast Video Delivery on Facebook Select Extensions & Apps</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-mavic-air-vs-spark-the-gamers-edition-comparison/"><u>2024 Approved Mavic Air Vs. Spark The Gamer's Edition Comparison</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-premiere-pro-speed-blackouts/"><u>2024 Approved Premiere Pro Speed Blackouts</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-ticklishtones-selecting-the-best-ringtones-for-smiles/"><u>2024 Approved TicklishTones Selecting the Best Ringtones for Smiles</u></a></li>
-<li><a href="https://article-posts.techidaily.com/5-high-quality-displays-for-unparalleled-games-for-2024/"><u>5 High-Quality Displays for Unparalleled Games for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-vivo-y200e-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Vivo Y200e 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/choosing-google-pixel-music-matches-online/"><u>Choosing Google Pixel Music Matches Online</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-xiaomi-redmi-12-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Xiaomi Redmi 12 to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/inside-look-at-samsungs-next-big-thing-the-galaxy-z-flip-series-7-price-estimates-release-window-and-tech-rumors-explored/"><u>Inside Look at Samsung's Next Big Thing: The Galaxy Z Flip Series 7 – Price Estimates, Release Window, and Tech Rumors Explored</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ring-the-art-of-freefire-a-gaming-youtubers-guide-for-2024/"><u>Mastering the Art of FreeFire A Gaming Youtuber’s Guide for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/quick-shake-reduction-companion-for-cams/"><u>Quick Shake Reduction Companion for Cams</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-leaders-list-of-gps-drones-with-precision-tracking/"><u>[New] 2024 Approved Leader's List of GPS Drones with Precision Tracking</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-expertise-in-audio-file-transformation-from-srt-to-xmlssattml-for-2024/"><u>[New] Expertise in Audio File Transformation From SRT to XML/SSA/TTML for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-outlining-expenditures-the-price-tag-of-video-capturing-tunes-for-2024/"><u>[New] Outlining Expenditures The Price Tag of Video Capturing Tunes for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-prioritize-savings-with-the-best-6-affordable-camera-brands-for-2024/"><u>[New] Prioritize Savings with the Best 6 Affordable Camera Brands for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unveiled-the-premier-places-to-obtain-snapchat-audio/"><u>[New] Unveiled The Premier Places to Obtain Snapchat Audio</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-8plus-free-easy-to-use-downloader-apps-for-instagrams-creative-videos/"><u>[Updated] 2024 Approved 8+ Free, Easy-to-Use Downloader Apps for Instagram's Creative Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-rotate-iphone-pics-sideways-and-upside-down-made-easy/"><u>[Updated] In 2024, Rotate iPhone Pics Sideways & Upside Down Made Easy</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-complete-guide-to-canva-audio-amendments/"><u>[Updated] In 2024, The Complete Guide to Canva Audio Amendments</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-simple-swift-and-superior-voice-tweaks-for-pubg-players/"><u>[Updated] Simple, Swift, and Superior Voice Tweaks for PUBG Players</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-the-top-7-stardew-valley-improvement-packs/"><u>[Updated] The Top 7 Stardew Valley Improvement Packs</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/guia-passo-a-passo-para-transferir-musica-para-unidade-flash-em-pcs-e-macs-inspirado-em-dicas-de-movavi/"><u>Guia Passo-a-Passo Para Transferir Música Para Unidade Flash Em PCs E Macs [Inspirado Em Dicas De Movavi]</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-easily-update-your-amd-ryzen-drivers-step-by-step-instructions/"><u>How to Easily Update Your AMD Ryzen Drivers: Step-by-Step Instructions</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-leverage-symbolic-meanings-in-social-media-conversations/"><u>How to Leverage Symbolic Meanings in Social Media Conversations</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-oppo-find-n3-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Oppo Find N3?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-realme-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Realme Phone that is Locked?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-premium-free-template-pack-top-titles-for-ae-dreamers/"><u>In 2024, Premium FREE Template Pack Top Titles for AE Dreamers</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mov-to-civi-3-converter-convert-mov-files-for-civi-3-by-aiseesoft-video-converter-play-mov-on-android/"><u>MOV to Civi 3 converter-convert .mov files for Civi 3</u></a></li>
 </ul></div>
 
