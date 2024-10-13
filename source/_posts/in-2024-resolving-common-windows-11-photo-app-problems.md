@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Resolving Common Windows 11 Photo App Problems"
-date: 2024-09-17T17:13:25.648Z
-updated: 2024-09-20T16:33:24.727Z
+date: 2024-10-08T17:13:31.563Z
+updated: 2024-10-13T03:41:36.664Z
 tags: 
   - screen-recording
   - ai video
@@ -58,8 +58,28 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
 
@@ -75,10 +95,10 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution 3: Reset it
@@ -119,14 +139,14 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -151,5 +171,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-a-primer-on-the-language-of-immersive-technology-for-2024/"><u>[New] A Primer on the Language of Immersive Technology for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-nurturing-relationships-inspiring-connections-with-your-viewers/"><u>[New] In 2024, Nurturing Relationships Inspiring Connections With Your Viewers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-video-feedback-through-apple-music-streams/"><u>[New] In 2024, Video Feedback Through Apple Music Streams</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-iosandroid-leading-photo-writing-app-list-for-2024/"><u>[New] IOS/Android Leading Photo-Writing App List for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-masterclass-5-in-best-mac-videography-software-for-2024/"><u>[New] Masterclass 5 in Best Mac Videography Software for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-pick-your-favorites-top-6-fb-lite-videos-downloaders/"><u>[New] Pick Your Favorites Top 6 FB Lite Videos Downloaders</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-playstation-plaza-your-gateway-to-a-thousand-channels/"><u>[Updated] PlayStation Plaza Your Gateway to a Thousand Channels</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unlocking-the-secrets-of-google-podcast-uploads-for-2024/"><u>[Updated] Unlocking the Secrets of Google Podcast Uploads for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/from-novice-to-pro-how-to-optimize-your-onestream-livestream-for-2024/"><u>From Novice to Pro How to Optimize Your OneStream Livestream for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-7-plus-to-other-iphone-12-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 7 Plus To Other iPhone 12 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-disabled-iphone-6-plusipad-without-computer-drfone-by-drfone-ios/"><u>How to Unlock Disabled iPhone 6 Plus/iPad Without Computer | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-watch-hulu-outside-us-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-fixes-to-solve-iphone-xs-max-randomly-asking-for-apple-id-password-by-drfone-ios/"><u>In 2024, Complete Fixes To Solve iPhone XS Max Randomly Asking for Apple ID Password</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-unlocking-cinemas-next-frontier-virtual-reality/"><u>In 2024, Unlocking Cinema's Next Frontier Virtual Reality</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/live-commerce-next-chapter-can-ai-unlock-its-true-potential/"><u>Live Commerce Next Chapter Can AI Unlock Its True Potential?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/perfect-upside-down-and-sideways-iphone-images-for-2024/"><u>Perfect Upside-Down & Sideways iPhone Images for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/youtube-windows-10/"><u>YouTube動画録画講座: Windows 10ユーザーへのシンプルかつステップバイステップ</u></a></li>
+</ul></div>
 

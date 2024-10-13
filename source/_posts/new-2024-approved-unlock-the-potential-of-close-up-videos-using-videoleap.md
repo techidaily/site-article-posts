@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Unlock the Potential of Close-Up Videos Using Videoleap\""
-date: 2024-09-29T23:21:24.639Z
-updated: 2024-10-06T16:06:55.169Z
+date: 2024-10-10T02:25:53.631Z
+updated: 2024-10-12T21:41:34.267Z
 tags: 
   - screen-recording
   - ai video
@@ -60,27 +60,27 @@ Sometimes the video contents need a dramatic zoom effect that should take place 
 
 ![preview timeline videoleap](https://images.wondershare.com/filmora/article-images/2022/07/preview-timeline-videoleap.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Then select the "keyframes" tool from the toolbar at the bottom of your screen.
 * Add the keyframes to the desired portion of the video and then navigate the timecode to the place on the timeline where you want to stop it. After that add another keyframe at that point and pinch in to zoom the video.
 
 ![add keyframes videoleap](https://images.wondershare.com/filmora/article-images/2022/07/add-keyframes-videoleap.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Now head to the second time code where you want to focus the subject and then click on it. Then click on the "Preview" icon and see whether it needs further changes.
 * When you are satisfied, simply export the project and your animated zoom video will be saved successfully.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Alternative way to Zoom Video on Computer
 
@@ -116,10 +116,10 @@ Videoleap is one of the leading video editing platforms available out there. The
 ![open the filmora application on pc](https://images.wondershare.com/filmora/guide/pan-zoom-feature-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * This will open 4 different types of tools regarding zoom functions. The first tool will help you to go from larger frames to smaller frames by zooming in. Thus, you can use this feature to bring details to a subject in your video. The second option helps you with zooming out from a smaller frame to a larger frame.
@@ -128,10 +128,10 @@ Videoleap is one of the leading video editing platforms available out there. The
 * When you are done with your editing process, save the video and the file will be exported to your PC.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -166,24 +166,24 @@ Videoleap is one of the leading video editing platforms available out there. The
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-perfecting-online-photos-the-cropping-guide/"><u>[New] 2024 Approved Perfecting Online Photos The Cropping Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-visual-narratives-instagram-carousel/"><u>[New] 2024 Approved Visual Narratives Instagram Carousel</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-tips-of-recording-time-lapse-video-on-iphone/"><u>[New] Tips of Recording Time Lapse Video on iPhone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-windows-10-treasures-exciting-new-apps-and-games-await-for-2024/"><u>[New] Windows 10 Treasures Exciting New Apps & Games Await for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-achieving-authenticity-altering-voices-on-instagram-profiles-for-2024/"><u>[Updated] Achieving Authenticity Altering Voices on Instagram Profiles for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-essential-first-timer-props-for-gopros/"><u>[Updated] In 2024, Essential First-Timer Props for GoPros</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-windows-8-guide-to-powerful-movie-maker-editing-techniques/"><u>[Updated] In 2024, The Windows 8 Guide to Powerful Movie Maker Editing Techniques</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-kinemasters-blueprint-for-smooth-video-flow-and-continuity/"><u>[Updated] Kinemaster's Blueprint for Smooth Video Flow and Continuity</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-make-a-stir-in-the-app-ingenious-bio-strategies-to-captivate-swipes/"><u>[Updated] Make a Stir in the App - Ingenious Bio Strategies to Captivate Swipes</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-synapse-your-thoughts-on-mematics-platform/"><u>[Updated] Synapse Your Thoughts on Mematic's Platform</u></a></li>
-<li><a href="https://win-answers.techidaily.com/2022s-ultimate-guide-to-handling-valve-anti-cheat-glitches-on-dota-2/"><u>2022'S Ultimate Guide to Handling Valve Anti-Cheat Glitches on Dota 2</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-join-the-meme-revolution-expert-tips-for-the-metaverse/"><u>2024 Approved Join the Meme Revolution Expert Tips for the Metaverse</u></a></li>
-<li><a href="https://article-posts.techidaily.com/detailed-evaluation-gopro-silver-hero4/"><u>Detailed Evaluation GoPro Silver Hero4</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone X | Dr.fone</u></a></li>
-<li><a href="https://os-tips.techidaily.com/stalled-ipads-displaying-apple-symbols-effective-techniques-for-resolution-and-restarting/"><u>Stalled iPads Displaying Apple Symbols: Effective Techniques for Resolution and Restarting</u></a></li>
-<li><a href="https://win-dash.techidaily.com/swift-download-of-microsofts-ergonomic-keyboard-v4000-driver-software/"><u>Swift Download of Microsoft's Ergonomic Keyboard v4000 Driver Software</u></a></li>
-<li><a href="https://extra-information.techidaily.com/top-4-remedies-enhancing-iphone-hdr-images-in-premiere-pro/"><u>Top 4 Remedies Enhancing iPhone HDR Images in Premiere Pro</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unlocking-high-tech-secrets-with-toms-comprehve-hewrdie-guide/"><u>Unlocking High-Tech Secrets with Tom's Comprehve Hewrdie Guide</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/webcam-tricks-for-smooth-video-on-hp-devices/"><u>Webcam Tricks for Smooth Video on HP Devices</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-blueprint-for-building-a-graphic-design-business/"><u>[New] 2024 Approved Blueprint for Building a Graphic Design Business</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-a-guide-to-recording-streams-discovering-the-best-7-approaches-for-2024/"><u>[New] A Guide to Recording Streams Discovering the Best 7 Approaches for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-facebook-cover-video-introduction-size-format-and-time/"><u>[New] Facebook Cover Video Introduction, Size, Format & Time</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-diy-4k-edits-assembling-a-powerhouse-pc-for-high-res-video/"><u>[New] In 2024, DIY 4K Edits Assembling a Powerhouse PC for High-Res Video</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-from-picture-to-paragraph-text-on-windows-and-mac-photos/"><u>[New] In 2024, From Picture to Paragraph Text on Windows & Mac Photos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-hidden-guide-watching-highly-engaged-comments-with-ease-on-youtube-for-2024/"><u>[New] The Hidden Guide Watching Highly Engaged Comments with Ease on YouTube for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-sync-audio-to-powerpoint-presentations/"><u>[Updated] 2024 Approved Sync Audio to PowerPoint Presentations</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-unlocking-the-secrets-of-premium-insta-tunes-a-complete-guide/"><u>[Updated] 2024 Approved Unlocking the Secrets of Premium Insta Tunes A Complete Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-discover-the-best-options-to-apply-vhs-photo-effects-on-computeronline/"><u>[Updated] In 2024, Discover The Best Options to Apply VHS Photo Effects on Computer/Online</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-elevate-your-gopro-experience-with-top-rated-sd-card-picks/"><u>[Updated] In 2024, Elevate Your GoPro Experience with Top-Rated SD Card Picks</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-transform-your-zoom-presentations-with-stunning-visuals/"><u>[Updated] Transform Your Zoom Presentations with Stunning Visuals</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-sony-xperia-5-v-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Sony Xperia 5 V to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/navigating-camera-settings-for-optimal-gopro-timelapse-results/"><u>Navigating Camera Settings for Optimal GoPro Timelapse Results</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/navigating-instagrams-repost-policy-for-2024/"><u>Navigating Instagram's Repost Policy for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/saving-on-recording-expenses-free-cam-screen-recorders-evaluated-for-2024/"><u>Saving on Recording Expenses Free Cam Screen Recorders Evaluated for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-best-in-class-evaluating-the-top-8-sub-to-srt-convertors-for-2024/"><u>The Best in Class Evaluating the Top 8 Sub to SRT Convertors for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-lithuanian-language-ideal-online-resources/"><u>Unlock Lithuanian Language: Ideal Online Resources</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/whats-new-with-chatgpt-dive-into-its-recent-software-enhancasternment/"><u>What's New with ChatGPT? Dive Into Its Recent Software Enhancasternment</u></a></li>
 </ul></div>
 

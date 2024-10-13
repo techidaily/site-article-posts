@@ -1,0 +1,110 @@
+---
+title: "[Updated] Strategic Use of Outdoor Light for Internal Comfort"
+date: 2024-10-06T02:21:46.882Z
+updated: 2024-10-12T16:03:35.018Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "This Article Describes [Updated] Strategic Use of Outdoor Light for Internal Comfort"
+excerpt: "This Article Describes [Updated] Strategic Use of Outdoor Light for Internal Comfort"
+keywords: "Light For Comfort,Strategic Lighting,Outdoor Lighting Effects,Indoor Cozy Ambiance,Natural Illumination Benefits,Efficient Light Use,Outdoor Light Impact"
+thumbnail: https://thmb.techidaily.com/6f4cdd66eb80d6b11b40dd91cdc2954ad9c9332b667ceffd517edd2d97f1e6e4.png
+---
+
+## Strategic Use of Outdoor Light for Internal Comfort
+
+# Indoor Natural Lighting Tips
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ A great looking vlog is a well-lit vlog. Not everybody can afford professional lighting equipment for their YouTube channels. It’s a big investment, especially if you think of your channel as a hobby. Sometimes even if you have a lighting kit you do not want to set up multiple lights and stands to every time you shoot a vlog entry. You might be shooting them every day. It is great to have lighting equipment, and it is also great to know when you can get around it.
+
+## How to Get Best Natural Lighting Indoors
+
+ Using a window as your main light source is a simple way to get high quality lighting on a budget. When it is bright outside a window is as powerful as any light you might have. So, besides just being cheap, windows can actually make your YouTube videos look amazing.
+
+#### 1\. Windows as Key Lights
+
+ When you shoot near a window you can treat that window the same as the key light in a three-point lighting set up.
+
+ In three-point lighting you have a key light, a fill light, and a main light. Your key light, in this case your window, is off to one side. It will cast a shadow over half of your face which you soften using your fill light. Your backlight is a light you put behind you to help you pop out of your background.
+
+ Another thing that can help you pop out from your background is focusing your keylight so that its light is only landing on you, not your background.
+
+ Rather than setting up professional lights for your fill and backlights try using household lamps or reflectors. Reflectors are used to bounce light from another source, so if you set one up opposite to the window it will redirect light back at the shaded side of your face.
+
+ Reflectors are very affordable, often around $20, but if you do not have one then you can use a sheet of aluminum foil.
+
+#### 2\. Windows as Front Lights
+
+ Vlogging while facing a window is a great way to get even lighting over your entire face. This is a great set up for makeup tutorials or other beauty vlogs. It can also work for opinion vloggers, or any other vlogging genre where the focus is on a stationary host, though.
+
+ The only issue that can arise when you use a window as a front light for your vlog is that you do not stand out from your background because the lighting is even on both you and it. This is not difficult to get around; you just need a backlight.
+
+ You can use a household lamp or a reflector as a backlight. The idea is that the light hitting you from behind will create a boarder around you that will make you pop out from the background of your shot.
+
+#### 3\. Windows as Backlights
+
+ It is usually a bad idea to use a window as a backlight because they are too bright. Shooting with a window behind you will not just give you a dark boarder, like a lamp or a reflector; it will completely transform you into a silhouette. This is an interesting effect in some situations, but not in a vlog where your viewers are expecting to be able to see you. It is sometimes possible to make this kind of shot work by increasing your exposure, but then you might end up with over-exposed footage. Pushing the ‘info’ button a couple times will allow you to check you exposure on most DSLRs.
+
+#### 4\. Diffusers
+
+ A diffuser is a screen of translucent fabric you can use to soften your light. The light coming from your window might be hard on your eyes, and setting up a diffuser between you and your window can help you not to blink. Often when reflectors come in colored sets one of the ‘colors’ will be translucent and you can use it as a diffuser.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-reestablishing-connection-with-dormant-obs-camera/"><u>[New] 2024 Approved Reestablishing Connection with Dormant OBS Camera</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-superior-video-capture-leading-webcams-for-podcasts/"><u>[New] Superior Video Capture Leading Webcams for Podcasts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-luminary-developers-transforming-vr-landscapes/"><u>[Updated] 2024 Approved The Luminary Developers Transforming VR Landscapes</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-glowing-with-hd-does-it-serve-the-scope-of-hdr-well-for-2024/"><u>[Updated] Glowing with HD Does It Serve the Scope of HDR Well for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-discover-the-9-hottest-sites-for-3d-graffiti-font-download/"><u>2024 Approved Discover the 9 Hottest Sites for 3D Graffiti Font Download</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-lava-yuva-2-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Lava Yuva 2 without App | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ai-chatbots-showdown-comparing-chatgpt-plus-and-perplexity/"><u>AI Chatbots Showdown: Comparing ChatGPT Plus and Perplexity</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-matches-top-ten-gimbals-for-quality-shoots-for-2024/"><u>Best Matches Top Ten Gimbals for Quality Shoots for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/decoding-windows-pe-file-system/"><u>Decoding Windows' PE File System</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-directors-cut-assessment-video-editor-review/"><u>In 2024, Director's Cut Assessment – Video Editor Review</u></a></li>
+<li><a href="https://article-posts.techidaily.com/mastering-the-art-of-stabilizing-handheld-gopro-videos-for-2024/"><u>Mastering the Art of Stabilizing Handheld GoPro Videos for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/wie-man-wma-dateien-mit-windows-and-macos-schnell-zu-mp3-konvertiert-funf-tipps-zum-effizienten-umwandeln/"><u>Wie Man WMA Dateien Mit Windows & macOS Schnell Zu MP3 Konvertiert – Fünf Tipps Zum Effizienten Umwandeln</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

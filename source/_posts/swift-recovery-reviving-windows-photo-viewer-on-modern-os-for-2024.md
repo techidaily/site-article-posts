@@ -1,7 +1,7 @@
 ---
 title: "\"Swift Recovery  Reviving Windows Photo Viewer on Modern OS for 2024\""
-date: 2024-09-17T18:28:59.783Z
-updated: 2024-09-20T18:01:46.293Z
+date: 2024-10-06T19:33:44.224Z
+updated: 2024-10-12T21:40:51.356Z
 tags: 
   - screen-recording
   - ai video
@@ -88,15 +88,29 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -105,14 +119,14 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -137,5 +151,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-breaking-down-lgs-360-camera-updates-and-features/"><u>[New] 2024 Approved Breaking Down LG's 360 Camera Updates & Features</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-cropping-photos-why-does-imovie-adjust-video-sizes/"><u>[New] 2024 Approved Cropping Photos Why Does iMovie Adjust Video Sizes?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-top-5-audio-experiences-on-iphones/"><u>[New] 2024 Approved Top 5 Audio Experiences on iPhones</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-transforming-everyday-moments-with-ioss-complete-life-story/"><u>[New] 2024 Approved Transforming Everyday Moments with iOS's Complete Life Story</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-essential-guide-to-action-screening-saving-for-2024/"><u>[New] Essential Guide to Action Screening Saving for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-picking-your-perfect-pair-dji-drones-face-off-with-gopro-and-insta360-cameras/"><u>[New] Picking Your Perfect Pair DJi Drones Face-Off With GoPro and Insta360 Cameras</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-sound-in-sight-mixing-music-into-microsofts-presentation-tool/"><u>[Updated] 2024 Approved Sound in Sight Mixing Music Into Microsoft's Presentation Tool</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-6-most-used-4k-youtube-converters-to-compare/"><u>[Updated] 6 Most-Used 4K YouTube Converters to Compare</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-applying-luts-for-cinematic-color-grades/"><u>[Updated] Applying Luts for Cinematic Color Grades</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unleash-your-channels-first-ever-gear-guide/"><u>[Updated] Unleash Your Channels First-Ever Gear Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-recognized-as-process-mining-pioneer-in-latest-isg-provider-lens-analysis/"><u>ABBYY Recognized as Process Mining Pioneer in Latest ISG Provider Lens™ Analysis</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-nokia-c12-plus-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Nokia C12 Plus PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-launching-your-first-product-critique-network-a-step-by-step-guide/"><u>In 2024, Launching Your First Product Critique Network A Step-by-Step Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-measuring-video-storage-space-64128gb-hard-drive-analysis/"><u>In 2024, Measuring Video Storage Space - 64/128GB Hard Drive Analysis</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-depth-look-ultraedit-pro-for-video-cutting-2023/"><u>In-Depth Look UltraEdit Pro for Video Cutting 2023</u></a></li>
+<li><a href="https://os-tips.techidaily.com/limited-time-offer-claim-your-chance-to-win-a-free-apple-iphone-se/"><u>Limited Time Offer! Claim Your Chance to Win a Free Apple iPhone SE!</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/top-10-digital-audio-workstation-tools-free-vs-paid-options-for-2024/"><u>Top 10 Digital Audio Workstation Tools Free vs Paid Options for 2024</u></a></li>
+</ul></div>
 

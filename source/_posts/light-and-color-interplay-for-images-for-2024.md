@@ -1,7 +1,7 @@
 ---
 title: "Light & Color Interplay for Images for 2024"
-date: 2024-10-01T17:38:06.929Z
-updated: 2024-10-06T16:43:13.171Z
+date: 2024-10-08T20:31:24.359Z
+updated: 2024-10-12T19:50:31.516Z
 tags: 
   - screen-recording
   - ai video
@@ -80,10 +80,10 @@ Color Panel Window - to perform color correction in Wondershare Filmora, switch 
 ![edit color grading video fx](https://images.wondershare.com/filmora/article-images/2022/08/edit-color-grading-video-fx.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Contrast**: is the variance in luminance or color that makes an object identifiable. By modifying this setting, control the dissimilarity in color and brightness in contrary parts of the video image.
@@ -104,13 +104,6 @@ Here, there are two options to select: The Color correction. It offers different
 
 ![open color correction filmora](https://images.wondershare.com/filmora/article-images/2022/08/open-color-correction-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step2Select the specific video portion
 
 #####
@@ -119,20 +112,27 @@ First, you need to select the specific video portion you want to change the colo
 
 ![split video into clips fx](https://images.wondershare.com/filmora/article-images/2022/08/split-video-into-clips-fx.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * And I selected the end portion of the video. After that, choose the part of the video.
 
 ![selected end portion video filmora](https://images.wondershare.com/filmora/article-images/2022/08/selected-end-portion-video-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step3Apply the color correction preset that you want then click ok
 
 ![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You will notice that the color changes depending on your selected preset.
 
@@ -143,6 +143,13 @@ In the Presets tab, there are different templates, including Common, 3D LUT, Vig
 Once you've finished correcting the video color, press Play and go over the whole video through the previewing window. If satisfied with the result, click the "Export" button to transport your video. Click the Settings button to modify settings if needed. You can save the new videos in different formats under the Format tab. If you want to play the edit file on devices like Tablet, iPad, Kindle Fire, PSP, Xbox, etc., go to the "Devices" tab and select the configured preset for the specific model. You can also upload the video output on Youtube for better preservation.
 
 ![preview and save video filmora](https://images.wondershare.com/filmora/article-images/2022/08/preview-and-save-video-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Using the Color Panel Window**
 
@@ -157,13 +164,6 @@ You can modify the temperature, tint, white balance, contrast, saturation, and b
 Click the button Advanced at the lower corner, then the color grading window will pop up, and you can explore your settings and options.
 
 ![color grading with filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-with-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Color Histogram**
 
@@ -231,22 +231,19 @@ Overall, Color grading is the process of video editing to have an excellent look
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-ploughing-through-the-past-top-farming-games-follow/"><u>[New] 2024 Approved Ploughing Through the Past Top Farming Games Follow</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-capturing-the-world-from-above-in-stunning-hd-mi-drone-deep-dive/"><u>[New] In 2024, Capturing the World From Above in Stunning HD - Mi Drone Deep Dive</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-conquer-the-elements-ranking-7-waterproof-cams/"><u>[Updated] In 2024, Conquer the Elements Ranking #7 Waterproof Cams</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-huawei-p10-review-unpacking-its-impressive-specs-and-features/"><u>[Updated] In 2024, Huawei P10 Review Unpacking Its Impressive Specs and Features</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-unveiling-youtubes-finest-story-sages-and-weavers-in-23/"><u>[Updated] In 2024, Unveiling YouTube's Finest Story Sages and Weavers in '23</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-windows-11-guide-titling-video-files-in-photos-app/"><u>[Updated] In 2024, Windows 11 Guide Titling Video Files in Photos App</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-review-the-goofy-movie-vhs/"><u>[Updated] Review The Goofy Movie VHS</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-seeking-freedom-with-videos-which-plays-better-vlc-or-mpc/"><u>[Updated] Seeking Freedom with Videos Which Plays Better, VLC or MPC?</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-innovative-no-cost-solutions-for-modern-photography-enhancements/"><u>2024 Approved Innovative No-Cost Solutions for Modern Photography Enhancements</u></a></li>
-<li><a href="https://article-tips.techidaily.com/discover-the-power-of-panasonics-hx-a1-actioncam-for-2024/"><u>Discover the Power of Panasonic's HX-A1 ActionCam for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/from-source-to-system-your-auto-gpt-walkthrough/"><u>From Source to System: Your Auto-GPT Walkthrough</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/interpreting-user-inactivity-could-it-be-a-blocked-status-for-2024/"><u>Interpreting User Inactivity Could It Be a Blocked Status for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/quick-steps-to-recoup-digital-gaming-expenses/"><u>Quick Steps to Recoup Digital Gaming Expenses</u></a></li>
-<li><a href="https://article-posts.techidaily.com/supreme-4k-display-selection-the-best-of-ten-for-2024/"><u>Supreme 4K Display Selection The Best of Ten for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/ultimate-guide-resolving-iphone-app-malfunctions-and-crashes-top-10-tips/"><u>Ultimate Guide: Resolving iPhone App Malfunctions and Crashes (Top 10 Tips)</u></a></li>
-<li><a href="https://article-posts.techidaily.com/unveiling-t5s-ability-to-capture-excitement-and-adventure/"><u>Unveiling T5's Ability to Capture Excitement and Adventure</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/why-are-my-instagram-photos-flipped-seeking-answers/"><u>Why Are My Instagram Photos Flipped? Seeking Answers</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-direct-slideshow-content-into-video-realm/"><u>[New] Direct Slideshow Content Into Video Realm</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-building-your-brand-as-a-reviewer-of-cars-and-automotive-gear/"><u>[New] In 2024, Building Your Brand as a Reviewer of Cars and Automotive Gear</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-organizing-overflow-of-tiktok-saves-for-effective-edits/"><u>[New] Organizing Overflow of TikTok Saves for Effective Edits</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-a-practical-guide-to-using-vsco-for-professionals-for-2024/"><u>[Updated] A Practical Guide to Using VSCO for Professionals for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-learn-iphones-burst-shot-magic/"><u>[Updated] In 2024, Learn iPhone's Burst Shot Magic</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-aspire-to-the-best-4k-monitors-ranking-top-ten/"><u>2024 Approved Aspire to the Best 4K Monitors Ranking Top-Ten</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-pinnacle-phones-the-supreme-choices-in-mobile-video-recording/"><u>2024 Approved Pinnacle Phones The Supreme Choices in Mobile Video Recording</u></a></li>
+<li><a href="https://win11.techidaily.com/cut-to-perfection-top-video-editors-for-your-win11-pc/"><u>Cut-to-Perfection: Top Video Editors For Your Win11 PC</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-use-special-features-virtual-location-on-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Vivo Y100i Power 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-realme-11-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Realme 11 5G Devices</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-revolutionize-post-production-the-best-11-tutorials-on-color-workflow/"><u>In 2024, Revolutionize Post-Production The Best 11 Tutorials on Color Workflow</u></a></li>
+<li><a href="https://article-posts.techidaily.com/master-kinemasters-features-with-ease-ranked-by-best-opponent-games-for-2024/"><u>Master KineMaster's Features with Ease, Ranked by Best Opponent Games for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/tomtech-universe-navigating-the-world-of-computer-components/"><u>TomTech Universe: Navigating the World of Computer Components</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unlock-creative-freedom-automate-your-written-work-using-hix-ai-powered-by-gpt-nv/"><u>Unlock Creative Freedom: Automate Your Written Work Using HIX AI, Powered by GPT-Nv!</u></a></li>
 </ul></div>
 

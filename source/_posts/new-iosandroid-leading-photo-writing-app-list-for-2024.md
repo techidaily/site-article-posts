@@ -1,7 +1,7 @@
 ---
 title: "\"[New] IOS/Android  Leading Photo-Writing App List for 2024\""
-date: 2024-09-29T22:38:46.890Z
-updated: 2024-10-07T10:09:17.770Z
+date: 2024-10-11T18:49:44.104Z
+updated: 2024-10-12T19:46:22.237Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,19 @@ To add text to a photo using iPhone (Version: iOS 11 and later), you can follow 
 
 ![tap the edit button](https://images.wondershare.com/filmora/article-images/2022/07/write-on-photos-for-ios-and-android-1.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Just click on the plus button (+)at the bottom.
 2. Now choose the Text option. It's all done. However, if you want to resize or rotate the text, it can be done quickly through dragging.
 3. You can also change the font by clicking the font button, which appears small, and the capital A rounded by a circle(aA).
@@ -73,21 +86,7 @@ Aren't you an iPhone user? No worries! Here is how to write over photoson mobile
 
 ![tap the done button](https://images.wondershare.com/filmora/article-images/2022/07/write-on-photos-for-ios-and-android-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Best 10 Apps for writing on photos
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Phonto - Text on photos
 
@@ -104,13 +103,6 @@ So guys, if you are looking for an app that is easy to use and offers various fe
 **Download: Phonto - Text on photos for**
 
 [Android](https://play.google.com/store/apps/details?id=com.youthhr.phonto&hl=en) (Contain ads, In-App purchases) | [iOS](https://apps.apple.com/us/app/phonto-text-on-photos/id438429273) (Free, Offers In-App purchases)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. PicLab - Photo Editor
 
@@ -147,6 +139,13 @@ This app is also an excellent tool. Word Swag is one of those apps mainly design
 **Download: Word Swag - Add Text on Photos for**
 
 [Android](https://play.google.com/store/apps/details?id=wordswag.stylishfree.gwyn) (Contain ads, In-App purchases) | [iOS](https://apps.apple.com/app/apple-store/id645746786) (Free, Offers In-App purchases)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Font Candy Photo & Text Editor
 
@@ -200,18 +199,18 @@ Typorama is another excellent option for iOS users to write over photos. As indi
 
 [Android](https://play.google.com/store/apps/details?id=com.typorama.artandpostermaker&hl=en&gl=US) (Contain ads) | [iOS](https://apps.apple.com/app/typorama-text-on-photo-editor/id978659937) (Free, Offers In-App purchases)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. Caption It: Add Text To Photos
 
 Caption is a simple app for writing over photos. You only need to choose an image and add your caption over it. It is also a freemium app with providing purchases in app. However, if you love ads free experience with premium features, you can make In-App Purchases.
 
 ![caption it](https://images.wondershare.com/filmora/article-images/2022/07/write-on-photos-for-ios-and-android-12.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Key features:**
 
@@ -222,13 +221,6 @@ Caption is a simple app for writing over photos. You only need to choose an imag
 **Download:** **Caption It: Add Text To Photos for**
 
 [Android](https://play.google.com/store/apps/details?id=com.codemybrainsout.captionitpro&hl=en) (Contain ads, In-App purchases)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8\. Watermark - Watermark Photo & Watermark Video
 
@@ -263,6 +255,13 @@ This app is especially for those friends who want to add Arabic text to photos. 
 
 [Android](https://play.google.com/store/apps/details?id=com.rashadandhamid.designs1&hl=en) (Contain ads, In-App purchases)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 10\. Text Over Photo
 
 Text Over photo is another great app with several tools. Using it, you can write on your photos or the app's backgrounds, emoji, etc., provided. It offers collages and grids options too. It's also freemium with paid features in-app.
@@ -289,13 +288,6 @@ It's now a difficult task if you want to add text to your photos. Instead, it's 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
 Add text using the phone gallery
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **iPhone:**
 
@@ -332,13 +324,6 @@ Aren't you an iPhone user? No worries! Here is how to write over photoson mobile
 
 ![tap the done button](https://images.wondershare.com/filmora/article-images/2022/07/write-on-photos-for-ios-and-android-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Best 10 Apps for writing on photos
 
 ### 1\. Phonto - Text on photos
@@ -375,11 +360,25 @@ PicLab - Photo Editor will be the right fit for you if you are someone who wants
 
 [Android](https://play.google.com/store/apps/details?id=com.apperto.piclabapp&hl=en) (Contain ads, In-App purchases) | [iOS](https://apps.apple.com/us/app/photo-editor/id597851882) (Free, Offers In-App purchases)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Word Swag - Add Text on Photos
 
 This app is also an excellent tool. Word Swag is one of those apps mainly designed and developed for writing over images. However, this one takes explicitly this to an advanced level. You can quickly get it for free of cost (contain ads). Removing the ads and unlocking some premium features is a nominal fee. Most of the custom editing options, however, come at a cost.
 
 ![word swag](https://images.wondershare.com/filmora/article-images/2022/07/write-on-photos-for-ios-and-android-8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Key features:**
 
@@ -398,6 +397,13 @@ This app is also an excellent tool. Word Swag is one of those apps mainly design
 Font Candy Photo & Text Editor offers a great user experience with its great tools. You can easily add text to an image and customize it with various options. It is free to use, but you can make some In-App purchases to unleash its premium features.
 
 ![font candy photo](https://images.wondershare.com/filmora/article-images/2022/07/write-on-photos-for-ios-and-android-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Key features:**
 
@@ -445,6 +451,19 @@ Typorama is another excellent option for iOS users to write over photos. As indi
 
 [Android](https://play.google.com/store/apps/details?id=com.typorama.artandpostermaker&hl=en&gl=US) (Contain ads) | [iOS](https://apps.apple.com/app/typorama-text-on-photo-editor/id978659937) (Free, Offers In-App purchases)
 
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. Caption It: Add Text To Photos
 
 Caption is a simple app for writing over photos. You only need to choose an image and add your caption over it. It is also a freemium app with providing purchases in app. However, if you love ads free experience with premium features, you can make In-App Purchases.
@@ -476,13 +495,6 @@ This app works for both photos and videos. You can add text to them. This is als
 **Download:** **Watermark - Watermark Photo & Watermark Video for**
 
 [Android](https://play.google.com/store/apps/details?id=com.origa.salt&hl=en) (Contain ads, In-App purchases)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9\. New Designs: Photo Editor Backgrounds, Fonts, Fun
 
@@ -550,24 +562,19 @@ It's now a difficult task if you want to add text to your photos. Instead, it's 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-craft-viral-instagram-moments-by-incorporating-tiktok-wisdom/"><u>[New] 2024 Approved Craft Viral Instagram Moments by Incorporating TikTok Wisdom</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-go-live-on-youtube-from-a-phone-no-need-for-huge-fans-yet/"><u>[New] Go Live on YouTube From a Phone, No Need for Huge Fans Yet</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-immersive-escapes-androidioss-favorite-ar-games/"><u>[New] Immersive Escapes Android/iOS's Favorite AR Games</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-expert-picks-the-best-steadicams-for-top-notch-dslr-filming/"><u>[New] In 2024, Expert Picks The Best Steadicams for Top-Notch DSLR Filming</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-premier-experts-innovative-instragram-hlv-designs/"><u>[New] In 2024, Premier Experts Innovative Instragram HLV Designs</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-stealthy-styles-easy-color-corrections-techniques/"><u>[New] In 2024, Stealthy Styles Easy Color Corrections Techniques</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-iphone-2024-voice-memo-capturer/"><u>[New] IPhone 2024 Voice Memo Capturer</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-prime-choices-cheap-pc-capture-software-listed/"><u>[New] Prime Choices Cheap PC Capture Software Listed</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-discovering-the-tech-marvel-in-apples-m1-max-clip/"><u>[Updated] Discovering the Tech Marvel in Apple's M1 Max Clip</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-navigating-through-the-world-of-directed-interaction/"><u>[Updated] In 2024, Navigating Through the World of Directed Interaction</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-gopro-hero-series-comparison/"><u>[Updated] In 2024, The GoPro Hero Series Comparison</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-ultra-30-garmin-camera-a-comprehensive-evaluation/"><u>[Updated] In 2024, Ultra 30 Garmin Camera - A Comprehensive Evaluation</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-vegas-pro-2021-reviewed-a-sports-betting-journey/"><u>2024 Approved Vegas Pro 2021 Reviewed – A Sports Betting Journey</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/in-2024-feast-of-fame-the-hottest-eats-sharing-the-screen/"><u>In 2024, Feast of Fame The Hottest Eats Sharing the Screen</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-maximizing-your-potential-is-a-joined-force-right-for-you/"><u>In 2024, Maximizing Your Potential Is a Joined Force Right for You?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/navigating-asmrs-influence-on-your-life/"><u>Navigating ASMR’s Influence on Your Life</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/secrets-to-keeping-online-interactions-safe/"><u>Secrets to Keeping Online Interactions Safe</u></a></li>
-<li><a href="https://article-posts.techidaily.com/the-metaverse-and-multiplemetaverse-explained-key-contrasts-highlighted-for-2024/"><u>The Metaverse & MultipleMetaverse Explained Key Contrasts Highlighted for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/unlocking-microsoft-services-by-linking-windows-product-key/"><u>Unlocking Microsoft Services by Linking Windows Product Key</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-2023s-undisclosed-video-download-tools-1-8-rankings/"><u>[New] 2024 Approved 2023'S Undisclosed Video Download Tools #1-8 Rankings</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-collageknights-syncing-videos-across-devices/"><u>[New] CollageKnights Syncing Videos Across Devices</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-how-much-do-you-really-make-as-a-podcaster/"><u>[New] How Much Do You Really Make as a Podcaster?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unlock-6-free-youtube-endings-for-pros/"><u>[New] Unlock 6 Free YouTube Endings for Pros</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-illustration-giggles-memecrafterz-for-2024/"><u>[Updated] Illustration Giggles MemeCrafterz for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-elevate-your-message-with-these-30-video-suggestions/"><u>2024 Approved Elevate Your Message with These 30 Video Suggestions</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-elevating-your-drone-racing-game-and-discovering-elite-fpv-uavs/"><u>2024 Approved Elevating Your Drone Racing Game & Discovering Elite FPV UAVs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-essential-5-accessories-for-beneath-waves-shooting/"><u>2024 Approved Essential 5 Accessories for Beneath Waves Shooting</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-sci-fis-new-dimensions-top-10-films-taking-viewers-beyond-our-reality/"><u>2024 Approved Sci-Fi's New Dimensions Top 10 Films Taking Viewers Beyond Our Reality</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-the-ultimate-dji-phantom-4-extension-pack/"><u>2024 Approved The Ultimate DJI Phantom 4 Extension Pack</u></a></li>
+<li><a href="https://win-blog.techidaily.com/entendiendo-el-fenomeno-del-tiempo-lapsado-y-sus-diferentes-metodos-para-crearlo/"><u>Entendiendo El Fenómeno Del Tiempo Lapsado Y Sus Diferentes Métodos Para Crearlo</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/from-fibonacci-to-finance-bots-converse/"><u>From Fibonacci to Finance, Bots Converse</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Realme GT 5? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Equipment Guide for Dynamic Documentary Making\""
-date: 2024-10-06T06:14:48.539Z
-updated: 2024-10-06T17:58:06.324Z
+date: 2024-10-07T16:55:45.198Z
+updated: 2024-10-12T17:34:32.179Z
 tags: 
   - screen-recording
   - ai video
@@ -39,22 +39,36 @@ First off, I've got a mobile phone, mirrorless camera, action camera, gimbal, tr
 
 The next gadget that I want to get my hands on, A DRONE. I'm still saving, and surely, I will get that soon. First, let me explain why I got those types of equipment…
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Vlogging Camera (Mirrorless Camera)
 
 Sony a6400 is an APS-C mid-range compact camera that I use for vlogging and cinematic shots. It is specially made for beginners; it has a lot of cool features and at a reasonable price. What I love about this is the flip screen, and I found it very exceptional for vlogging. You can also use 4k resolution with this camera. For me, the only issue with this camera is the image stabilization but it's not that significant, because of the **[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)**. This app offers the stabilization option that provides a smoothness level and it will be better than the raw or original clip footage of your video. Lastly, it is compact, handy and I highly recommend this.
 
 ![travel vlog camera](https://images.wondershare.com/filmora/article-images/2022/07/travel-vlog-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Lenses
 
 Lenses are the most vital part of your camera; it brings light to a fixed object. Will it make a huge impact on your cinematic shot? For your montage? For your b-roll? Yes, yes, and also yes. The use of lenses has a greater and different impact because it has a contrasting effect, especially for sharpness, depth of field, details, and background blur. It is the most important parameter depending on the situation that you might have for traveling. For example, I used Sigma 16mm, a wide lens, which is good for landscape photography or montage. Another one is Sigma 30mm, this lens is good for mid-range shot portraits and it creates a dramatic effect while capturing a person or an object.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Gimbal
 
@@ -63,17 +77,10 @@ Nowadays, many filmmakers and famous vloggers are using gimbals. We often use th
 ![vlog gimbal](https://images.wondershare.com/filmora/article-images/2022/07/vlog-gimbal.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Action Camera
@@ -82,20 +89,6 @@ This is one of my favorite pieces of equipment and frequently used camera, the G
 
 ![action camera](https://images.wondershare.com/filmora/article-images/2022/07/action-camera.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Batteries, External SSD, and Memory card
 
 In any case, we needed a few accessories to support our equipment better. Simple things like an extra pair of batteries for your camera and action came. External SSD is a big help especially when you're running out of memory on your computer. Memory card with a lot of storage space, I consider this an important part of my accessory kit. Make those two, and always have a spare card with you because anything can happen. So be prepared.
@@ -103,10 +96,10 @@ In any case, we needed a few accessories to support our equipment better. Simple
 ![battery ssd card](https://images.wondershare.com/filmora/article-images/2022/07/battery-ssd-card.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Laptop, desktop, or phone for editing
@@ -114,13 +107,6 @@ In any case, we needed a few accessories to support our equipment better. Simple
 In my own experience, every time I go out and visit different places, I always have my laptop with me, so that I can easily transfer my files and start the editing process. Constantly, when I have spare time or I'm not doing anything while resting during the trip, I start editing to make progress gradually. This can save my time. I'm going to show you how I transfer my files and edit my video by **STABILIZING** your video that makes it better in **Wondershare Filmora.**
 
 ![laptop devices](https://images.wondershare.com/filmora/article-images/2022/07/laptop-devices.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
 
@@ -139,6 +125,19 @@ click on new project
 from there you can choose and select which video you would like to import
 
 ![import files](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
+
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step3DRAG AND DROP
 
@@ -166,6 +165,13 @@ So, all in all, those are the equipment and gears that I use for any travel vlog
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Stabilize the Video in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ##### Step1NEW PROJECT
@@ -173,6 +179,13 @@ So, all in all, those are the equipment and gears that I use for any travel vlog
 click on new project
 
 ![new project](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step2IMPORT FILES
 
@@ -193,19 +206,6 @@ choose the TOOLS
 select video and you can choose Stabilization
 
 ![stabulizing the video](https://images.wondershare.com/filmora/guide/stabilization-02.png)
-
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step5ANALYZES THE SELECTED VIDEO TO STABILIZE
 
@@ -241,24 +241,21 @@ So, all in all, those are the equipment and gears that I use for any travel vlog
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-which-apple-m1-machine-suits-your-lifestyle-more/"><u>[New] 2024 Approved Which Apple M1 Machine Suits Your Lifestyle More?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-drone-selections-on-a-budget-affordable-options-above/"><u>[New] In 2024, Drone Selections on a Budget Affordable Options Above</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-short-sketch-storyline-setup-for-2024/"><u>[New] Short Sketch Storyline Setup for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-stepwise-training-for-effective-transcription-with-gdoc/"><u>[New] Stepwise Training for Effective Transcription with GDoc</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-the-finest-9-digital-places-for-harvesting-futuristic-3d-typefaces/"><u>[New] The Finest 9 Digital Places for Harvesting Futuristic 3D Typefaces</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-eye-opening-experience-selecting-best-for-vr-gaming/"><u>[Updated] 2024 Approved Eye-Opening Experience Selecting Best for VR Gaming</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-avoid-blurry-scenes-zooming-in-on-google-meet/"><u>[Updated] Avoid Blurry Scenes Zooming In on Google Meet</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-comprehensive-logitech-4k-cam-review-for-ultimate-video-quality-for-2024/"><u>[Updated] Comprehensive Logitech 4K Cam Review for Ultimate Video Quality for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-engineering-video-excerpts-for-online-platforms/"><u>[Updated] In 2024, Engineering Video Excerpts for Online Platforms</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-stepping-into-a-new-digital-era-mastering-your-tiktok-handle-change-process/"><u>[Updated] In 2024, Stepping Into a New Digital Era Mastering Your TikTok Handle Change Process</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-new-era-of-framing-life-with-nikon-d500/"><u>[Updated] In 2024, The New Era of Framing Life with Nikon D500</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-learn-to-activate-picture-in-picture-viewing-on-iphones-youtube-app/"><u>[Updated] Learn to Activate Picture-in-Picture Viewing on iPhone's Youtube App</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-streamlined-method-windows-clown-fish-audio-tweaker/"><u>2024 Approved Streamlined Method Windows Clown Fish Audio Tweaker</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/ace-your-internet-connection-with-the-best-cable-modems-of-202/"><u>Ace Your Internet Connection with the Best Cable Modems of 202</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/crafting-professional-images-using-photoshops-powerful-luts/"><u>Crafting Professional Images Using Photoshop's Powerful LUTs</u></a></li>
-<li><a href="https://techidaily.com/hard-reset-motorola-moto-g-5g-2023-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Motorola Moto G 5G (2023) in 3 Efficient Ways | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor 100 Pro | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-tecno-camon-20-premier-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Tecno Camon 20 Premier 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/selecting-the-perfect-mobile-phone-cover-a-comprehensive-guide/"><u>Selecting the Perfect Mobile Phone Cover: A Comprehensive Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-duality-of-light-mastering-the-art-of-hdr-in-adobe/"><u>[New] 2024 Approved Duality of Light Mastering the Art of HDR in Adobe</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-navigating-through-the-codec-complexity-av1-vs-vp9/"><u>[New] 2024 Approved Navigating Through the Codec Complexity AV1 Vs. VP9</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-become-a-zen-master-learn-to-quiet-down-distractions-in-gmeet/"><u>[New] In 2024, Become a Zen Master Learn to Quiet Down Distractions in GMeet</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-economical-choice-for-superior-asmr-sound-experiencing/"><u>[New] In 2024, Economical Choice for Superior ASMR Sound Experiencing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-lg-27uhd68-screen-revolution-understanding-4k-sync-technology/"><u>[New] LG 27UHD68 Screen Revolution Understanding 4K Sync Technology</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-superior-script-architect-space/"><u>[Updated] 2024 Approved Superior Script Architect Space</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-ranked-5-excellent-webcams-with-professional-microphones/"><u>[Updated] Ranked 5 Excellent Webcams With Professional Microphones</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-art-of-going-unseen-during-instagram-live-events-for-2024/"><u>[Updated] The Art of Going Unseen During Instagram Live Events for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-underwater-cinematography-made-simple-top-7-tips/"><u>[Updated] Underwater Cinematography Made Simple Top 7 Tips</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-itel-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Itel</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/discover-the-most-popular-screen-recorders-free-version-for-2024/"><u>Discover the Most Popular Screen Recorders - Free Version for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-msmpengexe-high-cpu-usage-on-your-windows-10-pc-solution-guide/"><u>How to Fix MsMpEng.exe High CPU Usage on Your Windows 10 PC – Solution Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-accelerate-document-creation-learning-ms-words-speech-feature/"><u>In 2024, Accelerate Document Creation Learning MS Word's Speech Feature</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-navigating-the-maze-of-music-rights-on-instagram/"><u>In 2024, Navigating the Maze of Music Rights on Instagram</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-fixing-issues-with-non-functional-creative-pebble-speakers/"><u>Troubleshooting Guide: Fixing Issues with Non-Functional Creative Pebble Speakers</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-perfecting-audio-levels-in-film-and-streaming-content/"><u>Updated Perfecting Audio Levels in Film and Streaming Content</u></a></li>
 </ul></div>
 

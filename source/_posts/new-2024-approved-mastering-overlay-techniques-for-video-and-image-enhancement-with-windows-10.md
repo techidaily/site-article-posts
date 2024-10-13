@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mastering Overlay Techniques for Video and Image Enhancement with Windows 10\""
-date: 2024-10-06T08:59:27.048Z
-updated: 2024-10-06T19:53:50.024Z
+date: 2024-10-12T00:07:03.187Z
+updated: 2024-10-13T03:00:24.041Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,13 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -68,10 +75,10 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
@@ -81,22 +88,15 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
@@ -107,16 +107,10 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -144,19 +138,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-leading-drones-for-superior-gopro-camera-integration/"><u>[New] 2024 Approved Leading Drones for Superior GoPro Camera Integration</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-an-ultimate-overview-of-polarr-photo-editor-for-2024/"><u>[New] An Ultimate Overview of Polarr Photo Editor for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-perfect-stitching-of-gopro-videos-into-complete-360-imagery/"><u>[New] Perfect Stitching of GoPro Videos Into Complete 360 Imagery</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-crafting-captivating-igtv-cover-photos-thumbnails/"><u>[Updated] Crafting Captivating IGTV Cover Photos (Thumbnails)</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-explore-ingenious-ways-to-modify-voices-for-free/"><u>[Updated] Explore Ingenious Ways to Modify Voices for FREE</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-prime-sites-where-your-presents-stand-out-in-a-sea-of-boxes-for-2024/"><u>[Updated] Prime Sites Where Your Presents Stand Out in a Sea of Boxes for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/1724312865856-ai-ocrabbyy/"><u>AI OCRによるAbbyy税務処理自社内での高度な効率化とコスト削減</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-inside-the-drone-an-in-depth-review-of-dji-phantom-3-pro/"><u>In 2024, Inside the Drone An In-Depth Review of DJI Phantom 3 Pro</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/introducing-abbyy-one-the-cutting-edge-tool-revolutionizing-smart-business-process-automation/"><u>Introducing ABBYY One: The Cutting-Edge Tool Revolutionizing Smart Business Process Automation</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/kodi-media-center-multimedia-alternative-for-pcs-for-2024/"><u>Kodi Media Center Multimedia Alternative for PCs for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overcoming-missing-file-error-on-windows-11/"><u>Overcoming Missing File Error on Windows 11</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/ps5xbox-series-x-gaming-sets-the-top-5-list/"><u>PS5/Xbox Series X Gaming Sets The Top 5 List</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/remove-the-lock-screen-fingerprint-of-your-oppo-a1x-5g-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Oppo A1x 5G</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-the-ultimate-list-of-free-bgm-music-streaming-sites-updated-for-2024/"><u>Updated The Ultimate List of Free BGM Music Streaming Sites, Updated for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-discover-comedy-tear-fusion-in-these-highest-rated-memetic-accounts-for-2024/"><u>[New] Discover Comedy-Tear Fusion in These Highest Rated Memetic Accounts for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-pixelated-personae-effective-face-covering-tactics/"><u>[New] Pixelated Personae Effective Face Covering Tactics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-quintessential-guide-to-secret-story-viewing/"><u>[New] The Quintessential Guide to Secret Story Viewing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-capture-words-from-your-speech-in-microsoft-word-easily/"><u>2024 Approved Capture Words From Your Speech in Microsoft Word Easily</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-from-monochrome-to-vibrancy-top-11-video-coloring-strategies/"><u>2024 Approved From Monochrome to Vibrancy Top 11 Video Coloring Strategies</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-master-multitask-media-consumption-employing-picture-in-picture-functionality/"><u>2024 Approved Master Multitask Media Consumption Employing Picture-in-Picture Functionality</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-peculiar-picasso-creating-quirky-quick-memes/"><u>2024 Approved Peculiar Picasso Creating Quirky, Quick Memes</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-swift-guide-eliminating-images-backdrops-with-affinity-photo/"><u>2024 Approved Swift Guide Eliminating Images' Backdrops with Affinity Photo</u></a></li>
+<li><a href="https://win-bits.techidaily.com/1728505553325-windows-1011ssd/"><u>如何在Windows 10/11上使用SSD时不需要重装操作：完全指南</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-access-to-csr-bluetooth-device-driver-software-download-now/"><u>Easy Access to CSR Bluetooth Device Driver Software - Download Now</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-samsung-galaxy-f14-5g-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Samsung Galaxy F14 5G?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-nokia-105-classic-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Nokia 105 Classic to Outlook | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-data-from-samsung-galaxy-m34-5g-by-fonelab-android-recover-data/"><u>Undelete lost data from Samsung Galaxy M34 5G</u></a></li>
 </ul></div>
 
