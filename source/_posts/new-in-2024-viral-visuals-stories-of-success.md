@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Viral Visuals  Stories of Success\""
-date: 2024-10-11T21:45:52.726Z
-updated: 2024-10-12T22:21:13.713Z
+date: 2024-10-16T23:39:54.782Z
+updated: 2024-10-19T01:26:10.928Z
 tags: 
   - screen-recording
   - ai video
@@ -55,10 +55,10 @@ Another popular stock image meme is Distracted Boyfriend. It features the stock 
 ![distracted boyfriend](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The original photo is the work of Antonio Guillem, who uploaded it on iStock in November 2015\. Initially, the photo was labeled as a lisloyal man with his girlfriend looking at another girl and required purchasing the proper license to use it.
@@ -79,10 +79,10 @@ The latest version of Distracted boyfriend is a compilation of photos featuring 
 ![latest version](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
@@ -103,6 +103,13 @@ A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In
 
 ![points and comments](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The post references the Toy Story character Buzz Lightyear, with the man contemplating why Buzz is in denial of being a toy.
 
 * The meme also appears in a 2017 tweet by @NFLRT, an NFL fan account, where the man questions when Colin Kaepernick will be signed.
@@ -111,26 +118,13 @@ According to sources, the stock photo meme was first featured on Twitter in Dece
 
 ![stock photo meme](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-10.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part4: Bonjour Bear
@@ -145,13 +139,6 @@ Since then, internet users have continued to use the Bonjour Bear meme to refere
 
 ![using hand sanitizer](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-12.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In addition, the post received over 91,700 points, with 95% of upvotes, within a day on Reddit.
 
 * Others use the meme as a reaction to when your relatives visit. The captions indicate your parent informing you that your uncle and aunt are visiting and they have brought presents.
@@ -161,22 +148,29 @@ The photo is available on most stock photo websites, such as Adobe and Tumblr. F
 
 ## Part5: FAQs
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Can you use stock photos for memes?
 
 Yes, you can use stock photos for memes. However, you need to obtain them from royalty-free stock photo providers such as Shutterstock and Pexels. In addition, ensure you understand the license requirements before using the photo.
 
 This is because not all stock photo providers offer their images with a creative commons license. For example, the Unsplash license allows you to use their stock images for personal or commercial use after making adjustments to the original.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Does copyright law protect memes?
 
 Yes, all memes are under copyright law, which means you have the authority to govern their use. Although identifying the meme owner can be challenging, posting or sharing a meme through your social media accounts without consent violates copyright law. Therefore, only use stock image memes from verified stock content providers like Shutterstock, where the license provisions are clear.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Can you use watermarked stock photos to create memes?
 
@@ -214,21 +208,24 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-become-a-pro-editor-in-seconds-canvas-essential-secrets-for-2024/"><u>[New] Become a Pro Editor in Seconds Canva's Essential Secrets for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-chucklecrafts-join-and-start-crafting-laughter-for-2024/"><u>[New] ChuckleCrafts Join and Start Crafting Laughter for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-crafting-a-chorus-of-images-and-sound-on-instagram/"><u>[New] Crafting a Chorus of Images & Sound on Instagram</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-from-standard-to-stylish-installation-of-personalized-ringtones-and-alerts-in-android/"><u>[New] In 2024, From Standard to Stylish Installation of Personalized Ringtones & Alerts in Android</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-the-future-of-storytelling-full-rotational-videography/"><u>[New] The Future of Storytelling Full Rotational Videography</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-2-ways-to-fade-audio-in-ableton/"><u>[Updated] 2 Ways to Fade Audio in Ableton</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-comprehensively-tackling-the-sony-fdr-x1000-action-gear/"><u>[Updated] 2024 Approved Comprehensively Tackling the Sony FDR-X1000 Action Gear</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-champion-of-cinematography-audio-visual-artistry/"><u>[Updated] Champion of Cinematography Audio-Visual Artistry</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-crystal-clear-captures-selecting-webcams-for-impeccable-podcasts/"><u>[Updated] Crystal Clear Captures Selecting Webcams for Impeccable Podcasts</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagram-guide-uploading-vimeo-videos/"><u>[Updated] In 2024, Instagram Guide Uploading Vimeo Videos</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-editors-approach-to-declining-audio-tracks-gradually/"><u>[Updated] In 2024, The Editor's Approach to Declining Audio Tracks Gradually</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-mastering-the-art-of-photo-retouching/"><u>2024 Approved Mastering the Art of Photo Retouching</u></a></li>
-<li><a href="https://article-posts.techidaily.com/essentials-for-launching-an-engaging-webcam-stream/"><u>Essentials for Launching an Engaging Webcam Stream</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/ideal-tasks-during-your-podcast-sessions/"><u>Ideal Tasks During Your Podcast Sessions</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/navigate-the-internet-with-advanced-ai-search-platforms-find-out-which-are-best/"><u>Navigate the Internet with Advanced AI Search Platforms - Find Out Which Are Best!</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-quiet-mode-how-to-restore-sound-to-your-iphone-calls/"><u>Troubleshooting Quiet Mode: How to Restore Sound to Your iPhone Calls</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-elite-15-high-definition-action-recorders/"><u>[New] 2024 Approved Elite 15 High-Definition Action Recorders</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-unlock-potential-with-best-sd-cards-for-gopro-hero-78/"><u>[New] 2024 Approved Unlock Potential with Best SD Cards for GoPro HERO 7/8</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-cutting-edge-tools-to-revamp-virtual-performer-voices-for-2024/"><u>[New] Cutting-Edge Tools to Revamp Virtual Performer Voices for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ottest-youtube-music-playback-responses-23/"><u>[New] Hottest YouTube Music Playback Responses '23</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-buyers-path-to-a-top-360-camera-purchase-guide/"><u>[New] In 2024, Buyer's Path to a Top 360 Camera Purchase Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-crafting-perfect-thumbnails-for-higher-clickthrough-rates/"><u>[New] In 2024, Crafting Perfect Thumbnails for Higher Clickthrough Rates</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-10-heartening-films-for-optimism-and-power-for-2024/"><u>[New] Top 10 Heartening Films for Optimism & Power for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-5-inspiring-book-trailers/"><u>[New] Top 5 Inspiring Book Trailers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-unseen-wealth-the-underground-auction-of-elusive-artifacts-2023-edition/"><u>[New] Unseen Wealth The Underground Auction of Elusive Artifacts, 2023 Edition</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-whats-the-difference-between-360-video-and-vr-video/"><u>[Updated] In 2024, What's the Difference Between 360° Video and VR Video?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-mastering-close-up-cinematography-through-zooming/"><u>[Updated] Mastering Close-Up Cinematography Through Zooming</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/1-do-you-really-necessitate-a-windows-os-identifying-when-to-skip-it/"><u>1. Do You Really Necessitate a Windows OS? Identifying When to Skip It!</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-iphones-panoramic-videos-explained-for-fb-sharing/"><u>2024 Approved IPhone's Panoramic Videos Explained for FB Sharing</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-download-of-the-zebra-gk420d-stepper-controller-quick-and-straightforward/"><u>Effortless Download of the Zebra GK420D Stepper Controller | Quick & Straightforward</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-oppo-a18-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Oppo A18 PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-tailoring-your-windows-photos-display-filters-and-audio-options/"><u>In 2024, Tailoring Your Windows Photos Display Filters & Audio Options</u></a></li>
+<li><a href="https://extra-information.techidaily.com/premium-6-services-for-live-video-localization/"><u>Premium 6 Services for Live Video Localization</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-language-skills-with-our-top-3-learning-platforms/"><u>Revolutionize Language Skills with Our Top 3 Learning Platforms</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-unbranded-and-unbeatable-the-best-free-online-video-editors/"><u>Updated In 2024, Unbranded and Unbeatable The Best Free Online Video Editors</u></a></li>
 </ul></div>
 

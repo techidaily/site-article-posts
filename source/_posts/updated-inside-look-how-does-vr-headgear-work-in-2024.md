@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Inside Look  How Does VR Headgear Work, In 2024\""
-date: 2024-10-09T04:08:20.056Z
-updated: 2024-10-12T19:13:38.198Z
+date: 2024-10-13T21:19:48.791Z
+updated: 2024-10-19T01:29:10.555Z
 tags: 
   - screen-recording
   - ai video
@@ -53,25 +53,25 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 
 ![ghtc-vive-vr](https://images.wondershare.com/filmora/article-images/htc-vive.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  HTC Vive VR headset is made in collaboration with Valve and it plugs directly into PCs and uses Valve’s humongous gaming ecosystem. The headset has over 70 sensors to allow for 360 degrees head tracking and it also boasts of a 90Hz refresh rate responsible for keeping down the latency, which in turn saves the users from suffering motions sickness. This headset is currently available for purchase from $799.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### [Samsung Gear VR](http://www.samsung.com/global/galaxy/gear-vr/  )
 
 ![gear-vr](https://images.wondershare.com/filmora/article-images/gear-vr.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The Samsung Gear VR is essentially Oculus Rift lite, owing to the fact that the two companies worked on the technology together. The Gear VR uses a Samsung Galaxy smartphone for the display and as the processor. The phone slots in front of the lenses and into a Micro USB slot, and uses the super AMOLED display as the screen. With the Gear, all you have to do is to slot in the phone, put on the headset and start enjoying the virtual reality experience.
 
@@ -85,30 +85,24 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 
 ![sony-playstation-vr](https://images.wondershare.com/filmora/article-images/sony-playstation-vr.jpg)
 
- Sony has finally announced the launch date for the PlayStation VR headset and this is expected to be 13th October 2016\. A new version though, was announced way back in 2015 and it featured a 5-inch LCD display of the original prototype. For the version to be released, it is expected to have a 5.7 inch OLED to allow for low persistence which will in turn translate to less motion blur. The refresh rate for Sony’s PlayStation VR has been ramped up to 120Hz, making it possible to have 120fps gaming.
-
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Sony has finally announced the launch date for the PlayStation VR headset and this is expected to be 13th October 2016\. A new version though, was announced way back in 2015 and it featured a 5-inch LCD display of the original prototype. For the version to be released, it is expected to have a 5.7 inch OLED to allow for low persistence which will in turn translate to less motion blur. The refresh rate for Sony’s PlayStation VR has been ramped up to 120Hz, making it possible to have 120fps gaming.
 
 ### [Google Cardboard](https://vr.google.com/cardboard/  )
 
 ![google-cardboard-vr](https://images.wondershare.com/filmora/article-images/google-cardboard-vr.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Not to be left behind, Google also has a cardboard virtual reality headset. With this headset, it sounds like popping your smartphone in a cardboard container and putting it over your head for a virtual reality experience. Sounds like a joke, but you will be pleasantly surprised to learn that it works like charm and it is also low cost. If anything, the smartphone you have already has all the gyroscopic sensors as well as the positioning devices needed to track your head movements.
@@ -142,24 +136,24 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-a-step-by-step-approach-to-zooming-success/"><u>[New] A Step-by-Step Approach to Zooming Success</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-enhancing-the-endurance-of-your-gopro-battery/"><u>[New] Enhancing the Endurance of Your GoPro Battery</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-crafting-character-adventures-windows-movie-maker-for-animators/"><u>[New] In 2024, Crafting Character Adventures Windows Movie Maker for Animators</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-decoding-the-principles-of-mixed-reality/"><u>[New] In 2024, Decoding the Principles of Mixed Reality</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-enhancing-snaps-incorporating-funny-lenses-on-snapchat/"><u>[New] In 2024, Enhancing Snaps Incorporating Funny Lenses on Snapchat</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nline-aggregators-for-securing-affiliates-on-googles-platform-for-2024/"><u>[New] Online Aggregators for Securing Affiliates on Google's Platform for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-unlocking-the-power-of-blur-in-virtual-meetings/"><u>[Updated] 2024 Approved Unlocking the Power of Blur in Virtual Meetings</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-perfect-playlist-placement-techniques-for-youtube/"><u>[Updated] Perfect Playlist Placement Techniques for YouTube</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-downloading-and-altering-whatsapp-ringtone-files/"><u>2024 Approved How-To Downloading and Altering WhatsApp Ringtone Files</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/execution-halt-no-coding-permitted/"><u>Execution Halt: No Coding Permitted</u></a></li>
-<li><a href="https://article-posts.techidaily.com/exploring-vr-landscapes-perks-pitfalls-and-pivots/"><u>Exploring VR Landscapes Perks, Pitfalls and Pivots</u></a></li>
-<li><a href="https://article-posts.techidaily.com/flawless-blend-incorporating-linktree-into-your-tiktok-about-section/"><u>Flawless Blend Incorporating Linktree Into Your TikTok About Section</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-forgotten-pin-of-your-tecno-camon-20-pro-5g-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Tecno Camon 20 Pro 5G</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Samsung Galaxy F15 5G? | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-mastering-soft-melodies-pcos-guide/"><u>In 2024, Mastering Soft Melodies PC/OS Guide</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-unlock-a-world-of-movies-captions-in-windows-media-player/"><u>In 2024, Unlock a World of Movies Captions in Windows Media Player</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-in-2024-top-tier-tempo-tune-videography-tools/"><u>New In 2024, Top-Tier Tempo Tune Videography Tools</u></a></li>
-<li><a href="https://article-posts.techidaily.com/unveiling-the-art-of-converting-still-images-into-engaging-videos-with-pixiz/"><u>Unveiling the Art of Converting Still Images Into Engaging Videos with Pixiz</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/yokus-island-express-review/"><u>Yoku's Island Express Review</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-complete-studio-exploration-in-depth-xvideoexamine/"><u>[New] Complete Studio Exploration In-Depth XVideoExamine</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-finding-the-right-sound-top-asmrists-advice/"><u>[New] Finding the Right Sound Top ASMRists Advice</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagrams-filter-arsenal-for-revamping-your-archive/"><u>[New] In 2024, Instagram's Filter Arsenal for Revamping Your Archive</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-the-essential-srt-to-xml-ssa-and-ttml-manual/"><u>[New] In 2024, The Essential SRT to XML, SSA & TTML Manual</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-the-art-of-analyzing-youtube-numbers-views-and-money/"><u>[New] Mastering the Art of Analyzing YouTube Numbers Views & Money</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unlimited-sky-storage-solutions-for-your-visual-chronicles-free-and-premium-for-2024/"><u>[New] Unlimited Sky Storage Solutions for Your Visual Chronicles, Free & Premium for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-dream-workflow-best-afx-templates-without-a-price-tag-for-2024/"><u>[Updated] Dream Workflow Best AFX Templates Without a Price Tag for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-economical-dslrs-for-the-cost-conscious-for-2024/"><u>[Updated] Economical DSLRs for the Cost-Conscious for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-find-the-perfect-phone-shot-blur-for-2024/"><u>[Updated] Find the Perfect Phone Shot Blur for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-maximize-your-device-choose-from-the-7-best-android-adblockers/"><u>2024 Approved Maximize Your Device Choose From the 7 Best Android AdBlockers</u></a></li>
+<li><a href="https://win11.techidaily.com/enabling-controlled-access-a-step-by-step-for-windows-10-and-11/"><u>Enabling Controlled Access: A Step-by-Step for Windows 10 & 11</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-a-step-by-step-guide-to-finding-your-apple-id-from-your-iphone-8-by-drfone-ios/"><u>In 2024, A Step-by-Step Guide to Finding Your Apple ID From Your iPhone 8</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Honor X9a? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Realme 11 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-secure-passwords-the-best-software-for-free-and-subscription-based-management-systems/"><u>Mastering Secure Passwords: The Best Software for Free & Subscription-Based Management Systems</u></a></li>
+<li><a href="https://article-posts.techidaily.com/top-10-professional-grade-microphones-for-podcasters-for-2024/"><u>Top 10 Professional-Grade Microphones for Podcasters for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/top-action-cam-battle-gopro-hero5-and-sj7-star-for-2024/"><u>Top Action Cam Battle GoPro Hero5 & SJ7 Star for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/universal-unlock-pattern-for-asus-rog-phone-8-pro-by-drfone-android/"><u>Universal Unlock Pattern for Asus ROG Phone 8 Pro</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-unwatermark-your-tiktok-videos-top-online-removal-methods/"><u>Updated 2024 Approved Unwatermark Your TikTok Videos Top Online Removal Methods</u></a></li>
 </ul></div>
 

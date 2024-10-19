@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Art of Gentle Audio Dampening on Lumafusion Platforms\""
-date: 2024-10-08T18:35:04.981Z
-updated: 2024-10-13T02:02:39.161Z
+date: 2024-10-18T00:40:28.489Z
+updated: 2024-10-18T23:18:22.420Z
 tags: 
   - screen-recording
   - ai video
@@ -67,11 +67,25 @@ Drag and drop your sound recordings from the media library to the timeline at th
 
 ![import audios to fade](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step3 Apply Fade Effects
 
 The fade-in audio button inside your audio file may be seen when you just hover over the audio file within the timeline and look for the white circle filled with pink hue at the beginning and finish of your audio file. On the other hand, to choose the fade-out audio, click and drag the pink circle that appears on the opposite end of the audio file in the timeline that you have chosen to fade out the music file.
 
 ![apply fade effects](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step4 Share and export
 
@@ -79,11 +93,32 @@ After finishing the method for editing audio in Filmora, click the Export button
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. Related FAQs about LumaFusion
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. How do you do transitions in LumaFusion?
 
@@ -107,25 +142,11 @@ Drag and drop your sound recordings from the media library to the timeline at th
 
 ![import audios to fade](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step3 Apply Fade Effects
 
 The fade-in audio button inside your audio file may be seen when you just hover over the audio file within the timeline and look for the white circle filled with pink hue at the beginning and finish of your audio file. On the other hand, to choose the fade-out audio, click and drag the pink circle that appears on the opposite end of the audio file in the timeline that you have chosen to fade out the music file.
 
 ![apply fade effects](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step4 Share and export
 
@@ -133,38 +154,11 @@ After finishing the method for editing audio in Filmora, click the Export button
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3\. Related FAQs about LumaFusion
-
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. How do you do transitions in LumaFusion?
 
@@ -198,14 +192,24 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-3dr-solo-unveiling-the-single-user-experience/"><u>[New] In 2024, '3DR Solo' Unveiling the Single User Experience</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-ultimate-guide-to-windows-11-photo-customization-audio-plus-visuals/"><u>[New] In 2024, The Ultimate Guide to Windows 11 Photo Customization Audio + Visuals</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-ranking-premium-free-excellence-the-finest-free-lut-selections-for-2024/"><u>[New] Ranking Premium-Free Excellence The Finest Free LUT Selections for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-the-ultimate-list-best-for-android-pics/"><u>[New] The Ultimate List Best for Android Pics</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-eyecapture-master-series-version-x/"><u>[Updated] In 2024, EyeCapture Master Series - Version X</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-honor-play-8t-by-fonelab-android-recover-photos/"><u>How to recover deleted photos from Honor Play 8T.</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-bringing-history-alive-old-images-in-new-video-formats/"><u>In 2024, Bringing History Alive Old Images in New Video Formats</u></a></li>
-<li><a href="https://article-posts.techidaily.com/side-by-side-hero4-vs-hero5-analysis-for-2024/"><u>Side by Side Hero4 vs Hero5 Analysis for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/ultimate-guide-resolving-the-starfield-games-excessive-cpu-drain-problem/"><u>Ultimate Guide: Resolving the Starfield Game's Excessive CPU Drain Problem</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-bring-your-favorite-tunes-to-the-social-network-iphoneandroid/"><u>[New] Bring Your Favorite Tunes to the Social Network (iPhone/Android)</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-essential-knowledge-for-creating-thoughtful-twitreact-videos/"><u>[New] Essential Knowledge for Creating Thoughtful TwitReact Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-enhancing-clarity-in-low-quality-facebook-streams/"><u>[New] In 2024, Enhancing Clarity in Low-Quality Facebook Streams</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-instagram-music-lawfare-summary/"><u>[New] In 2024, Instagram Music Lawfare Summary</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-nikons-masterpiece-unveiling-the-4k-capabilities-of-j5/"><u>[New] In 2024, Nikon's Masterpiece Unveiling The 4K Capabilities of J5</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-virtual-vs-augmented-unraveling-ar-mr-and-vr-distinctions/"><u>[New] In 2024, Virtual Vs. Augmented Unraveling AR, MR & VR Distinctions</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-pioneers-of-haptic-technology-unveiled-for-2024/"><u>[New] Pioneers of Haptic Technology Unveiled for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-explore-classic-ps3-games-through-best-emulators-2023/"><u>[Updated] 2024 Approved Explore Classic PS3 Games Through Best Emulators 2023</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-prime-methods-for-youtube-content-into-mpeg/"><u>[Updated] 2024 Approved Prime Methods for YouTube Content Into MPEG</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-seamless-video-editing-turning-avi-into-easily-shareable-gifs-with-filmora/"><u>[Updated] 2024 Approved Seamless Video Editing Turning AVI Into Easily Shareable GIFs with Filmora</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-ultimate-trailer-highlight-hodgepodge/"><u>[Updated] 2024 Approved Ultimate Trailer Highlight Hodgepodge</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-how-to-use-luts-from-color-grading-central-to-color-grading-for-movies/"><u>[Updated] How to Use Luts From Color Grading Central to Color Grading for Movies</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-convert-srt-free-top-10-web-subtitle-services/"><u>[Updated] In 2024, Convert SRT Free Top 10 Web Subtitle Services</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-scrutinizing-high-dynamic-range-insights-from-luminance/"><u>[Updated] Scrutinizing High Dynamic Range Insights From Luminance</u></a></li>
+<li><a href="https://article-posts.techidaily.com/digital-subtitling-simplified-best-online-tools-of-the-decade-for-2024/"><u>Digital Subtitling Simplified Best Online Tools of the Decade for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-the-latest-meta-quest-3-updates-launch-details-cost-analysis-and-technical-specifications/"><u>Discover the Latest Meta Quest 3 Updates: Launch Details, Cost Analysis & Technical Specifications</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-samsung-galaxy-m34-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Samsung Galaxy M34 For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-your-apple-iphone-13-pro-max-passcode-4-easy-methods-with-or-without-itunes-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Your Apple iPhone 13 Pro Max Passcode 4 Easy Methods (With or Without iTunes) | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Poco M6 5G? | Dr.fone</u></a></li>
 </ul></div>
 

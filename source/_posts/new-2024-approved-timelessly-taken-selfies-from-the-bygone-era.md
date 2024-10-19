@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Timelessly Taken  Selfies From the Bygone Era\""
-date: 2024-09-09T23:12:11.822Z
-updated: 2024-09-15T03:01:01.386Z
+date: 2024-10-17T20:39:36.060Z
+updated: 2024-10-18T18:15:14.312Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,19 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 * [Part 1: For iPhone 7 Plus/8 Plus/X users](#part1)
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### For iPhone 7 Plus/8 Plus/X users
 
  **Using the Portrait Mode on an iPhone**
@@ -49,6 +62,13 @@ The quality of cameras on iPhones has been improving over the years, and Portrai
 However, the Portrait Mode is only featured on iOS 10.1 or some more recent versions of the iOS, so if you want to use the Portrait Mode you need to upgrade your device's iOS. After you launched the camera app, swipe left and look for the Portrait Mode. Once you find the feature, make sure it is marked yellow, in order to start using its tools. The app will display several different lighting options including the Natural Light preset that is essential for creating photos with Portrait Lightning.
 
 ![portrait-mode-iphone](https://images.wondershare.com/filmora/article-images/portrait-mode-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Image resource: 9to5mac
 
@@ -65,6 +85,13 @@ Image resource: imore
 Launch the Camera app, and swipe to the Portrait option, and then tap on the Camera Swap feature to start using the front camera on your iPhone. Find the Portrait Lightning feature in the camera's Portrait mode, then select one of the options provided by the Portrait Lightning such as Studio Light or Natural light, and proceed to snap a selfie by tapping on the shutter button.
 
 If there is not enough light or if you are too far away from the camera, the app will show messages that remind you to add more light to your shot or hold the camera closer to the subject of the photo. It is worth noting that the app will not let you take a photo until you do everything that messages on the screen demand from you. However, the Portrait Mode doesn't allow you to take several photos at once, but it still produces amazing pictures that can be easily shared on social media.
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### For iPhone 8, 7 or older iPhones users
 
@@ -106,6 +133,13 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 
 ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
@@ -133,12 +167,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-evolving-videography-redefining-social-sharing-with-periscope-alternatives-for-2024/"><u>[New] Evolving Videography Redefining Social Sharing with Periscope Alternatives for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-text-and-title-effect-types-in-after-effects/"><u>[New] In 2024, Text and Title Effect Types in After Effects</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/kyrocketing-viewership-youtubes-quintessential-5-marketing-strategies/"><u>[New] Skyrocketing Viewership - YouTube's Quintessential 5 Marketing Strategies</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-top-ringtone-choices-essential-downloads-guide/"><u>[New] Top Ringtone Choices Essential Downloads Guide</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unlocking-vr-advertising-potential/"><u>[New] Unlocking VR Advertising Potential</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-exploring-virtual-realities-shortcomings-for-2024/"><u>[Updated] Exploring Virtual Realities' Shortcomings for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-motionmaster-win8-version-for-2024/"><u>[Updated] MotionMaster Win8 Version for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-top-10-free-slideshow-designs-for-easy-presentations/"><u>[Updated] Top 10 Free Slideshow Designs for Easy Presentations</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-green-settings-in-cinematic-production/"><u>2024 Approved Green Settings in Cinematic Production</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-proven-techniques-to-amplify-your-youtube-presence/"><u>2024 Approved Proven Techniques to Amplify Your YouTube Presence</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/free-download-hp-elitebook-x360-1030-g2-system-drivers/"><u>Free Download: HP EliteBook X360 1030 G2 System Drivers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-androids-premier-gaming-application-decoding-the-kinemaster-experience/"><u>In 2024, Android's Premier Gaming Application - Decoding the KineMaster Experience</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-refining-images-how-to-use-the-eraser-tool-in-psx/"><u>In 2024, Refining Images How to Use the Eraser Tool in PSX</u></a></li>
+<li><a href="https://win-dash.techidaily.com/lemino/"><u>Lemino の動画撮影テクニック：詳しいガイド</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/nvidia-drivers-tdr-error-corrected/"><u>NVIDIA Drivers: TDR Error Corrected</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering the Role of Alternate Footage\""
-date: 2024-09-11T17:25:37.716Z
-updated: 2024-09-15T02:32:50.173Z
+date: 2024-10-11T18:55:49.515Z
+updated: 2024-10-18T20:01:11.316Z
 tags: 
   - screen-recording
   - ai video
@@ -45,15 +45,22 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. What types of b roll are there?
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Archival b roll footage
@@ -64,27 +71,20 @@ Aerial B roll is the solution when you like to show your viewers where your film
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
 
@@ -97,6 +97,13 @@ Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" tha
 A pick-up is a tiny shot added to previously captured material. Re-shoots involve redoing entire scenes. Both types of shots are commonly added during film editing to fix, logic, continuity, or quality flaws. These photos happen a while after the sets have been taken down, clothes and props stowed, and the actors and crew have gone on to new projects.
 
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
 
@@ -134,5 +141,24 @@ We sincerely hope that this post will be of use to you in making your films more
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-thorough-examination-straightforward-dynamic-range-methods/"><u>[New] 2024 Approved Thorough Examination Straightforward Dynamic Range Methods</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-spark-interest-with-animated-text-a-guide-for-instagram-storytellers-for-2024/"><u>[New] Spark Interest with Animated Text A Guide for Instagram Storytellers for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-deconstructing-wirecast-alternatives-uncovered-for-2024/"><u>[Updated] Deconstructing WireCast Alternatives Uncovered for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-recording-to-releasing-editing-in-garageband/"><u>[Updated] From Recording to Releasing Editing in GarageBand</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-high-ranked-choices-ideal-online-spots-for-grab-snapchat-ringtone/"><u>[Updated] High-Ranked Choices Ideal Online Spots for Grab Snapchat Ringtone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-top-mobile-video-assembly-software-for-smartphones/"><u>[Updated] Top Mobile Video Assembly Software for Smartphones</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unveiling-vr-inventory-and-imagination-deficit-for-2024/"><u>[Updated] Unveiling VR Inventory and Imagination Deficit for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/continuous-display-recorder-for-2024/"><u>Continuous Display Recorder for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/download-high-definition-movies-and-tv-shows-in-4k-ultra-hd-quality/"><u>Download High Definition Movies & TV Shows in 4K Ultra HD Quality</u></a></li>
+<li><a href="https://article-posts.techidaily.com/exploring-the-depths-of-ifunnys-meme-experience/"><u>Exploring the Depths of iFunny's Meme Experience</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-recover-hidden-windows-nvidia-settings/"><u>How to Recover Hidden Windows Nvidia Settings</u></a></li>
+<li><a href="https://article-posts.techidaily.com/mastery-overcoming-adobe-premieres-srt-barriers/"><u>Mastery Overcoming Adobe Premiere's SRT Barriers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/reconsidering-chatgpt-on-your-phone-why-you-might-want-to-avoid-it/"><u>Reconsidering ChatGPT on Your Phone: Why You Might Want to Avoid It</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/spectacular-stop-motion-animations-15-list-for-2024/"><u>Spectacular Stop-Motion Animations #15 List for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/step-by-step-guide-updating-your-pcs-webcam-drivers-on-windows-10/"><u>Step-by-Step Guide: Updating Your PC's Webcam Drivers on Windows 10</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-4-ultimate-strategies-for-creating-softened-iphone-pics/"><u>The 4 Ultimate Strategies for Creating Softened iPhone Pics</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-steps-for-the-missing-d3dxt9v39dll-file-fix-guide/"><u>Troubleshooting Steps for the 'Missing' d3dxt9_v39.dll File: Fix Guide</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Discovering the Syma X5C  The Premier Drone for Rookies\""
-date: 2024-10-09T21:45:56.246Z
-updated: 2024-10-12T21:28:37.013Z
+date: 2024-10-13T21:56:58.479Z
+updated: 2024-10-18T20:06:05.789Z
 tags: 
   - screen-recording
   - ai video
@@ -65,13 +65,6 @@ thumbnail: https://thmb.techidaily.com/cdf4d7c5a6e11bc2ecb600573fb51d6d46dc48a05
 
  There are so many incredible features inside Syma X5C that make it suitable device for [aerial photography](https://tools.techidaily.com/wondershare/filmora/download/). The intuitive controls are much easier to explore even for beginners. The remote control is user friendly and all other latest features make it a must buy product for drone lovers.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Complete Review for Syma X5C
 
 #### 1\.  Basic Specs Info
@@ -103,6 +96,13 @@ thumbnail: https://thmb.techidaily.com/cdf4d7c5a6e11bc2ecb600573fb51d6d46dc48a05
 
 ![syma x5c controller](https://images.wondershare.com/filmora/article-images/syma-x5c-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The remote unit or transmitter works with a 2.4GHz frequency setting with 4 channel type control. It helps pilots to enjoy wider flying range with spread spectrum technology. The maximum flying range falls between 30 to 50 meters and no lags have been reported yet in control selection and quadcopter reactions. Using flip switch, you can directly adjust the movements in air.
 
 #### 6\.  Camera
@@ -110,19 +110,19 @@ thumbnail: https://thmb.techidaily.com/cdf4d7c5a6e11bc2ecb600573fb51d6d46dc48a05
 ![syma x5c camera](https://images.wondershare.com/filmora/article-images/syma-x5c-camera.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Syma H5C camera is rated as moderately stable and it is capable enough to take impressive pictures from air. This device is equipped with a 2GB MicroSD card that offers personal storage space to all recorded videos and images. The sad part is here that controller unit of this device is able to send signals to drone only; it cannot control the camera actions. Thus your camera stays focused in only one direction all the time and have fixed focus during shoots. You cannot apply zoom, direction sensing inputs or focus adjustment controls when your device is in air. If you are searching for a highly controlled footage generator then it is good to go for other Phantom series and other competing models as per your budget. But Syma H5C is really a good choice to start with.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -132,10 +132,10 @@ thumbnail: https://thmb.techidaily.com/cdf4d7c5a6e11bc2ecb600573fb51d6d46dc48a05
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -163,17 +163,17 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-discovering-visual-narratives-merging-photography-and-videography-using-pixiz/"><u>[New] Discovering Visual Narratives Merging Photography and Videography Using Pixiz</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-celebrated-20-independent-pubg-photo-sequences/"><u>[New] In 2024, Celebrated 20 Independent PUBG Photo Sequences</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-10-best-websites-for-copyright-free-gaming-music/"><u>[Updated] 10 Best Websites for Copyright-Free Gaming Music</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-beyond-binary-boundaries-unveiling-metaverse-vs-multiverse/"><u>[Updated] In 2024, Beyond Binary Boundaries Unveiling Metaverse V/S Multiverse</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/5-minutes-to-boosting-traffic-with-these-9-essential-gpt-plugins/"><u>5 Minutes to Boosting Traffic with These 9 Essential GPT Plugins</u></a></li>
-<li><a href="https://android-frp.techidaily.com/5-quick-methods-to-bypass-oppo-reno-10-proplus-5g-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Oppo Reno 10 Pro+ 5G FRP</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/easy-troubleshooting-guide-resolving-minecraft-performance-problems/"><u>Easy Troubleshooting Guide: Resolving Minecraft Performance Problems</u></a></li>
-<li><a href="https://article-posts.techidaily.com/guide-to-securing-superior-quality-pics-without-charges-for-2024/"><u>Guide to Securing Superior Quality Pics without Charges for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-sign-out-of-apple-id-on-iphone-7-plus-without-password-by-drfone-ios/"><u>How to Sign Out of Apple ID On iPhone 7 Plus without Password?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-depth-analysis-navigating-zoom-for-webinars-and-livestreams/"><u>In-Depth Analysis Navigating Zoom for Webinars and Livestreams</u></a></li>
-<li><a href="https://article-posts.techidaily.com/make-a-splash-impressive-video-edits-with-windows-10s-tools-for-2024/"><u>Make a Splash Impressive Video Edits with Windows 10'S Tools for 2024</u></a></li>
-<li><a href="https://techidaily.com/reset-pattern-lock-tutorial-for-samsung-galaxy-a05s-by-drfone-android-unlock-android-unlock/"><u>Reset pattern lock Tutorial for Samsung Galaxy A05s</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-ultimate-list-low-cost-high-definition-cameras/"><u>[New] 2024 Approved Ultimate List Low-Cost, High Definition Cameras</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-breathtaking-judgment-and-variant-proposals/"><u>[New] In 2024, Breathtaking Judgment & Variant Proposals</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-srt-file-accessibility-across-computers/"><u>[New] SRT File Accessibility Across Computers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unlock-the-power-to-create-personalized-whatsapp-alerts-for-2024/"><u>[New] Unlock the Power to Create Personalized WhatsApp Alerts for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-in-depth-study-androids-lightroom-app-functionality/"><u>[Updated] In 2024, In-Depth Study Android's Lightroom App Functionality</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-mastery-in-maintaining-a-clean-feed-best-twitter-tools/"><u>[Updated] In 2024, Mastery in Maintaining a Clean Feed Best Twitter Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-complete-checklist-for-youtubes-resolution-width-and-height-settings/"><u>[Updated] The Complete Checklist for YouTube's Resolution, Width & Height Settings</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/enhancing-itext-documents-with-update-features-tips-and-tricks/"><u>Enhancing iText Documents with Update Features: Tips & Tricks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/from-current-applications-to-future-drone-horizons/"><u>From Current Applications to Future Drone Horizons</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-efficient-techniques-to-solve-w10s-photo-viewer-errors/"><u>In 2024, Efficient Techniques to Solve W10's Photo Viewer Errors</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-how-to-record-with-flair-on-windows-10/"><u>In 2024, How to Record with Flair on Windows 10</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unpacking-the-features-and-shortcomings-of-samsung-image-editor/"><u>Unpacking the Features and Shortcomings of Samsung Image Editor</u></a></li>
 </ul></div>
 

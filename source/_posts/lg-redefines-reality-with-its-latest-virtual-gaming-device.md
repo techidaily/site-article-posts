@@ -1,7 +1,7 @@
 ---
 title: "LG Redefines Reality with Its Latest Virtual Gaming Device"
-date: 2024-09-11T12:00:32.621Z
-updated: 2024-09-15T05:55:37.740Z
+date: 2024-10-16T18:17:03.244Z
+updated: 2024-10-18T22:28:52.190Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/950d846f8fcee250021d944b4596b6aafb3f396fb
 
 ## First Impression of LG 360 VR
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Design of LG 360 VR
 
  The 360 VR does not look like other headsets present in the market and in this occurrence, this is not a good feature. Certainly, it is tough, maybe terrible even, to make someone look cool while having a VR headset on their head. But with the design of 360 VR, it is quite sure that engineers have made no attempt to resolve this issue. The headset sports a look similar to what common in the 1980s imagined a futuristic invention would look like. It actually looks like a product with a low-cost, NHS-prescribed article for modifying poor vision.
@@ -41,16 +48,16 @@ thumbnail: https://thmb.techidaily.com/950d846f8fcee250021d944b4596b6aafb3f396fb
 
  Since it is connected via USB Type-C connector, so the company provides it with the package. The adjustable lenses and their covers are present. A 3.5 mm jack is also present on the headset for the headphones which are also provided. Well, many other necessary things are also provided with.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Product Packaging of LG 360 VR
 
  Well, the packaging is quite simple as all the other products of LG. It comes in a simple box will all the accessories in it. It is okay to say that the packaging is safe, but should be dealt with care, in the end, it is a delicate product. Everything looks good until it is inside the box.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Set up LG 360 VR headset
 
@@ -59,16 +66,16 @@ thumbnail: https://thmb.techidaily.com/950d846f8fcee250021d944b4596b6aafb3f396fb
 * The LG 360 VR turns off if your phone remains idle without playing any video or application for a minimum of 15 minutes in order to save the battery of your phone.
 * Other than that, the headset will connect to the phone if the battery of your phone is too low or the phone is too hot.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### LG 360 VR Performance
 
  When you ponder that it is the LG G5 phone that is actually doing all the work in terms of actually driving the 360 VR's practices, you would at least assume steady performance. We know that the G5 is one of the most influential smartphones present in the market, including an Adreno 530 GPU, Snapdragon 820 and a 4GB RAM. Unfortunately, the first experience with the 360 VR’s performance is unsatisfactory to say the minimum. Having a 920 x 720 resolution per eye, this headset provides a much lower resolution rate as compared to all other virtual reality headsets present in the market. Although using it is a rollercoaster ride through various mixed experiences.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Key features of the LG 360 VR headset
 
@@ -109,6 +116,13 @@ thumbnail: https://thmb.techidaily.com/950d846f8fcee250021d944b4596b6aafb3f396fb
 | Compatibility | Works with LG G5                        | Works with Samsung Galaxy S6, S6 Edge, S6 Edge+, Note 5, S7 and S7 Edge |
 | Resolution    | 960x720 pixels at 693ppi                | 1,280x1,440 pixels, at 518-577ppi also depends on phone                 |
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### More about LG 360 VR headset
 
  LG 360 VR is a virtual reality device designed by LG. It was actually released with LG G5 and used to promote this phone. LG 360 VR has an internal built-in display, unlike the Gear VR designed by Samsung, which also provides a unit plugging for power directly to the phone. The headset can be controlled from the smartphone screen by just tapping and swiping. LG, however, designed this device to enjoy the virtual reality experience, but the device is not up to the mark. If you haven’t bought this device yet, it is highly advised not to buy this one. It is not a very good design and its performance is also not very good.
@@ -118,13 +132,6 @@ thumbnail: https://thmb.techidaily.com/950d846f8fcee250021d944b4596b6aafb3f396fb
  In crux, LG’s this device isn't somewhat you'd want to attire in public, and when you ponder that one of the assistances of a mobile headset is that you are not tied to a luxurious gaming rig, LG certainly should have put in some more energy when it comes to the design of 360 VR. If we are going to turn out to be a realm of VR zombies with headsets continually tied to our skulls, then we would probably want those units which let us live in style.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -149,5 +156,20 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-a-curated-selection-best-stop-motion-movies-ever-made/"><u>[New] A Curated Selection Best Stop-Motion Movies Ever Made</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-emoji-enhancement-techniques-converting-graphics-into-chat-app-stickers/"><u>[New] Emoji Enhancement Techniques Converting Graphics Into Chat App Stickers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-textual-tricks-for-tickling-funny-bones/"><u>[New] Textual Tricks for Tickling Funny Bones</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-delivering-quality-imagery-applying-lut-techniques-in-adobes-tools/"><u>[Updated] 2024 Approved Delivering Quality Imagery Applying LUT Techniques in Adobe's Tools</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-troubleshooting-stuttering-video-on-photo-booth-app/"><u>[Updated] 2024 Approved Troubleshooting Stuttering Video on Photo Booth App</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-chuckle-clips-for-iphone/"><u>[Updated] In 2024, Chuckle Clips for iPhone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-innovative-drone-designs-always-on-your-side-for-2024/"><u>[Updated] Innovative Drone Designs Always on Your Side for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-enhancing-video-impact-interpreting-youtube-metrics-wisely/"><u>2024 Approved Enhancing Video Impact Interpreting YouTube Metrics Wisely</u></a></li>
+<li><a href="https://article-posts.techidaily.com/developing-proficient-interview-skills-for-2024/"><u>Developing Proficient Interview Skills for 2024</u></a></li>
+<li><a href="https://techidaily.com/hard-resetting-an-tecno-spark-go-2024-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Tecno Spark Go (2024) Device Made Easy | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-going-against-gravity-innovative-ways-to-rewind-youtube-content/"><u>In 2024, Going Against Gravity Innovative Ways to Rewind YouTube Content</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-15-pro-to-pc-via-usb-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone 15 Pro to PC via USB? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lenovos-2020-tablet-triumph-the-tab-m10-fhd-plus-delivers-high-end-displays-on-a-budget/"><u>Lenovo's 2020 Tablet Triumph: The Tab M10 FHD Plus Delivers High-End Displays on a Budget</u></a></li>
+</ul></div>
 

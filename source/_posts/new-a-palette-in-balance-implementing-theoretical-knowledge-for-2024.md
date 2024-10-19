@@ -1,7 +1,7 @@
 ---
 title: "\"[New] A Palette in Balance  Implementing Theoretical Knowledge for 2024\""
-date: 2024-10-11T16:29:14.358Z
-updated: 2024-10-12T21:59:33.791Z
+date: 2024-10-17T18:50:45.478Z
+updated: 2024-10-19T00:51:52.311Z
 tags: 
   - screen-recording
   - ai video
@@ -33,13 +33,6 @@ Color theory consists of many elements that could fill a library on its own but 
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Color Wheel
 
 Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
@@ -47,13 +40,20 @@ Using red, green and blue as primary colors we can mix the colors to one another
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Color Harmony
 
@@ -76,10 +76,10 @@ You may still be unsure as to how to implement color theory into your videos. Le
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
@@ -88,14 +88,14 @@ As you can see from this example the base color for the scene is a dark blue/pur
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -131,18 +131,19 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-best-video-player-apps-for-windows-phone/"><u>[New] 2024 Approved Best Video Player Apps for Windows Phone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-tech-tailored-using-apple-watch-for-macopening/"><u>[New] 2024 Approved Tech Tailored Using Apple Watch for MacOpening</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-windows-snapshot-simplified-2-methods/"><u>[New] 2024 Approved Windows Snapshot Simplified (2 Methods)</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-perfect-your-pixels-select-best-10-online-enhancement-apps/"><u>[New] Perfect Your Pixels Select Best 10 Online Enhancement Apps</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-hardware-basics-preparing-for-big-sur-os/"><u>[Updated] 2024 Approved Hardware Basics Preparing for Big Sur OS</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-mastering-spotify-promotion-strategies-for-effective-ads/"><u>[Updated] Mastering Spotify Promotion Strategies for Effective Ads</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-the-clearest-waves-premier-mic-selection-for-2024/"><u>[Updated] The Clearest Waves Premier Mic Selection for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/erasing-email-on-windows-sign-in-a-guide/"><u>Erasing Email on Windows Sign-In: A Guide</u></a></li>
-<li><a href="https://program-issues.techidaily.com/expert-guide-to-resolving-apex-legends-technical-snags-and-crashes/"><u>Expert Guide to Resolving Apex Legends Technical Snags and Crashes</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-5-solutions-for-huawei-nova-y71-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Huawei Nova Y71 Unlock Without Password</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-streamlining-your-webm-experience-without-spending-money/"><u>In 2024, Streamlining Your WebM Experience Without Spending Money</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/unveiling-the-best-practices-for-timing-and-organizing-google-collaborations/"><u>Unveiling the Best Practices for Timing and Organizing Google Collaborations</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Nokia 130 Music | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-how-to-speed-up-video-on-instagram/"><u>[New] 2024 Approved How to Speed Up Video on Instagram</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-maximize-your-workflow-with-efficient-use-of-macs-preview-tool/"><u>[New] Maximize Your Workflow with Efficient Use of Mac's Preview Tool</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-proficient-use-of-obs-studio-on-your-android-phone/"><u>[New] Proficient Use of OBS Studio on Your Android Phone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-power-players-in-flight-the-drone-heavylifting-leaders/"><u>[Updated] In 2024, Power Players in Flight The Drone Heavylifting Leaders</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-navigating-the-complex-world-of-lipos-for-drones/"><u>[Updated] Navigating the Complex World of LiPos for Drones</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-professional-video-editing-implementing-the-ken-burns-effect-in-camtasa-for-2024/"><u>[Updated] Professional Video Editing Implementing the Ken Burns Effect in Camtasa for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/boost-your-vs-code-productivity-10-chatgpt-tips/"><u>Boost Your VS Code Productivity - 10 ChatGPT Tips</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-low-fps-issues-for-dota-2-players-on-the-latest-windows-operating-system/"><u>Fixing Low FPS Issues for Dota 2 Players on the Latest Windows Operating System</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-honor-magic-5-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Honor Magic 5 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-professional-livestream-selector-pick-between-virusmix-and-castpro/"><u>In 2024, Professional Livestream Selector Pick Between VirusMix and CastPro</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/maker-milestones-subscriber-and-interactive-feature-prizes-for-2024/"><u>Maker Milestones Subscriber & Interactive Feature Prizes for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/unleash-the-power-of-digital-beats-with-our-free-tools-for-2024/"><u>Unleash the Power of Digital Beats with Our Free Tools for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-unlocking-advanced-visuals-how-to-use-picture-in-picture-in-final-cut-pro/"><u>Updated In 2024, Unlocking Advanced Visuals How to Use Picture-in-Picture in Final Cut Pro</u></a></li>
 </ul></div>
 

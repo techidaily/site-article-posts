@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Capturing Heights  A Deep Dive Into GoPro Karma\""
-date: 2024-10-07T17:16:11.751Z
-updated: 2024-10-12T17:58:01.723Z
+date: 2024-10-18T03:32:01.006Z
+updated: 2024-10-18T21:59:02.329Z
 tags: 
   - screen-recording
   - ai video
@@ -57,10 +57,10 @@ thumbnail: https://thmb.techidaily.com/8581bfa31a5d038a1f8f5ee676586f0437981f1b9
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Detailed review for GoPro Karma
@@ -100,16 +100,10 @@ thumbnail: https://thmb.techidaily.com/8581bfa31a5d038a1f8f5ee676586f0437981f1b9
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
@@ -121,10 +115,10 @@ Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -152,14 +146,16 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-battle-for-best-action-camera-sony-fdr-x1000v-meets-hero-4-black/"><u>[New] Battle for Best Action Camera Sony FDR-X1000V Meets Hero 4 Black</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-6-best-free-apps-to-compress-videos-on-android/"><u>[New] In 2024, 6 Best Free Apps to Compress Videos on Android</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-how-to-pace-perfectly-on-iphone-capturing-and-editing-slowed-down-videos-for-2024/"><u>[Updated] How to Pace Perfectly on iPhone Capturing & Editing Slowed Down Videos for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Samsung Galaxy A15 4G | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-decoding-snapchat-emoji-language/"><u>2024 Approved Decoding Snapchat Emoji Language</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ver-new-movie-experiences-top-7-swaps-for-2024/"><u>Discover New Movie Experiences - Top 7 Swaps for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/o-create-a-playlist-on-youtube/"><u>How to Create a Playlist on YouTube</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-ranked-list-of-pristine-cost-free-websites-for-designers-delight/"><u>In 2024, Ranked List of Pristine, Cost-Free Websites for Designers' Delight</u></a></li>
-<li><a href="https://techidaily.com/remove-lock-screen-without-passwordyuva-3-pro-by-drfone-android-unlock-android-unlock/"><u>Remove Lock Screen without Password(Yuva 3 Pro)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-srt-file-how-to-open-srt-file-on-windows-or-mac/"><u>[Updated] 2024 Approved SRT File How to Open SRT File on Windows or Mac</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-educators-compendium-of-video-assisted-methods/"><u>[Updated] 2024 Approved The Educator's Compendium of Video-Assisted Methods</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-ultimate-shot-upgrade-no-money-needed/"><u>[Updated] 2024 Approved Ultimate Shot Upgrade - No Money Needed</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-mastering-minute-details-on-screen-through-zooming-techniques/"><u>[Updated] Mastering Minute Details On-Screen Through Zooming Techniques</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-itel-a60-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Itel A60 | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mkv-flv-movavi/"><u>網路上免費 MKV 到 FLV 自動轉換 - 利用 Movavi 工具</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/boosting-remote-meeting-effectiveness-through-optimized-zoom-recordings-for-2024/"><u>Boosting Remote Meeting Effectiveness Through Optimized Zoom Recordings for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/engineering-an-emotional-movie-segment/"><u>Engineering an Emotional Movie Segment</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-snapshot-excellence-the-finest-software-on-market/"><u>In 2024, Snapshot Excellence The Finest Software on Market</u></a></li>
+<li><a href="https://article-posts.techidaily.com/incremental-diminution-strategies-for-fl-studio-enthusiasts-for-2024/"><u>Incremental Diminution Strategies for FL Studio Enthusiasts for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-vivo-v27-pro-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Vivo V27 Pro Device</u></a></li>
 </ul></div>
 
