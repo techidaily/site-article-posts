@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Transformative Editing Experience  Windows Photos Meets Story Remix\""
-date: 2024-10-14T17:36:31.252Z
-updated: 2024-10-18T16:52:06.471Z
+date: 2024-10-18T18:23:34.981Z
+updated: 2024-10-24T20:47:07.177Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,13 @@ Go to **Start** menu and open **Windows Photos**. you can see videos and photos 
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to create Story Remix automatically and randomly
 
 In this part of the article, we would elaborate creation of Story Remix in different ways. The content is auto-generated or you can manually create it from scratch. The automatic method has themes, transitions, and soundtracks within.
@@ -73,6 +80,13 @@ How to create a Story Remix project automatically –
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-name-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to create a Story Remix project from scratch
 
 Here is the guide –
@@ -85,13 +99,6 @@ Here is the guide –
 
 1. Hit on **Create video** afterwards.
 2. Now, you can preview, edit or share your video.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How to edit a Story Remix video
 
@@ -108,6 +115,13 @@ A theme is a built-in feature in Photos, just like music, filters, and text styl
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-theme-min.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Adding image duration
 
 While adding media to the timeline in Story Mix, you will see that there is a default timeline for each image. To adjust the duration, you can do –
@@ -117,10 +131,10 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-duration-min.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Adding custom text
@@ -131,19 +145,6 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-text-min.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Adding motion
 
 1. Firstly, choose the content from the timeline and hit on ‘Motion’. Now, select camera motion style from ‘Zoom in center’/’Zoom in right’/’Pan left’/’Tilt up’ etc.
@@ -151,30 +152,16 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-motion-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Trimming video clips
 
 1. Pick the video from timeline and choose ‘Trim’ button. Mark the trim area and click ‘Play’ to preview.
 2. Hit ‘Done’ in the end.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to add 3D effects to a Story Remix project
@@ -212,13 +199,20 @@ If you want to edit video, we recommend [Wondershare Filmora](https://tools.tech
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -246,16 +240,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-the-definitive-guide-for-pc-mac-and-smartphone-movie-logging/"><u>[Updated] The Definitive Guide for PC, Mac, and Smartphone Movie Logging</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-a-complete-overview-of-vsco-photo-editor/"><u>2024 Approved A Complete Overview of VSCO Photo Editor</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-ideal-selection-8-must-have-image-packs-for-laptops/"><u>2024 Approved Ideal Selection 8 Must-Have Image Packs for Laptops</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-sharpen-your-shots-canon-offers-freepaid-lut-edits/"><u>2024 Approved Sharpen Your Shots Canon Offers Free/Paid LUT Edits</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-smirk-sessions-humorous-content-for-all-events/"><u>2024 Approved Smirk Sessions Humorous Content for All Events</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-the-disappearing-display-on-sony-a6400/"><u>2024 Approved The Disappearing Display on Sony A6400</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-your-essential-guide-to-unmissable-gaming-adventures/"><u>2024 Approved Your Essential Guide to Unmissable Gaming Adventures</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/enhance-your-videos-call-to-action-a-step-by-step-filmora-guide-for-2024/"><u>Enhance Your Video's Call-to-Action A Step-by-Step Filmora Guide for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-update-usb-serial-controller-d-driver/"><u>How to Update USB-Serial Controller D Driver</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/mid-gen-vs-next-gen-gaming-which-consoles-reign-supreme/"><u>Mid-Gen vs Next Gen Gaming: Which Consoles Reign Supreme?</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-for-timely-response-error-in-system-services-code-1053/"><u>Troubleshooting Guide for Timely Response Error in System Services (Code 1053)</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-in-depth-assessment-comprehensive-camstudio-review/"><u>[New] 2024 Approved In-Depth Assessment Comprehensive CamStudio Review</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-easy-steps-to-mastering-audio-in-windows-11-for-2024/"><u>[New] Easy Steps to Mastering Audio in Windows 11 for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-ultimate-virtual-reality-controller-guide/"><u>[New] In 2024, Ultimate Virtual Reality Controller Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nnovate-on-screen-imagery-with-youtubes-green-screens-edge/"><u>[New] Innovate On-Screen Imagery with YouTube’s Green Screens Edge</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unveiling-the-leading-online-stores-for-customized-gift-boxes/"><u>[New] Unveiling the Leading Online Stores for Customized Gift Boxes</u></a></li>
+<li><a href="https://article-posts.techidaily.com/asmr-tactics-your-path-to-nocturnal-serenity-for-2024/"><u>ASMR Tactics Your Path to Nocturnal Serenity for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/best-practices-sourcing-background-beats-for-boxings/"><u>Best Practices Sourcing Background Beats for Boxings</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-a-different-hue-switching-facebook-themes/"><u>Embrace a Different Hue: Switching Facebook Themes</u></a></li>
+<li><a href="https://driver-download.techidaily.com/expert-solutions-correcting-the-lg-usb-driver-malfunction-on-various-windows-platforms/"><u>Expert Solutions: Correcting the LG USB Driver Malfunction on Various Windows Platforms</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-vivo-y100-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Vivo Y100 | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/from-amateur-to-artist-top-8-beginner-camera-selections/"><u>From Amateur to Artist Top 8 Beginner Camera Selections</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Vivo V30? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-fundamentals-of-color-grading-using-luts-in-ae-for-2024/"><u>The Fundamentals of Color Grading Using LUTs in AE for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1725290533444-tsutaya-dvd/"><u>TSUTAYA DVDを安全にコピーできるステップバイステップガイド!パソコン使えずも大丈夫!</u></a></li>
 </ul></div>
 

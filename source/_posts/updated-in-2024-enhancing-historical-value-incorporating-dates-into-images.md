@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Enhancing Historical Value  Incorporating Dates Into Images\""
-date: 2024-10-17T23:42:53.920Z
-updated: 2024-10-18T23:01:50.737Z
+date: 2024-10-22T19:09:07.562Z
+updated: 2024-10-24T16:31:38.008Z
 tags: 
   - screen-recording
   - ai video
@@ -106,18 +106,18 @@ Why knowing **how to add date to a photo** with your in-built app is important; 
 
 You can make use of other photo editing apps to edit your pictures. Here are three applications that you will find useful to do this.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Instasize**
 
 Instasize is an app that you will find quite useful. The app was developed for influencers and social media users who wish to produce captivating, imaginative images and films..
 
 ![instasize](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Key features**
 
@@ -130,13 +130,6 @@ Instasize is an app that you will find quite useful. The app was developed for i
 * Video editing
 
 You can download the app on [Android](https://play.google.com/store/apps/details?id=com.jsdev.instasize&gl=US) and [iPhone.](https://apps.apple.com/us/app/instasize-photo-editor-video/id576649830)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Adobe Photoshop Lightroom**
 
@@ -219,16 +212,16 @@ Step4Proceed to add date and time into the text area manually.
 
 ![add data and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5When ready, drag and slide the date to the area of the image where you wish to stamp it.
 
 ![place the date and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-11.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step6Finally, select File>Save to add your date to the picture.
 
@@ -266,27 +259,20 @@ Step6Select Menu in the upper-left corner.
 
 ![select menu](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-17.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step7Proceed to click on the Save option.
 
 ![click on save option](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-18.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4\. Edit Photos Online to add date stamps
 
 **You can add dates to photos online** via several platforms. Several websites make that possible. Let’s look at some of the platforms and the features they provide.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. [Canva](https://www.canva.com/photo-editor/)
 
@@ -421,6 +407,13 @@ Instasize is an app that you will find quite useful. The app was developed for i
 
 You can download the app on [Android](https://play.google.com/store/apps/details?id=com.jsdev.instasize&gl=US) and [iPhone.](https://apps.apple.com/us/app/instasize-photo-editor-video/id576649830)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Adobe Photoshop Lightroom**
 
 Another photo editing app you can find useful is Adobe Photoshop Lightroom. The app makes dozens of photo enhancement and editing products.
@@ -460,19 +453,6 @@ The app is available for [Android](https://play.google.com/store/apps/details?id
 
 Mac and windows have free image editing programs that allow you to copy an image from its source, paste it into the editor, crop it, resize it, and then save it. First, let's look at how to **edit a photo on a Mac.**
 
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Use the inbuilt photo on Mac to edit the photo
 
 Drag and drop your image onto the app window after launching the built-in Images app from your dock or **Finder > Applications** to begin editing photos on your Mac.
@@ -496,13 +476,6 @@ You can make your photos sharper by simply navigating to the bottom of the Modif
 When retouching your image in the Photos app, select the Adjust tab, then drag the thumb along the Lights slider to make the necessary adjustments.
 
 ![adjust lighting and exposure](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Use inbuilt photo app on mac to add date stamps
 
@@ -538,6 +511,13 @@ Step2At the top of your screen, click on Edit & Create to get.
 
 Step3After clicking Edit, choose any option (Crop & rotate, Filters, or Adjustments)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Add date stamps using Windows PC
 
 Step1Launching the Photos app will **add a date to a photo** when using a windows PC.
@@ -558,6 +538,13 @@ Step5Enter the date you want.
 
 ![enter date](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-16.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step6Select Menu in the upper-left corner.
 
 ![select menu](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-17.jpg)
@@ -565,6 +552,13 @@ Step6Select Menu in the upper-left corner.
 Step7Proceed to click on the Save option.
 
 ![click on save option](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-18.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4\. Edit Photos Online to add date stamps
 
@@ -588,19 +582,19 @@ Canva is a standout online photo editor where you can edit your and **add date t
 
 ![ftor](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-20.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Key Features**
 
 * Portrait Retouching
 * Background Remover
 * Wrinkle Remover
 * Blemish Remover
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. [PIXLR](https://pixlr.com/)
 
@@ -646,22 +640,18 @@ Hopefully, these steps will be helpful if you ever want to **add a date** or **e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-20-greatest-sandbox-experiences-ever-made-for-2024/"><u>[New] 20 Greatest Sandbox Experiences Ever Made for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-end-to-end-camera-rotation-explained-for-2024/"><u>[New] End-to-End Camera Rotation Explained for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-reducing-loudness-gradually-techniques-for-logic-pro-users/"><u>[New] Reducing Loudness Gradually Techniques for Logic Pro Users</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-the-duel-of-durability-hero-5-black-versus-keymission-for-2024/"><u>[New] The Duel of Durability HERO 5 Black Versus Keymission for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-phone-lens-magic-creating-high-horizons/"><u>[Updated] Phone Lens Magic Creating High Horizons</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-prime-picks-7-superior-apple-video-viewers-for-2024/"><u>[Updated] Prime Picks 7 Superior Apple Video Viewers for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-the-ultimate-mac-dvd-authorization-handbook-for-2024/"><u>[Updated] The Ultimate Mac DVD Authorization Handbook for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/accelerating-attention-how-to-alter-video-speed-on-stories/"><u>Accelerating Attention How to Alter Video Speed on Stories</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/clearing-up-storage-almost-full-error-for-iphones-running-ios-17-or-18/"><u>Clearing Up 'Storage Almost Full' Error for iPhones Running iOS 17 or 18</u></a></li>
-<li><a href="https://article-posts.techidaily.com/embrace-metaverse-laughter-your-pathway-to-memetic-fame/"><u>Embrace Metaverse Laughter - Your Pathway to Memetic Fame</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-comprehensive-overview-utilizing-googles-automatic-transcription-service/"><u>In 2024, Comprehensive Overview Utilizing Google's Automatic Transcription Service</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/master-control-over-instagrams-post-proposals/"><u>Master Control Over Instagram's Post Proposals</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/mastering-the-art-of-reading-ebooks-a-guide-to-accessing-and-displaying-web-pages-on-your-kindle/"><u>Mastering the Art of Reading eBooks: A Guide to Accessing and Displaying Web Pages on Your Kindle</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolved-steps-to-repair-connection-issues-in-microsoft-outlook/"><u>Resolved: Steps to Repair Connection Issues in Microsoft Outlook</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-finest-picks-top-8-web-sites-with-rich-3d-and-gold-lined-texts/"><u>The Finest Picks Top 8 Web Sites with Rich 3D & Gold-Lined Texts</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/understanding-chatgpt-and-the-potential-of-using-advanced-generative-ai-tech/"><u>Understanding ChatGPT & The Potential of Using Advanced Generative AI Tech</u></a></li>
-<li><a href="https://article-posts.techidaily.com/winning-over-viewers-a-comprehensive-guide-to-growing-followers-for-2024/"><u>Winning Over Viewers A Comprehensive Guide to Growing Followers for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-expertise-in-windows-media-player-for-streamlined-audio-conversion/"><u>[New] In 2024, Expertise in Windows Media Player for Streamlined Audio Conversion</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-how-to-block-youtube-channels-on-computer-and-mobile-phones/"><u>[New] In 2024, How to Block Youtube Channels on Computer and Mobile Phones</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-virtual-realms-explored-the-best-sci-fi-movies-for-immersion-enthusiasts/"><u>[New] Virtual Realms Explored The Best Sci-Fi Movies for Immersion Enthusiasts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-vanguard-devices-frontline-computing-titans/"><u>[Updated] 2024 Approved Vanguard Devices Frontline Computing Titans</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-disseminating-your-work-sharing-igtv-on-facebook-for-2024/"><u>[Updated] Disseminating Your Work Sharing IGTV on Facebook for 2024</u></a></li>
+<li><a href="https://win-lab.techidaily.com/1728509554871-windows-pc/"><u>簡便儘速解決：Windows PC上免費文件恢復工具兩款選項</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oppo-reno-11-pro-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Oppo Reno 11 Pro 5G to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-samsung-galaxy-m34-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Samsung Galaxy M34 5G to New Phone | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-the-art-of-editing-reimagined-by-vidas-innovations/"><u>In 2024, The Art of Editing Reimagined by Vida's Innovations</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-unlocking-srt-secrets-comprehensive-knowledge-guide/"><u>In 2024, Unlocking SRT Secrets Comprehensive Knowledge Guide</u></a></li>
+<li><a href="https://games-able.techidaily.com/maximize-graphics-select-top-144hz-wide-displays/"><u>Maximize Graphics: Select Top 144Hz Wide Displays</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/maximizing-fb-instream-ad-impact-configuration-techniques-and-metrics/"><u>Maximizing FB Instream Ad Impact Configuration Techniques and Metrics</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/what-is-concealed-content-defining-it-for-better-seo-performance-with-practical-insights/"><u>What Is Concealed Content? Defining It for Better SEO Performance with Practical Insights</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Voiceover Guide for Engaging Videography"
-date: 2024-09-08T02:20:29.395Z
-updated: 2024-09-14T20:15:36.466Z
+date: 2024-10-19T19:54:58.652Z
+updated: 2024-10-24T16:54:36.268Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,13 @@ You put the playhead where you want to start recording and hit the microphone ic
 
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 A 3-second countdown will pop up and start recording immediately after this countdown.
 
 You can record your narration and click stop.
@@ -72,6 +79,13 @@ You can edit pauses or weak parts out of the voiceover to trim it up. But if it 
 
 Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes equipped with video b-roll which is another great option. When using b-roll, it's better to use multiple shorter clips than one longer clip in most cases. But adding the same b-roll clip near the beginning and another section of the same b-roll clip, later on, should help you match the length of your narration to the video timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Narration is a great storytelling device
 
 Narration is a fantastic tool to have in your arsenal as a young filmmaker. It allows you to quickly communicate feelings, backstory, and context quickly and effectively.
@@ -80,13 +94,6 @@ Practice adding it to your videos to see how it adds depth and dimension to your
 
 It can also help make a connection with your audience because you can be relating to the images on the screen as they watch them. This is effective in building your YouTube audience.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Always use a good mic
 
 When adding voiceover or narration to your project, be sure to use a good USB microphone. A good quality sound will elevate your entire project and just requires a little planning.
@@ -94,13 +101,20 @@ When adding voiceover or narration to your project, be sure to use a good USB mi
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Should you use narration in your next project?
 
@@ -138,5 +152,22 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-help.techidaily.com/new-how-to-recover-hidden-shorts-thumbnails-in-videos/"><u>[New] How to Recover Hidden Shorts' Thumbnails in Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-secrets-to-crafting-enthralling-edu-videos-for-the-digital-age/"><u>[New] In 2024, Secrets to Crafting Enthralling Edu-Videos for the Digital Age</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-skys-limit-broken-by-djis-pro-drone-review-for-2024/"><u>[New] The Sky's Limit Broken by DJI’s Pro Drone Review for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unlocking-the-upside-exploring-asmrs-advantages/"><u>[New] Unlocking the Upside Exploring ASMR's Advantages</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-inside-the-scoring-of-toolwizs-photography-software/"><u>[Updated] 2024 Approved Inside the Scoring of Toolwiz's Photography Software</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-smoothly-lowering-sound-levels-using-garageband/"><u>[Updated] 2024 Approved Smoothly Lowering Sound Levels Using Garageband</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-inside-the-studio-magix-vpx-leading-media-production/"><u>[Updated] In 2024, Inside the Studio Magix VPX Leading Media Production</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-oculus-top-grossing-virtual-reality-titles-list/"><u>[Updated] Oculus Top Grossing Virtual Reality Titles List</u></a></li>
+<li><a href="https://win11.techidaily.com/accessing-the-character-visualization-tool/"><u>Accessing the Character Visualization Tool</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/comparing-the-creme-de-la-creme-gopro-hero5-black-to-hero4-silver/"><u>Comparing the Crème De La Crème GoPro Hero5 Black to Hero4 Silver</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/double-location-dongle-all-to-know-about-apple-iphone-14-pro-maxipad-gps-spoofing-drfone-by-drfone-virtual-ios/"><u>Double Location Dongle All to Know About Apple iPhone 14 Pro Max/iPad GPS Spoofing | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-install-latest-razer-device-drivers-on-windows-1087xpvista/"><u>How to Install Latest Razer Device Drivers on Windows 10/8/7/XP/Vista</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-vivo-s17t-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Vivo S17t | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/motorola-moto-g-5g-2023-video-recovery-recover-deleted-videos-from-motorola-moto-g-5g-2023-by-fonelab-android-recover-video/"><u>Motorola Moto G 5G (2023) Video Recovery - Recover Deleted Videos from Motorola Moto G 5G (2023)</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/ultimate-tutorial-enjoying-cinema-quality-4k-movies-with-ease-using-apple-tv-part-four/"><u>Ultimate Tutorial: Enjoying Cinema-Quality 4K Movies with Ease Using Apple TV (Part Four)</u></a></li>
+</ul></div>
 

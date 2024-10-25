@@ -1,7 +1,7 @@
 ---
 title: "[New] The Essential Guide to Speedy Windows Inspecting for 2024"
-date: 2024-09-08T12:14:49.426Z
-updated: 2024-09-14T21:13:39.068Z
+date: 2024-10-18T17:48:02.706Z
+updated: 2024-10-24T18:22:14.283Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,13 @@ Step1 Visit the [QuickLook GitHub](https://github.com/QL-Win/QuickLook) page and
 
 ![click the latest quicklook for windows version](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Scroll down and download the .msi file. After downloading the installation file successfully, install it on your computer.
 
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
@@ -58,9 +65,23 @@ Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://g
 
 ![install quicklook for windows plugins](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 After a successful installation, find the file you want to preview and select it. Then, tap the space bar to preview the files. And remember, browse ZIP files to view all content.
 
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
 
@@ -71,10 +92,10 @@ Meanwhile, it’s expected that QuickLook will come with a small preview screen.
 In other related news, Microsoft will be answering the prayers of their loyal patrons to get tabbed browsing. This is another feature similar to what you currently have on macOS, where you can open new tabs for numerous file locations. In return, this makes moving and copying files more straightforward. This easy-to-navigate addition will definitely make Microsoft Windows users more productive than before.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Frequently Asked Questions
@@ -90,13 +111,6 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 #### 3\. Can QuickLook for Mac edit files?
 
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -130,5 +144,24 @@ This guidepost is another testament that your PC has massive hidden abilities. W
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-control-youtube-audio-mobiledesktop-approach/"><u>[New] 2024 Approved Control YouTube Audio Mobile/Desktop Approach</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-stay-ahead-of-the-curve-with-these-10-must-use-tags/"><u>[New] 2024 Approved Stay Ahead of the Curve with These 10 Must-Use Tags</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-quick-diy-cinematic-techniques-every-hobbyist-should-know-for-2024/"><u>[New] Quick DIY Cinematic Techniques Every Hobbyist Should Know for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/10-free-passport-photo-maker-for-desktop-and-online/"><u>10 Free Passport Photo Maker for Desktop and Online</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-conquering-challenges-expert-gopro-tips/"><u>2024 Approved Conquering Challenges Expert GoPro Tips</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-holistic-locomotion-examination-2023/"><u>2024 Approved Holistic Locomotion Examination 2023</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-innovative-shooting-modes-smart-hdr-3-and-4-explained-simply/"><u>2024 Approved Innovative Shooting Modes Smart HDR 3 & 4 Explained Simply</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-select-selections-ideal-pages-for-acquiring-snapalert-tunes/"><u>2024 Approved Select Selections Ideal Pages for Acquiring SnapAlert Tunes</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-simple-approach-to-getting-clownfish-voice-changer-on-windows/"><u>2024 Approved Simple Approach to Getting Clownfish Voice Changer on Windows</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-snap-to-success-top-pixlr-editing-methods-unveiled/"><u>2024 Approved Snap to Success Top Pixlr Editing Methods Unveiled</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-the-comprehensible-method-for-ifunny-meme-downloads/"><u>2024 Approved The Comprehensible Method for iFunny Meme Downloads</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/adobe-photostability-effective-or-fanciful-for-2024/"><u>Adobe PhotoStability Effective or Fanciful for 2024</u></a></li>
+<li><a href="https://win-updates.techidaily.com/comprehensive-guide-to-cloning-sd-cards-with-win32-disk-imager-step-by-step-tutorial-and-other-methods/"><u>Comprehensive Guide to Cloning SD Cards with Win32 Disk Imager - Step by Step Tutorial and Other Methods</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-newest-hp-4650dn-software-for-your-printer-with-quick-download-and-install/"><u>Get the Newest HP 4650Dn Software for Your Printer with Quick Download & Install</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-vivo-x-flip-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Vivo X Flip Phone? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exploring-the-top-6-helmet-mounts-to-upgrade-your-adventure-photography/"><u>In 2024, Exploring The Top 6 Helmet Mounts to Upgrade Your Adventure Photography</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-realme-c67-4g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Realme C67 4G Device Top 5 Picks to Remove Android Locks</u></a></li>
+</ul></div>
 

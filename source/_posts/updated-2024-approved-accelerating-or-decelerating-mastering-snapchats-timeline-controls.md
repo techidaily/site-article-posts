@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Accelerating or Decelerating  Mastering Snapchat's Timeline Controls\""
-date: 2024-09-14T01:46:59.716Z
-updated: 2024-09-15T05:29:30.113Z
+date: 2024-10-17T21:40:17.176Z
+updated: 2024-10-24T16:13:40.068Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,13 @@ Step4 See the preview of the video you clicked at a higher speed. If satisfied, 
 
 Snapchat users can use the speed-up videos feature available. But that is not where it ends with Snapchat regarding speed-based changes. The following are some notable functions available on Snapchat related to speed adjustment.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Reverse video
 
 You can use the Reverse video speed option, represented with 3 left-pointing arrows. In the Speed Modifier filters, you can click the rewind icon, which comes with a curved arrow in the bottom direction. The speed of the video here is regular, but the content plays in Reverse.
@@ -62,6 +69,13 @@ Step2 Hold your finger down on the Record button to record your video. Then, rel
 
 ![hold your finger down on the record button](https://images.wondershare.com/filmora/article-images/2023/01/beginners-guide-to-changing-speed-up-in-videos-on-snapchat-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 On the screen, swipe left. Multiple visual filter options will appear. Keep swiping on them until you see the fifth filter (granted, you have 4 visual filters). The motion filters will appear next.
 
 Step4 Swipe until you reach the icon with three reverse arrows. You typically have to swipe 7 times in total to reach this option. The video will play in Reverse in the preview.
@@ -71,10 +85,10 @@ Step4 Swipe until you reach the icon with three reverse arrows. You typically ha
 Step5 Click the Next button to share or save offline.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Snail
@@ -131,13 +145,6 @@ Or, you can click on the Speed icon from the top toolbar and select Speed Rampin
 
 ![select speed ramping](https://images.wondershare.com/filmora/article-images/2023/01/beginners-guide-to-changing-speed-up-in-videos-on-snapchat-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 On the panel for Speed Ramping, click on the Customize icon if you want to set your personalized keyframe-based speed ramp. Or, choose the preset options like Hero Moment, Montage, Bullet time, Flash In, Jumper, and Flash Out.
 
 ![click on the customize icon](https://images.wondershare.com/filmora/article-images/2023/01/beginners-guide-to-changing-speed-up-in-videos-on-snapchat-7.jpg)
@@ -147,10 +154,10 @@ Step5 Next, on the editor timeline, place your playhead at the point where you w
 ![place the playhead](https://images.wondershare.com/filmora/article-images/2023/01/beginners-guide-to-changing-speed-up-in-videos-on-snapchat-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can further drag the keyframe dot downward or upward to decide the point speed or adjust the keyframe speed. Also, adjust the audio pitch as per the changes.
@@ -158,13 +165,6 @@ You can further drag the keyframe dot downward or upward to decide the point spe
 Step6 Click OK if you are done or Reset to change the speed ramping setup again. Do further editing on the Filmora platform as needed, and press Export to download or share the video project later.
 
 Watch this video for a more detailed understanding of **how to speed up a snap video** and edit it using Filmora
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -186,6 +186,13 @@ Or, you can click on the Speed icon from the top toolbar and select Speed Rampin
 
 ![select speed ramping](https://images.wondershare.com/filmora/article-images/2023/01/beginners-guide-to-changing-speed-up-in-videos-on-snapchat-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 On the panel for Speed Ramping, click on the Customize icon if you want to set your personalized keyframe-based speed ramp. Or, choose the preset options like Hero Moment, Montage, Bullet time, Flash In, Jumper, and Flash Out.
 
 ![click on the customize icon](https://images.wondershare.com/filmora/article-images/2023/01/beginners-guide-to-changing-speed-up-in-videos-on-snapchat-7.jpg)
@@ -199,6 +206,13 @@ You can further drag the keyframe dot downward or upward to decide the point spe
 Step6 Click OK if you are done or Reset to change the speed ramping setup again. Do further editing on the Filmora platform as needed, and press Export to download or share the video project later.
 
 Watch this video for a more detailed understanding of **how to speed up a snap video** and edit it using Filmora
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -230,5 +244,24 @@ Image/Steps URL for Filmora- <https://filmora.wondershare.com/guide/speed-rampin
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-spotlight-on-youtubes-creme-de-la-creme-of-narratives/"><u>[Updated] In 2024, Spotlight on YouTube’s Crème De La Crème of Narratives</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-advanced-video-editing-free-high-quality-pp-templates/"><u>2024 Approved Advanced Video Editing FREE High-Quality PP Templates</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-ideal-steadicams-for-superior-quality-shoots-with-dslr-cameras/"><u>2024 Approved Ideal Steadicams for Superior Quality Shoots with DSLR Cameras</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-journey-into-cinematic-precision-with-windows-high-dynamic-range-support/"><u>2024 Approved Journey Into Cinematic Precision with Windows High-Dynamic Range Support</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-lifetime-visual-vaults-blend-cost-free-sky-spaces-and-paid-premium-alternatives/"><u>2024 Approved Lifetime Visual Vaults Blend Cost-Free Sky Spaces & Paid Premium Alternatives</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-melody-in-motion-iphones-role-in-making-music-videos/"><u>2024 Approved Melody in Motion IPhone's Role in Making Music Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-photographic-experience-with-aurora-hdr-software/"><u>2024 Approved Photographic Experience with Aurora HDR Software</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-prime-streamers-selection-the-best-websites/"><u>2024 Approved Prime Streamers' Selection The Best Websites</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-starlight-and-storms-in-high-fidelity-hdr-sky-websites/"><u>2024 Approved Starlight and Storms in High Fidelity HDR Sky Websites</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-unpacking-the-essence-of-digital-tales/"><u>2024 Approved Unpacking the Essence of Digital Tales</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-yi-cameras-edge-in-cinematic-quality-4k-capture/"><u>2024 Approved Yi Camera's Edge in Cinematic Quality 4K Capture</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-vivo-s17-pro-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Vivo S17 Pro? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-cutting-edge-film-making-start-here/"><u>In 2024, Cutting-Edge Film Making, Start Here</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-the-hd-chronicles-of-twitters-visual-content/"><u>In 2024, The HD Chronicles of Twitter's Visual Content</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/lenovo-thinkpad-t420-freshest-driver-downloads-and-updates-for-windows-simple-steps-inside/"><u>Lenovo ThinkPad T420: Freshest Driver Downloads and Updates for Windows - Simple Steps Inside</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/premium-internet-voice-pads/"><u>Premium Internet Voice Pads</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/was-ist-eine-heic-bilddatei-und-wie-konvertieren-sie-sie-in-ein-kompatibleres-format/"><u>Was Ist Eine HEIC-Bilddatei Und Wie Konvertieren Sie Sie in Ein Kompatibleres Format?</u></a></li>
+</ul></div>
 

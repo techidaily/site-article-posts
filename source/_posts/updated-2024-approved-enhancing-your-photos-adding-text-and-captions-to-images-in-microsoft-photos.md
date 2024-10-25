@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Enhancing Your Photos  Adding Text and Captions to Images in Microsoft Photos\""
-date: 2024-09-13T23:29:04.779Z
-updated: 2024-09-15T11:43:18.422Z
+date: 2024-10-20T22:17:56.511Z
+updated: 2024-10-24T22:55:21.449Z
 tags: 
   - screen-recording
   - ai video
@@ -62,11 +62,25 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
 
@@ -74,11 +88,25 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -103,12 +131,18 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-minuscule-cinematic-design/"><u>[New] In 2024, Minuscule Cinematic Design</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-tailor-your-media-auto-scaling-videos-for-instagram-via-macos/"><u>[Updated] 2024 Approved Tailor Your Media Auto-Scaling Videos for Instagram via MacOS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-gaining-ground-on-competitors-with-your-instagram-videos/"><u>[Updated] Gaining Ground on Competitors with Your Instagram Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-behind-the-screen-scouting-the-hunt-for-pristine-paidless-tiktok-bgs/"><u>2024 Approved Behind-the-Screen Scouting The Hunt for Pristine, Paidless TikTok BGs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-effortless-srt-to-txt-conversion-in-under-minutes/"><u>2024 Approved Effortless SRT to TXT Conversion in Under Minutes</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-igniting-interest-from-day-one-with-impactful-audio-starts/"><u>2024 Approved Igniting Interest From Day One with Impactful Audio Starts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-prospective-videography-gear-ideal-for-future-4k-concert-videos/"><u>2024 Approved Prospective Videography Gear Ideal for Future 4K Concert Videos</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-oppo-a78-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-lava-yuva-2-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Lava Yuva 2 Devices</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-instructions-repairing-the-msstfmtdll-file-cannot-be-opened-problem/"><u>Step-by-Step Instructions: Repairing the 'msstfmt.dll File Cannot Be Opened' Problem</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-guide-to-downloading-and-converting-dvd-films-on-your-windows-10-system/"><u>The Ultimate Guide to Downloading & Converting DVD Films on Your Windows 10 System</u></a></li>
+</ul></div>
 

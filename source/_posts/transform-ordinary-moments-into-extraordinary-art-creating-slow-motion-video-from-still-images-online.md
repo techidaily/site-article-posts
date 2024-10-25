@@ -1,7 +1,7 @@
 ---
 title: "\"Transform Ordinary Moments Into Extraordinary Art  Creating Slow Motion Video From Still Images Online\""
-date: 2024-09-09T00:40:29.535Z
-updated: 2024-09-15T08:11:45.881Z
+date: 2024-10-18T17:10:44.843Z
+updated: 2024-10-24T20:52:37.542Z
 tags: 
   - screen-recording
   - ai video
@@ -42,6 +42,13 @@ Navigate to the folder where your video file is located and right click on it. Y
 
 If you do not see the option anywhere on your Photos app, there is a chance you are running an outdated version of Windows 10 on your computer. All you need to do is navigate to Windows Update through your system menu. When all the updates install, you will have the latest Photos app with this feature.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2：Customizing the Slow Motion Effect
 
 When you are using the Photos app to add a slow motion effect to your videos, you can tweak it to your liking. You will be able to select the speed using a slider, which lets you get the precise slow motion effect that you desire.
@@ -52,6 +59,19 @@ Now you can select the beginning and end point using the bottom slider on the Ph
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/make-slow-motion-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 We recommend that you save your video file under a new name when you are done making your desired changes. It ensures that you still have the original copy of the video saved on your computer or external hard drive.
 
 You can even create multiple versions of the file with the slow motion effect applied in different ways. Then you can watch the videos you just created to decide on the best version.
@@ -61,13 +81,6 @@ You can even create multiple versions of the file with the slow motion effect ap
 ## Part 3: How to Edit in Slow Motion Online
 
 If you are not able to access a Windows computer, you may want a solution that can be used online. The good news is that you can use some [online video speed changers](https://tools.techidaily.com/wondershare/filmora/download/)to add a slow motion effect to your content.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### [EZGif](https://ezgif.com/video-speed)
 
@@ -81,24 +94,31 @@ Click on the “upload video” button so that it can be added into the database
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/ezgif-change-videos-speed-import.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Output**
 
 The program will let you adjust the video speed to your liking. Then you will get a URL for the output video, which will have been slowed down according to your settings. There is even an option to keep the audio track at the same speed, but you can slow down the audio at the same rate as the video if you want.
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/change-video-speed-ezgif-edit.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Now that you have understood how to add the effect of slow motion in Windows 10 Photos, you will be able to tweak your videos even more. The Photos application has many other features that you may want to check out, which will help you edit images and videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -123,5 +143,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-revealing-the-best-screen-grabbers-for-web-use/"><u>[New] 2024 Approved Revealing the Best Screen Grabbers for Web Use</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-step-by-step-strategies-for-posting-and-uploading-gifs-on-instagram/"><u>[New] 2024 Approved Step-by-Step Strategies for Posting & Uploading GIFs on Instagram</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-5-quick-hacks-to-sharpen-your-indie-filmmaking-skills/"><u>2024 Approved 5 Quick Hacks to Sharpen Your Indie Filmmaking Skills</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-cinematic-brilliance-through-masterful-application-of-luts-from-cg-central/"><u>2024 Approved Cinematic Brilliance Through Masterful Application of Luts From CG Central</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-embracing-total-environmental-immersion-in-film/"><u>2024 Approved Embracing Total Environmental Immersion in Film</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-grasping-basics-your-guide-to-av1-encoding/"><u>2024 Approved Grasping Basics Your Guide to AV1 Encoding</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-hook-listeners-first-introductory-podcast-lines/"><u>2024 Approved Hook Listeners First Introductory Podcast Lines</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-macsierras-top-picks-for-dvd-creation-software/"><u>2024 Approved MacSierra’s Top Picks for Dvd Creation Software</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-mastering-video-production-a-compreey-guide-to-powerdirector/"><u>2024 Approved Mastering Video Production A Compreey Guide to PowerDirector</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-reason-behind-photo-booth-video-stalls/"><u>2024 Approved Reason Behind Photo Booth Video Stalls</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/diagnosing-and-solving-device-manager-error-code-41-a-comprehensive-guide/"><u>Diagnosing and Solving Device Manager Error Code 41 – A Comprehensive Guide</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-realtek-ethernet-controller-driver-on-windows-710/"><u>Download Realtek Ethernet Controller Driver on Windows 7/10</u></a></li>
+<li><a href="https://driver-download.techidaily.com/improve-network-stability-with-windows-1110-a-guide-to-fresh-wireless-software-installation/"><u>Improve Network Stability with Windows 11/10 - A Guide to Fresh Wireless Software Installation</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-samsung-galaxy-s23plus-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Samsung Galaxy S23+ Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://games-able.techidaily.com/innovative-airflow-patterns-to-minimize-heat-waste/"><u>Innovative Airflow Patterns to Minimize Heat Waste</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/by-step-guide-to-adding-your-own-video-images/"><u>Step-by-Step Guide to Adding Your Own Video Images</u></a></li>
+<li><a href="https://win11.techidaily.com/transform-your-classic-gaming-journey-add-trophy-features-through-retroarch/"><u>Transform Your Classic Gaming Journey - Add Trophy Features Through Retroarch</u></a></li>
+</ul></div>
 
