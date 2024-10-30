@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Timelessly Taken  Selfies From the Bygone Era\""
-date: 2024-10-20T23:34:37.444Z
-updated: 2024-10-24T16:39:28.608Z
+date: 2024-10-29T18:18:32.474Z
+updated: 2024-10-30T17:57:06.977Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,13 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 * [Part 1: For iPhone 7 Plus/8 Plus/X users](#part1)
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### For iPhone 7 Plus/8 Plus/X users
 
  **Using the Portrait Mode on an iPhone**
@@ -60,25 +67,11 @@ The iPhone X can also take Portrait selfies thanks to the TrueDepth front camera
 
 ![portrait-mode-selfie-iphone-x](https://images.wondershare.com/filmora/article-images/portrait-mode-selfie-iphone-x.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Image resource: imore
 
 Launch the Camera app, and swipe to the Portrait option, and then tap on the Camera Swap feature to start using the front camera on your iPhone. Find the Portrait Lightning feature in the camera's Portrait mode, then select one of the options provided by the Portrait Lightning such as Studio Light or Natural light, and proceed to snap a selfie by tapping on the shutter button.
 
 If there is not enough light or if you are too far away from the camera, the app will show messages that remind you to add more light to your shot or hold the camera closer to the subject of the photo. It is worth noting that the app will not let you take a photo until you do everything that messages on the screen demand from you. However, the Portrait Mode doesn't allow you to take several photos at once, but it still produces amazing pictures that can be easily shared on social media.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### For iPhone 8, 7 or older iPhones users
 
@@ -89,6 +82,13 @@ If there is not enough light or if you are too far away from the camera, the app
 **Compatible with:** iOS 8.0 or later
 
 ![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Older iPhone models may not have a twin-lens system, but with the aid of a camera app such as FabFocus, iPhone photographers can easily take photos with smooth blurry backgrounds. The Automatic Depth of Field and Bokeh options enable you to add as much blur as you want to your photos and create DSLR-like images. The app also contains basic photo editing tools that can be used to touch-up the photo before you share it with your friends.
 
@@ -110,6 +110,13 @@ Advertised as the best depth-of-field app for iPhones on the market today, Tadaa
 
 ![signature-photo-annotator](https://images.wondershare.com/filmora/article-images/signature-photo-annotator.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The term Bokeh comes from the Japanese language and it represents the aesthetic quality of the out of focus parts of photos. The Bokeh Lens app is designed to make the process of creating a shallow depth of field as fast and fun as it can be. The app lets you fine-tune the level of bokeh you are creating a photo, while it also allows you to select the areas you want to keep in focus.
 
 #### [Defocus](https://itunes.apple.com/us/app/defocus/id1048310180?mt=8)
@@ -121,22 +128,21 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -163,24 +169,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-top-7-android-adblockers-seamless-browsing-experience/"><u>[New] 2024 Approved Top 7 Android AdBlockers Seamless Browsing Experience</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-5-must-know-techniques-for-cutting-through-reddit-noise-and-gaining-traction/"><u>[New] 5 Must-Know Techniques for Cutting Through Reddit Noise and Gaining Traction</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-5-tools-for-cutting-edge-video-title-and-tag-generation/"><u>[New] 5 Tools for Cutting Edge Video Title & Tag Generation</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-how-to-screen-record-on-dell-laptop-for-2024/"><u>[New] How to Screen Record on Dell Laptop for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-film-quality-faceoff-hero-black-and-keymission-camera/"><u>[New] In 2024, Film Quality Faceoff HERO Black and Keymission Camera</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-iphone-tips-for-perfecting-motion-shot-photography/"><u>[New] IPhone Tips for Perfecting Motion Shot Photography</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-embracing-room-light-outdoor-integration-tips/"><u>[Updated] 2024 Approved Embracing Room Light Outdoor Integration Tips</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-engaging-audiences-with-strategic-onestream-broadcasts/"><u>[Updated] 2024 Approved Engaging Audiences with Strategic OneStream Broadcasts</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-crafting-engaging-visual-storytelling-with-b-roll/"><u>[Updated] In 2024, Crafting Engaging Visual Storytelling with B-Roll</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-eliminating-blur-taming-shutter-vibration/"><u>[Updated] In 2024, Eliminating Blur Taming Shutter Vibration</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-side-by-side-progopro-analysis/"><u>[Updated] In 2024, Side by Side ProGoPro Analysis</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-mastering-the-craft-of-online-title-perfection/"><u>[Updated] Mastering the Craft of Online Title Perfection</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/from-s23-to-s24-analyzing-the-upgrades-in-samsungs-latest-ultra-series-phones/"><u>From S23 to S24: Analyzing the Upgrades in Samsung's Latest Ultra Series Phones!</u></a></li>
-<li><a href="https://program-issues.techidaily.com/guide-on-correcting-the-issue-of-a-nonfunctional-camera-in-google-meet/"><u>Guide on Correcting the Issue of a Nonfunctional Camera in Google Meet</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-from-idea-to-implementation-guiding-vendors-in-youtube-sponsorships/"><u>In 2024, From Idea to Implementation Guiding Vendors in Youtube Sponsorships</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/introducing-windows-xps-media-production-hub/"><u>Introducing Windows XP's Media Production Hub</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-top-rated-video-editing-solutions-for-creators/"><u>New 2024 Approved Top-Rated Video Editing Solutions for Creators</u></a></li>
-<li><a href="https://article-posts.techidaily.com/pioneering-visual-clarity-best-blu-ray-machines/"><u>Pioneering Visual Clarity Best Blu-Ray Machines</u></a></li>
-<li><a href="https://blog-min.techidaily.com/ultimate-guide-enlarge-videos-without-compromising-clarity-and-avoid-watermarks-the-top-10-strategies/"><u>Ultimate Guide: Enlarge Videos Without Compromising Clarity & Avoid Watermarks – The Top 10 Strategies</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-achieving-subtle-volume-diminishment-in-logic-pro/"><u>[New] 2024 Approved Achieving Subtle Volume Diminishment in Logic Pro</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-metaverse-mastery-rapidly-assemble-your-digital-self/"><u>[New] In 2024, Metaverse Mastery Rapidly Assemble Your Digital Self</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-entry-level-landing-low-cost-profitable-youtube-platforms/"><u>[Updated] 2024 Approved Entry Level Landing Low-Cost, Profitable YouTube Platforms</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-smooth-transitions-the-ultimate-guide-for-audio-editors/"><u>[Updated] 2024 Approved Smooth Transitions The Ultimate Guide for Audio Editors</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-craft-perfection-transforming-your-vhs-graphics-online/"><u>[Updated] Craft Perfection Transforming Your VHS Graphics Online</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-figure-skatings-top-talent-review-of-22-moments/"><u>[Updated] In 2024, Figure Skating's Top Talent Review of '22 Moments</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/android-mobas-a-decade-of-favorite-titles-top-10-for-2024/"><u>Android MOBAs A Decade of Favorite Titles - Top 10 for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/can-chatgpt-control-your-smart-home/"><u>Can ChatGPT Control Your Smart Home?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-amd-vega-graphics-card-driver-downloads-and-updates-enhancing-your-gaming-experience/"><u>Easy AMD Vega Graphics Card Driver Downloads & Updates: Enhancing Your Gaming Experience!</u></a></li>
+<li><a href="https://article-posts.techidaily.com/exclusive-high-end-computer-choices/"><u>Exclusive High-End Computer Choices</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-maximizing-video-quality-in-zoom-conferences-on-win11/"><u>In 2024, Maximizing Video Quality in Zoom Conferences on Win11</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/no-cost-video-conversion-for-professionals-upload-mxf-download-mpgmp4-movavis-secure-cloud-service/"><u>No Cost Video Conversion for Professionals: Upload MXF, Download MPG/MP4 - Movavi's Secure Cloud Service</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/nulaxy-km18-bluetooth-fm-transmitter-in-cars-trustworthy-legacy-device-evaluation-and-insights/"><u>Nulaxy KM18 Bluetooth FM Transmitter in Cars - Trustworthy Legacy Device Evaluation and Insights</u></a></li>
+<li><a href="https://win-able.techidaily.com/tactical-insights-for-cod-warzone-players-in-the-new-pacific-map/"><u>Tactical Insights for COD: Warzone Players in the New Pacific Map</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/upcoming-changes-and-free-expansions-of-rainbow-six-siege-in-the-new-year/"><u>Upcoming Changes and Free Expansions of Rainbow Six Siege in the New Year</u></a></li>
 </ul></div>
 

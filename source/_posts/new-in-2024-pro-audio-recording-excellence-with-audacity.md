@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Pro Audio Recording Excellence with Audacity"
-date: 2024-10-20T17:38:56.141Z
-updated: 2024-10-24T22:52:52.427Z
+date: 2024-10-24T16:25:22.553Z
+updated: 2024-10-30T16:24:04.628Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,10 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Recording using Mac
@@ -61,10 +61,16 @@ Step3In the "Device" section of the Audacity preferences box, choose "Soundflowe
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Export your audio
@@ -115,22 +121,19 @@ Simply select the necessary file format from the drop-down box that appears next
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-coffee-stain-solution-on-iphone-fast-free-and-effective/"><u>[New] 2024 Approved Coffee Stain Solution on iPhone - Fast, Free, and Effective</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-cinematic-craftsman-corner-qanda-hub-for-2024/"><u>[New] Cinematic Craftsman Corner Q&A Hub for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-disabling-or-enabling-pip-mode-youtube-on-iphone-guide/"><u>[New] Disabling or Enabling PIP Mode YouTube on iPhone Guide</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-dynamic-film-transformation-premium-15-color-correction-tools-for-gopro/"><u>[New] Dynamic Film Transformation Premium 15 Color Correction Tools for GOPRO</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-enlightened-efforts-applewatch-unlocks-macgizmo-for-2024/"><u>[New] Enlightened Efforts AppleWatch Unlocks MacGizmo for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-steps-to-activate-windows-11-hdr-automatically/"><u>[New] Steps to Activate Windows 11 HDR Automatically</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-the-non-negotiables-of-beginning-a-youtube-channel/"><u>[New] The Non-Negotiables of Beginning a YouTube Channel</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-high-definition-at-its-peak-top-10-4k-screens/"><u>[Updated] 2024 Approved High Definition at Its Peak #Top 10 4K Screens</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-crafting-a-tiktok-twosome-film/"><u>[Updated] Crafting a TikTok Twosome Film</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1726222699446-vob-flv-movavi/"><u>免費在線 VOB 到 FLV 轉換工具 - 以 Movavi 為基礎的高效解決方案</u></a></li>
-<li><a href="https://article-posts.techidaily.com/dji-drones-collection-entry-grade-premium-pro-elite-4k-flight/"><u>DJI Drones Collection Entry Grade, Premium Pro, Elite 4K Flight</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/farm-management-mastery-for-stardews-ginger-isles-for-2024/"><u>Farm Management Mastery for Stardew's Ginger Isles for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/how-to-autoplay-youtube-videos-on-facebook-in-2024/"><u>How to Autoplay Youtube Videos on Facebook, In 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-bring-your-imaginations-to-life-time-lapse-photography-with-gopro-studio/"><u>In 2024, Bring Your Imaginations to Life Time-Lapse Photography with GoPro Studio</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-the-ultimate-adobe-premiere-plugin-collection-top-15-tools-free-and-paid-for-2024/"><u>New The Ultimate Adobe Premiere Plugin Collection Top 15 Tools (Free & Paid) for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-honor-x50-gt-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Honor X50 GT Screen | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/the-ultimate-path-to-picsart-proficiency/"><u>The Ultimate Path to PicsArt Proficiency</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-navigating-the-google-podcast-submission-guide/"><u>[New] 2024 Approved Navigating the Google Podcast Submission Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-graphic-software-showdown-acid-pros-rivalry-for-2024/"><u>[New] Graphic Software Showdown ACID Pro's Rivalry for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-prime-10-live-streaming-networks-revealed-and-compared/"><u>[New] Prime 10 Live Streaming Networks Revealed and Compared</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-superior-settings-visuals-that-stick-with-viewers/"><u>[Updated] 2024 Approved Superior Settings Visuals that Stick With Viewers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-art-of-video-cutting-and-compiling-in-studio/"><u>[Updated] The Art of Video Cutting and Compiling in Studio</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-ultimate-8-filtration-options-for-professional-streams/"><u>[Updated] Ultimate 8 Filtration Options for Professional Streams</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-infographic-hottest-social-media-trends-that-will-take-over-2023/"><u>2024 Approved Infographic - Hottest Social Media Trends That Will Take Over 2023</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/1728491712260-5-windows-11/"><u>全面導覽：以 5 種不同方法在 Windows 11 系統上備份特定文件夾</u></a></li>
+<li><a href="https://article-posts.techidaily.com/elite-cyber-retailers-for-perfectly-tailored-presents/"><u>Elite Cyber Retailers for Perfectly Tailored Presents</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-lava-agni-2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-lava-blaze-pro-5g-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Lava Blaze Pro 5G by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/overcoming-latency-in-me-resolving-lag-and-frame-drops-on-your-playthrough/"><u>Overcoming Latency in ME: Resolving Lag and Frame Drops on Your Playthrough</u></a></li>
+<li><a href="https://driver-install.techidaily.com/power-up-your-pc-installing-updated-w11-drivers-from-lenovo/"><u>Power Up Your PC: Installing Updated W11 Drivers From Lenovo</u></a></li>
+<li><a href="https://extra-information.techidaily.com/storage-space-used-for-daily-extended-videography/"><u>Storage Space Used for Daily Extended Videography</u></a></li>
 </ul></div>
 
