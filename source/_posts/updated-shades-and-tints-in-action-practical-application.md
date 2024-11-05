@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Shades & Tints in Action  Practical Application\""
-date: 2024-10-26T19:06:37.811Z
-updated: 2024-10-30T16:40:59.377Z
+date: 2024-11-02T05:09:32.902Z
+updated: 2024-11-05T04:41:11.492Z
 tags: 
   - screen-recording
   - ai video
@@ -39,20 +39,27 @@ Using red, green and blue as primary colors we can mix the colors to one another
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -62,13 +69,6 @@ The blue lines represent what is known as split contrasting colors and these wil
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## But How Do I Use This
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
@@ -76,10 +76,10 @@ You may still be unsure as to how to implement color theory into your videos. Le
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
@@ -88,20 +88,14 @@ As you can see from this example the base color for the scene is a dark blue/pur
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -137,20 +131,18 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-explore-virtual-worlds-pcs-1-list-of-vr-360-game-streamers/"><u>[New] 2024 Approved Explore Virtual Worlds PC's #1 List of VR 360 Game Streamers</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-excellent-selection-of-top-8-blu-ray-player-models/"><u>[Updated] Excellent Selection of Top 8 Blu-Ray Player Models</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-piece-by-piece-crafting-the-mosaic-photo-collage-way/"><u>[Updated] Piece-by-Piece Crafting The Mosaic Photo Collage Way</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-unveiling-excellent-action-camera-options-a-15-item-list/"><u>[Updated] Unveiling Excellent Action Camera Options A 15-Item List</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-optimal-vlog-filming-ideal-handheld-stabilizers-compared/"><u>2024 Approved Optimal Vlog Filming Ideal Handheld Stabilizers Compared</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Nokia C12 Plus | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-honor-play-8t-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Honor Play 8T Phone Screen?</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-erase-an-iphone-xr-without-apple-id-password-by-drfone-ios/"><u>In 2024, How To Erase an iPhone XR Without Apple ID Password?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-master-privacy-unveil-faces-less-clearly/"><u>In 2024, Master Privacy Unveil Faces Less Clearly</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-navigating-through-vlc-features-settings-and-troubleshooting-mac/"><u>In 2024, Navigating Through VLC Features, Settings & Troubleshooting (Mac)</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-oneplus-nord-3-5g-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On OnePlus Nord 3 5G Device</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/form-your-youtube-views-into-profits-instantly-for-2024/"><u>Transform Your YouTube Views Into Profits Instantly for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/unveiling-the-secrets-share-images-professionally-on-youtube/"><u>Unveiling the Secrets Share Images Professionally on YouTube</u></a></li>
-<li><a href="https://article-posts.techidaily.com/what-is-augmented-reality-for-2024/"><u>What Is Augmented Reality for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-free-vob-player-for-pc-and-mac/"><u>[New] 2024 Approved Free VOB Player for PC and Mac</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-hero5-black-versus-yi-4k-latest-updates-on-high-res-cameras-for-2024/"><u>[New] Hero5 Black Versus Yi 4K Latest Updates on High-Res Cameras for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-how-can-you-improve-zoom-video-resolution-quality/"><u>[New] How Can You Improve Zoom Video Resolution Quality?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-instagram-sound-essentials-for-personalization-for-2024/"><u>[New] Instagram Sound Essentials for Personalization for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-record-google-hangout-4-solutions-for-2024/"><u>[New] Record Google Hangout [4 Solutions] for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-step-by-step-guide-to-a-win11-system-makeover/"><u>[New] Step-by-Step Guide to a Win11 System Makeover</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-futureproofing-your-data-with-budgeted-cloud-choices/"><u>[Updated] Futureproofing Your Data with Budgeted Cloud Choices</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-experts-picks-top-5-webcams-revolutionizing-game-streaming/"><u>2024 Approved Expert's Picks Top 5 Webcams Revolutionizing Game Streaming</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/cutting-edge-webcam-utilization-at-home/"><u>Cutting-Edge Webcam Utilization at Home</u></a></li>
+<li><a href="https://article-posts.techidaily.com/getting-ahead-with-snapchats-latest-features-for-2024/"><u>Getting Ahead with Snapchat's Latest Features for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-xs-max-to-others-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone XS Max To Others devices? | Dr.fone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/movavi-ripper-dvd-guia-paso-a-paso-para-extraer-archivos-de-dvd/"><u>Movavi Ripper DVD: Guía Paso a Paso Para Extraer Archivos De DVD</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/transcodificar-archivos-de-video-de-formato-avi-al-formato-wav-sin-coste-guia-simple/"><u>Transcodificar Archivos De Vídeo De Formato AVI Al Formato WAV Sin Coste: Guía Simple</u></a></li>
 </ul></div>
 

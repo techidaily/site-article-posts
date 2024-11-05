@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Creating Captivating iPhone Lengthened Photos"
-date: 2024-10-26T18:38:48.240Z
-updated: 2024-10-30T18:29:19.469Z
+date: 2024-10-30T21:26:12.538Z
+updated: 2024-11-04T20:32:11.545Z
 tags: 
   - screen-recording
   - ai video
@@ -42,13 +42,6 @@ thumbnail: https://thmb.techidaily.com/1d9a817ed59482a0eeff36b88b02b53bced3999d9
 
  When you take long exposure shots using a digital SLR, the physical shutter which captures the image stays open for longer. You can also fiddle with the aperture size, to make it easier to capture these images in different light levels. This process is meticulously replicated by the iPhone's newest Photos app, so if you're already on iOS 11, here's how to use it:
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Users on iOS 11
 
  First of all, make sure Live Photos is switched on. Within the camera app, simply tap the circular button in the middle of the top menu bar to turn it on. Once activated, the button will turn yellow and the 'live' notification will be shown on screen.
@@ -61,9 +54,23 @@ thumbnail: https://thmb.techidaily.com/1d9a817ed59482a0eeff36b88b02b53bced3999d9
 
 ![long-exposure-effect-iphone](https://images.wondershare.com/filmora/article-images/long-exposure-effect-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image resource: iPhoneMod
 
  Now bring up your live photo within the Photos app and bring up the effects selector. You can see this either by tapping 'details' or by simply swiping up whilst viewing the photo. There are lots of effects you can apply to your live photo, but the one we're looking for here is 'long exposure'. Simply tap this and your clever iPhone will make all the adjustments necessary to produce an awesome pro-looking photograph using long exposure.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Not a user of iOS 11?
 
@@ -72,13 +79,6 @@ thumbnail: https://thmb.techidaily.com/1d9a817ed59482a0eeff36b88b02b53bced3999d9
  There are a number of these apps available on the app store, each with its own set of pros and cons. Take a look at [Slow Shutter Cam](https://itunes.apple.com/app/slow-shutter-cam/id357404131?mt=8), [Ultra Slow Shutter Cam PRO](https://itunes.apple.com/us/app/ultra-slow-shutter-cam-pro-professional-long-exposure/id741508910?mt=8), [Slow Shutter Insta](https://itunes.apple.com/ca/app/slow-shutter-insta-free-long-exposure-photo-cam-for/id730352755?mt=8) and [LongExpo](https://itunes.apple.com/us/app/longexpo-slow-shutter-and-long-exposure-camera/id594078421?mt=8) to discover some of the most popular apps of this type. Try them out, and see what works best for you.
 
 **You may also like:** [iPhone Night Photography Tips: Take Night Photos with iPhone >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Long Exposure Photography Tips
 
@@ -111,6 +111,13 @@ thumbnail: https://thmb.techidaily.com/1d9a817ed59482a0eeff36b88b02b53bced3999d9
 
 ![motion-blur-long-exposure](https://images.wondershare.com/filmora/article-images/motion-blur-long-exposure.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image resource: Digital Photo Secrets
 
 * **Low light photography:** With a longer exposure, things which were previously un-snappable are suddenly within your grasp. Beautiful fountains at night, bridges, buildings… anything which would previously have been little more than a shadow can now become part of your collection, simply by extending the exposure length.
@@ -118,22 +125,15 @@ thumbnail: https://thmb.techidaily.com/1d9a817ed59482a0eeff36b88b02b53bced3999d9
 ![low-light-long-exposure](https://images.wondershare.com/filmora/article-images/low-light-long-exposure.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image resource: Nikonites
 
  Play around, try different things and get to know how variations in settings can change the outcome of your shots. Tinkering with exposure length is great fun, and will almost certainly result in some totally Facebook-worthy additions to your gallery.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## To conclude
 
@@ -168,20 +168,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-sj7-superstar-4k-camera-a-comprehensive-review-for-action-enthusiasts/"><u>[New] 2024 Approved SJ7 Superstar 4K Camera - A Comprehensive Review for Action Enthusiasts</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-strategically-showcasing-achievements/"><u>[New] 2024 Approved Strategically Showcasing Achievements</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-how-to-optimize-solo-streaming-with-flawless-execution/"><u>[New] How to Optimize Solo Streaming with Flawless Execution</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-memetic-mastery-the-finest-text-based-jesters/"><u>[New] Memetic Mastery The Finest Text-Based Jesters</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-optimizing-video-calls-a-guide-from-skype-to-zoom/"><u>[New] Optimizing Video Calls A Guide From Skype to Zoom</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-professional-gif-designers-choice-list/"><u>[Updated] 2024 Approved Professional GIF Designers' Choice List</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-bridging-photos-and-video-in-pixiz-a-comprehensive-guide/"><u>[Updated] In 2024, Bridging Photos & Video in Pixiz A Comprehensive Guide</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-melodic-moments-to-augment-your-status/"><u>[Updated] In 2024, Melodic Moments to Augment Your Status</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-prime-picks-the-top-6-online-networks-for-corporate-success/"><u>[Updated] Prime Picks The Top 6 Online Networks for Corporate Success</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-speedy-movie-making-hacks-tips-to-learn-and-apply-at-home/"><u>2024 Approved Speedy Movie Making Hacks Tips to Learn and Apply at Home</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-and-update-your-windows-rndis-drivers-complete-troubleshooting-tips/"><u>Download and Update Your Windows RNDIS Drivers: Complete Troubleshooting Tips</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/guide-to-relocating-files-with-powershell-shift-from-one-folder-to-the-next/"><u>Guide to Relocating Files with PowerShell - Shift From One Folder to the Next</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-nokia-105-classic-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Nokia 105 Classic PC | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-poco-x5-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Poco X5 | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/top-13-aplicativos-de-captura-de-webcam-mais-usados-para-windows-10-guia-do-movavi/"><u>Top 13 Aplicativos De Captura De Webcam Mais Usados Para Windows 10 - Guia Do Movavi</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-building-a-business-from-blogs-and-video-reviews/"><u>[New] 2024 Approved Building a Business From Blogs and Video Reviews</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-cutting-edge-techniques-for-live-videos-from-your-smartphone/"><u>[New] 2024 Approved Cutting-Edge Techniques for Live Videos From Your Smartphone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-enhance-your-beats-free-luts-galore-on-mini-and-air-series-for-2024/"><u>[New] Enhance Your Beats - Free LUTS Galore on Mini & Air Series for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-reimagining-editing-processes-the-revolutionary-world-of-magix-video-pro-x/"><u>[New] Reimagining Editing Processes The Revolutionary World of Magix Video Pro X</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-essential-companion-to-mastering-powerdirector-app-2024/"><u>[New] The Essential Companion to Mastering PowerDirector App 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unveiling-top-criteria-for-selecting-fpv-drones-propellers/"><u>[New] Unveiling Top Criteria for Selecting FPV Drones' Propellers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-hero5-black-vs-yi-4k-which-takes-the-crown-in-action-cam-war/"><u>[Updated] Hero5 Black Vs. Yi 4K Which Takes the Crown in Action Cam War?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-boost-engagement-in-stories-tips-for-adding-smoothly-animated-text/"><u>[Updated] In 2024, Boost Engagement in Stories Tips for Adding Smoothly Animated Text</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-convert-talk-to-text-the-costless-alternative/"><u>[Updated] In 2024, Convert Talk to Text The Costless Alternative</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/calculating-expenses-for-youtubers-success/"><u>Calculating Expenses for YouTubers' Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/impending-shutdown-instagrams-conversation-hub/"><u>Impending Shutdown: Instagram's Conversation Hub</u></a></li>
+<li><a href="https://games-able.techidaily.com/office-seat-advantage-for-gamers/"><u>Office Seat Advantage for Gamers</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-sony-xperia-5-v-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Sony Xperia 5 V | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-reason-behind-italy-enacting-an-instant-ban-on-the-use-of-chatgpt-explored/"><u>The Reason Behind Italy Enacting an Instant Ban on the Use of ChatGPT Explored</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-for-missing-or-corrupted-media-drivers-on-computers/"><u>Troubleshooting Guide for Missing or Corrupted Media Drivers on Computers</u></a></li>
 </ul></div>
 

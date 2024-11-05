@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Expert Tips for Radial Blur Techniques in Photoshop"
-date: 2024-10-26T18:58:52.598Z
-updated: 2024-10-30T19:17:48.111Z
+date: 2024-10-29T10:59:52.174Z
+updated: 2024-11-05T11:17:28.200Z
 tags: 
   - screen-recording
   - ai video
@@ -50,15 +50,22 @@ Step1 Open your Photoshop tool and upload the image that you want to edit. Click
 ![select the quick selection tool](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 To refine the selection, use the Alt key from your keyboard. Once done with the refinement, press "Ctrl + J" to copy the new background layer. To create the background layer on Mac, hit the "Command + J" combination.
 
 ![add the background layer](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 Afterward, click on the background layer and head to the "Filter" tab. From there, select "Blur" and tap "Radial Blur" from the drop-down menu. Adjust on the Radial Blur window by choosing "Zoom" as Blur Method. Also, select "Best" under the Quality section. Once done, adjust your Blur Center from the window.
 
@@ -67,6 +74,13 @@ Step3 Afterward, click on the background layer and head to the "Filter" tab. Fro
 Step4 After making all the adjustments in the Radial Blur window, press the "OK" button. Once done, select the top layer and add a "Curve Adjustment Layer." Now adjust the curve properties according to your preference. Thus, you can see the radial blur effect on your photo on your screen.
 
 ![adjust the curves](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus Tips – The Alternative to Photoshop to Create Radial Blur Effect
 
@@ -81,10 +95,10 @@ For photo and video editing, Filmora provides several features such as Split Scr
 When it comes to effects, Filmora provides tons of vibrant effects such as Boris FX, Chroma Key, Mask and Blend, NewBlue FX, etc. Besides being a great photo and video editor, you can use this platform to edit and alter audio clips.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Steps to Create Radial Blur Effect Using Filmora
@@ -110,10 +124,10 @@ Choose your preferred effect and drop it into the timeline. Now increase the dur
 ![adjust the added blur settings](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step 4 Edit the Clip
@@ -121,26 +135,6 @@ Choose your preferred effect and drop it into the timeline. Now increase the dur
 You can also edit the clip by adding titles or more effects. Once done with the edits, hit the "Export" button given on top.
 
 ![export the photo with radial blur](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -165,10 +159,10 @@ Begin by launching Wondershare Filmora on your PC. Afterward, tap on the "Create
 ![import the photo in filmora](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step 2 Add the Required Effect
@@ -190,10 +184,10 @@ You can also edit the clip by adding titles or more effects. Once done with the 
 ![export the photo with radial blur](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -226,24 +220,16 @@ By reading this article, you have learned how to add a radial blur effect using 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-most-popular-fb-videos-download-now/"><u>[New] 2024 Approved Most Popular FB Videos - Download Now</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-tiktok-top-ten-for-cutting-edge-content-creation/"><u>[New] In 2024, TikTok Top Ten for Cutting-Edge Content Creation</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-adept-adjustments-mastering-the-chromatic-dance/"><u>2024 Approved Adept Adjustments Mastering the Chromatic Dance</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-best-ai-photo-editor-software/"><u>2024 Approved Best AI Photo Editor Software</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-essential-free-templates-greatest-slide-shows-of-the-year/"><u>2024 Approved Essential Free Templates Greatest Slide Shows of the Year</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-how-to-elevate-your-digital-self-with-memetic-skills-in-the-metaverse/"><u>2024 Approved How to Elevate Your Digital Self with Memetic Skills in the Metaverse</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-how-to-use-movie-maker-on-windows-8/"><u>2024 Approved How to Use Movie Maker on Windows 8</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-mastering-online-tale-creation-fundamentals/"><u>2024 Approved Mastering Online Tale Creation Fundamentals</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-popular-photographs-their-narratives-unveiled/"><u>2024 Approved Popular Photographs Their Narratives Unveiled</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-techniques-for-tidying-up-image-backdrops/"><u>2024 Approved Techniques for Tidying Up Image Backdrops</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-transforming-vr-skeletons-into-your-ideal-digital-persona/"><u>2024 Approved Transforming VR Skeletons Into Your Ideal Digital Persona</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-unlocking-the-power-of-panoramic-videography-with-premieres-tools/"><u>2024 Approved Unlocking the Power of Panoramic Videography with Premiere's Tools</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/becoming-a-leader-in-the-world-of-design-work-for-2024/"><u>Becoming a Leader in the World of Design Work for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/capturing-life-one-click-at-a-time-the-ultimate-guide-for-documenting-your-sims-journey-in-sims-4-for-2024/"><u>Capturing Life, One Click at a Time The Ultimate Guide for Documenting Your Sim's Journey in Sims 4 for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Nokia C22? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-channel-growth-strategy-going-with-studio-or-beta-progression/"><u>In 2024, Channel Growth Strategy Going with Studio or Beta Progression</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-tech-tools-for-streaming-a-detailed-overview-on-tv-recording/"><u>In 2024, Tech Tools for Streaming A Detailed Overview on TV Recording</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-unlocking-rokus-potential-with-facebook-live-streaming/"><u>In 2024, Unlocking Roku's Potential with Facebook Live Streaming</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/taming-read-locked-windows-files-a-guide/"><u>Taming Read-Locked Windows Files: A Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-clear-shots-a-guide-to-still-image-stability/"><u>[New] In 2024, Clear Shots A Guide to Still Image Stability</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-from-waves-to-words-navigating-the-world-of-audio-editing-in-garageband/"><u>[New] In 2024, From Waves to Words Navigating the World of Audio Editing in GarageBand</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-zoom-in-on-content-expert-methods-to-minimize-background/"><u>[New] In 2024, Zoom In on Content – Expert Methods to Minimize Background</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-leading-action-cameras-for-thrill-seekers-for-2024/"><u>[New] Leading Action Cameras for Thrill Seekers for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-insiders-guide-to-instagram-photo-integrity/"><u>[Updated] In 2024, The Insider’s Guide to Instagram Photo Integrity</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-innovative-strategies-to-enhance-tiktoks/"><u>[Updated] Innovative Strategies to Enhance TikToks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-dreamcolor-spectrum-redefined-insight-into-the-z32x-monitor/"><u>[Updated] The DreamColor Spectrum Redefined Insight Into the Z32X Monitor</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-ultimate-live-streaming-recorders-for-youtube-maestros/"><u>[Updated] Ultimate Live Streaming Recorders for YouTube Maestros</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unveiling-the-ultimate-15-stop-motion-film-collection/"><u>[Updated] Unveiling the Ultimate 15 Stop-Motion Film Collection</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-what-every-independent-youtuber-should-know-about-mcns/"><u>2024 Approved What Every Independent YouTuber Should Know About MCNs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/mastering-dash-cam-videos-the-ultimate-guide-to-superior-editing-apps/"><u>Mastering Dash Cam Videos: The Ultimate Guide to Superior Editing Apps</u></a></li>
 </ul></div>
 

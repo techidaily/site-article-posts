@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Mastering Mac Preview  A Compreranary Reference Guide\""
-date: 2024-10-23T16:59:18.716Z
-updated: 2024-10-30T18:12:59.299Z
+date: 2024-10-29T18:26:56.470Z
+updated: 2024-11-04T20:17:20.640Z
 tags: 
   - screen-recording
   - ai video
@@ -41,13 +41,6 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to View and Edit Photos in Preview on Mac
 
 As mentioned earlier, the **Preview app** is a default photo viewer on Mac that also has many editing tools. Therefore:
@@ -77,10 +70,16 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Crop in Preview
@@ -100,10 +99,10 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Rotate Image in Preview
@@ -117,6 +116,19 @@ Use the method explained above to open the photo in Preview.
 **Step 2: Rotate the Image**
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
+
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
 
@@ -167,10 +179,10 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Save Images in Different Formats
@@ -244,24 +256,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-screen-capture-without-breaking-the-bank-our-top-picks/"><u>[New] 2024 Approved Screen Capture Without Breaking the Bank Our Top Picks</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-end-to-end-camera-rotation-explained-for-2024/"><u>[New] End-to-End Camera Rotation Explained for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-windows-11-video-production-from-start-to-finish/"><u>[New] In 2024, Windows 11 Video Production From Start to Finish</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-reducing-loudness-gradually-techniques-for-logic-pro-users/"><u>[New] Reducing Loudness Gradually Techniques for Logic Pro Users</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-the-duel-of-durability-hero-5-black-versus-keymission-for-2024/"><u>[New] The Duel of Durability HERO 5 Black Versus Keymission for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-client-speeches-transforming-marketing-narratives/"><u>[Updated] Client Speeches Transforming Marketing Narratives</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-prime-picks-7-superior-apple-video-viewers-for-2024/"><u>[Updated] Prime Picks 7 Superior Apple Video Viewers for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-the-ultimate-mac-dvd-authorization-handbook-for-2024/"><u>[Updated] The Ultimate Mac DVD Authorization Handbook for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-make-an-emoji-of-yourself-on-mobile-emoji-yourself/"><u>2024 Approved How to Make an Emoji of Yourself on Mobile ? Emoji Yourself</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/cloud-space-costs-analyzing-and-top-tier-savings-guide/"><u>Cloud Space Costs Analyzing & Top-Tier Savings Guide</u></a></li>
-<li><a href="https://article-posts.techidaily.com/embrace-metaverse-laughter-your-pathway-to-memetic-fame/"><u>Embrace Metaverse Laughter - Your Pathway to Memetic Fame</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/gpts-future-foresight-versus-astrology-wonders/"><u>GPT’s Future Foresight Versus Astrology Wonders</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-lava-yuva-3-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Lava Yuva 3 to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-comprehensive-overview-utilizing-googles-automatic-transcription-service/"><u>In 2024, Comprehensive Overview Utilizing Google's Automatic Transcription Service</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Oppo Reno 11 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-infinix-smart-8-hd-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Infinix Smart 8 HD Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-passfab-apple-iphone-14-pro-backup-unlocker-top-4-alternatives-by-drfone-ios/"><u>In 2024, PassFab Apple iPhone 14 Pro Backup Unlocker Top 4 Alternatives</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/k-creative-expression-mastering-jump-cut-usage-for-2024/"><u>Unlock Creative Expression Mastering Jump Cut Usage for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/winning-over-viewers-a-comprehensive-guide-to-growing-followers-for-2024/"><u>Winning Over Viewers A Comprehensive Guide to Growing Followers for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-eloquentaiartisan-the-ai-empowered-editor/"><u>[New] EloquentAIArtisan The AI-Empowered Editor</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-the-ultimate-guide-to-mp4-devices/"><u>[New] In 2024, The Ultimate Guide to MP4 Devices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-clubbing-essentials-top-rated-dj-template-vids/"><u>[Updated] 2024 Approved Clubbing Essentials Top-Rated DJ Template Vids</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-imovie-why-does-it-alter-my-videos/"><u>[Updated] In 2024, IMovie Why Does It Alter My Videos?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/elite-cameras-for-face-recording-facing-screen-included/"><u>Elite Cameras for Face Recording Facing Screen Included</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-evaluating-top-6-choices-4k-youtube-to-mp3-software/"><u>In 2024, Evaluating Top 6 Choices 4K Youtube-to-MP3 Software</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-step-by-step-to-excellence-the-ultimate-powerdirectors-user-manual/"><u>In 2024, Step-by-Step to Excellence The Ultimate PowerDirector's User Manual</u></a></li>
+<li><a href="https://article-posts.techidaily.com/innovative-techniques-for-iphone-sideways-shots/"><u>Innovative Techniques for iPhone Sideways Shots</u></a></li>
+<li><a href="https://win-answers.techidaily.com/kofxv-no-longer-crashes-solutions-and-tips-for-a-seamless-gaming-experience-on-your-computer/"><u>KOFXV No Longer Crashes: Solutions and Tips for a Seamless Gaming Experience on Your Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-unknown-understanding-shadowbanning/"><u>Navigating the Unknown: Understanding Shadowbanning</u></a></li>
+<li><a href="https://article-tips.techidaily.com/recorded-tones-the-iphone-voicemail-keeper-for-2024/"><u>Recorded Tones The iPhone Voicemail Keeper for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unlocking-obs-potential-incorporating-luts-seamlessly-for-2024/"><u>Unlocking OBS' Potential Incorporating LUTs Seamlessly for 2024</u></a></li>
 </ul></div>
 

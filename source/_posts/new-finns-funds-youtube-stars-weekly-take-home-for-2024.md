@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Finn's Funds  YouTube Star’s Weekly Take-Home for 2024\""
-date: 2024-10-27T19:14:06.459Z
-updated: 2024-10-30T16:37:41.242Z
+date: 2024-10-29T04:05:16.802Z
+updated: 2024-11-05T10:38:02.496Z
 tags: 
   - screen-recording
   - ai video
@@ -84,19 +84,6 @@ To give you an idea, about how **much money does PewDiePie make** and how the ch
 
 ![pewdiepie bar chart](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-05.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **The popularity of PewDiePie over other social media sites**
 
 By now, we already know that PewDiePie is the king of YouTube but here we would also like to throw some light on his fanbase over other social media sites.
@@ -181,9 +168,29 @@ Add the media file by clicking File > Import Media, and then right-click and sel
 
 ![wondershare filmora auto reframe 1b](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-10.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And the last option is to choose Auto reframe from the Tools section on the menu bar.
 
 ![wondershare filmora auto reframe 1c](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-11.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2 After the Auto Reframe feature is selected, a new dialogue box will open. Choose to add the media file by clicking on the Import Media button (if the file is not yet added).
 
@@ -204,10 +211,10 @@ The tool will reframe the video automatically as per the speed and the aspect ra
 ![wondershare filmora auto reframe 4b](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-15.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step5 Preview of the video can now be checked and if further editing is needed, it can be done using Undo, redo Next Edit Point, and Previous Edit Point features.
@@ -218,21 +225,7 @@ Step6 Finally, tap on the Export button, and choose the desired file and the des
 
 ![wondershare filmora auto reframe 6](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-17.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You can check the other AI Editing and more features at [Wondershare Filmora Guide.](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -276,7 +269,27 @@ To give you an idea, about how **much money does PewDiePie make** and how the ch
 
 ![pewdiepie wealth growth](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-04.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![pewdiepie bar chart](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-05.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **The popularity of PewDiePie over other social media sites**
 
@@ -334,6 +347,13 @@ This is another popular video of PewDiePie that features a song which is dedicat
 
 ![jabba the hutt](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-08.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to be a YouTuber and make videos like PewDiePie
 
 Looking at the success, popularity, and whooping earnings of PewDiePie, it is obvious for people like you and me, to think of try giving hands in being a YouTuber. So, if you have some unique ideas and content that you would like to bring forward to the world audience, uploading on YouTube is one of the best ideas.
@@ -366,13 +386,6 @@ And the last option is to choose Auto reframe from the Tools section on the menu
 
 ![wondershare filmora auto reframe 1c](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 After the Auto Reframe feature is selected, a new dialogue box will open. Choose to add the media file by clicking on the Import Media button (if the file is not yet added).
 
 If you wish to change the added file, tap on Replace File option.
@@ -380,21 +393,22 @@ If you wish to change the added file, tap on Replace File option.
 ![wondershare filmora auto reframe 2](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-12.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 Next, you need to adjust the aspect ratio and the motion speed. You can choose aspect ratio from multiple options- square (1:1), vertical (9:16), standard (4:3), widescreen (16:9), and cinema (21:9). The motion speed can be kept as Auto, Fast, or Slow as needed.
 
 ![wondershare filmora auto reframe 3](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-13.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 After all the settings are done, click on the Analysis option and the software will do the video analysis.
 
@@ -404,23 +418,9 @@ The tool will reframe the video automatically as per the speed and the aspect ra
 
 ![wondershare filmora auto reframe 4b](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-15.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step5 Preview of the video can now be checked and if further editing is needed, it can be done using Undo, redo Next Edit Point, and Previous Edit Point features.
 
 ![wondershare filmora auto reframe 5](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-16.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step6 Finally, tap on the Export button, and choose the desired file and the destination to save the video.
 
@@ -460,21 +460,24 @@ PewDiePie is an apt example of earning fortunes by uploading videos and being po
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-elemental-story-framework/"><u>[New] Elemental Story Framework</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-how-to-downloading-and-altering-whatsapp-ringtone-files/"><u>[New] How-To Downloading and Altering WhatsApp Ringtone Files</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-essential-strategies-for-flawless-cricket-livestreams/"><u>[New] In 2024, Essential Strategies for Flawless Cricket Livestreams</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-piceditorpro-assessment-complete-review/"><u>[New] In 2024, PicEditorPro Assessment – Complete Review</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/he-essential-guide-to-free-licensed-audio-for-yt-for-2024/"><u>[New] The Essential Guide to Free, Licensed Audio for YT for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-basics-of-narrative-crafting/"><u>[Updated] Basics of Narrative Crafting</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-prime-selection-top-8-webcams-to-upgrade-streaming-for-2024/"><u>[Updated] Prime Selection Top 8 Webcams to Upgrade Streaming for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-smartphones-ultimate-guide-to-image-editing-and-annotation/"><u>2024 Approved Smartphones' Ultimate Guide to Image Editing & Annotation</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-the-blueprint-for-gathering-free-pictorial-video-files/"><u>2024 Approved The Blueprint for Gathering Free Pictorial Video Files</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-unlocking-the-potential-in-your-podcasts-xml-structure/"><u>2024 Approved Unlocking the Potential in Your Podcast's XML Structure</u></a></li>
-<li><a href="https://video-capture.techidaily.com/easy-techniques-for-transforming-your-vc-1-encoded-videos-into-high-quality-h264-format/"><u>Easy Techniques for Transforming Your VC-1 Encoded Videos Into High-Quality H.264 Format</u></a></li>
-<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-samsung-galaxy-a05s-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Samsung Galaxy A05s | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-videos-from-iphone-without-backup-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Videos from iPhone Without Backup? | Stellar</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-4k-clarity-redefined-an-intensive-overview-of-the-dell-p2715q-screen/"><u>In 2024, 4K Clarity Redefined An Intensive Overview of the Dell P2715Q Screen</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-spectrumsewn-studio-photo-montage-expertise/"><u>In 2024, SpectrumSewn Studio Photo Montage Expertise</u></a></li>
-<li><a href="https://extra-information.techidaily.com/navigating-night-time-captures-with-iphone/"><u>Navigating Night-Time Captures with iPhone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-innovations-that-make-av1-superior-to-vp9/"><u>[New] 2024 Approved The Innovations That Make AV1 Superior to VP9</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-exploring-the-marvel-of-apples-m1-max-attachments/"><u>[New] Exploring the Marvel of Apple’s M1 Max Attachments</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-discovering-the-quintessence-of-five-superior-slow-cams/"><u>2024 Approved Discovering the Quintessence of Five Superior Slow Cams</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-elite-quinte-innovative-4k-capture-systems/"><u>2024 Approved Elite Quinte Innovative 4K Capture Systems</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-exclusive-guide-to-best-uhd-video-players-free-and-versatile-for-pcandmac/"><u>2024 Approved Exclusive Guide to Best UHD Video Players (Free & Versatile) for PC&Mac</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-guidance-download-tamil-music-as-ringtone-and-how-to-cut-a-song-as-ringtone/"><u>2024 Approved Guidance Download Tamil Music As Ringtone And How To Cut A Song As Ringtone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-leveraging-free-luts-a-pathway-to-improved-obs-streaming/"><u>2024 Approved Leveraging Free LUTs A Pathway to Improved OBS Streaming</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-pioneering-efficient-editing-embrace-inshot-software/"><u>2024 Approved Pioneering Efficient Editing Embrace Inshot Software</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-spectacular-8k-cameras-top-picks-for-quality/"><u>2024 Approved Spectacular 8K Cameras Top Picks for Quality</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-stepwise-reduction-tactics-for-audio-levels-in-fl-studio/"><u>2024 Approved Stepwise Reduction Tactics for Audio Levels in FL Studio</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-top-picks-streaming-tunes-directly-from-youtuberingtones/"><u>2024 Approved Top Picks Streaming Tunes Directly From YoutubeRingtones</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/defeating-startup-woes-for-team-fortress-2-effective-solutions-and-tips/"><u>Defeating Startup Woes for Team Fortress 2 – Effective Solutions & Tips</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/enhance-engagement-sharing-videos-on-instagram-for-2024/"><u>Enhance Engagement Sharing Videos on Instagram for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-building-your-youtube-empire-kit-overview/"><u>In 2024, Building Your YouTube Empire Kit Overview</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-gain-listener-traffic-advanced-techniques-in-podcast-seo/"><u>In 2024, Gain Listener Traffic Advanced Techniques in Podcast SEO</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/odins-revenge-ragnarok-coming-soon-in-2024/"><u>Odin's Revenge Ragnarök - Coming Soon, In 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-ultimate-gopro-camera-showdown-for-2024/"><u>The Ultimate GoPro Camera Showdown for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/toshiba-copier-drivers-downloads-for-windows-users-fast-and-easy-setup/"><u>Toshiba Copier Drivers Downloads for Windows Users - Fast and Easy Setup</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unveiling-the-virtual-matrix-current-landscape-and-future-challenges-for-2024/"><u>Unveiling the Virtual Matrix Current Landscape & Future Challenges for 2024</u></a></li>
 </ul></div>
 

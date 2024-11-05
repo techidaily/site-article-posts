@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Eliminating Common Glitches in Windows 11'S Photos Viewer\""
-date: 2024-10-24T17:33:08.331Z
-updated: 2024-10-30T17:20:43.528Z
+date: 2024-11-04T02:33:27.747Z
+updated: 2024-11-05T12:09:40.444Z
 tags: 
   - screen-recording
   - ai video
@@ -47,6 +47,13 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 
 ## How to fix Windows 10 Photos app crashes
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Solution 1: Use the Troubleshooter
 
 The Windows Troubleshooter is an inbuilt troubleshooting feature embedded with Windows 10 computers. It allows a simple interface to help you choose any application for troubleshooting. Windows Troubleshooter resolves basic issues with the Windows computer so that users can seamlessly use all Windows 10 system features and functionalities.
@@ -60,13 +67,6 @@ Here is how to troubleshoot –
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
 
@@ -102,13 +102,6 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -121,10 +114,10 @@ Here is how to reinstall the Windows 10 Photos App –
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -133,13 +126,20 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -167,24 +167,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-drone-photography-showdown-dji-fpv-vs-gopro-x/"><u>[New] In 2024, Drone Photography Showdown DJi FPV Vs GoPro X</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-professional-drone-review-best-5-to-consider/"><u>[New] In 2024, Professional Drone Review Best 5 to Consider</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-the-pinnacle-of-zooid-creations-guide-for-2024/"><u>[New] The Pinnacle of Zooid Creations Guide for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-10-expert-suggestions-to-make-your-yt-shorts-stand-out/"><u>[Updated] 2024 Approved 10 Expert Suggestions to Make Your YT Shorts Stand Out</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-cut-the-clutter-iphones-best-photo-editing-techniques-object-removal/"><u>[Updated] Cut the Clutter IPhone's Best Photo Editing Techniques (Object Removal)</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-free-fcp-downloading-what-you-need-for-2024/"><u>[Updated] Free FCP Downloading - What You Need for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-gb-for-a-continuous-video-watched-daily/"><u>[Updated] GB for a Continuous Video Watched Daily</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-metaverse-odyssey-a-list-of-sci-fi-films-taking-you-beyond-earth/"><u>[Updated] Metaverse Odyssey A List of Sci-Fi Films Taking You Beyond Earth</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/diy-solutions-to-fix-line-distortions-in-samsung-tvs/"><u>DIY Solutions to Fix Line Distortions in Samsung TVs</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ethical-study-habits-sidestepping-chatgpt-misuse/"><u>Ethical Study Habits: Sidestepping ChatGPT Misuse</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1725289392908-imgburn/"><u>ImgBurnウイルスのリスクを知り、回避方法を学ぶ</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-become-a-communication-connoisseur-with-these-hidden-whatsapp-techniques/"><u>In 2024, Become a Communication Connoisseur with These Hidden WhatsApp Techniques</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-the-two-factor-authentication-from-iphone-13-pro-by-drfone-ios/"><u>In 2024, How To Remove the Two Factor Authentication From iPhone 13 Pro</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-nokia-g22-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Nokia G22 online without jailbreak</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Infinix Note 30 Pro? | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-snappy-satire-iphone-memes/"><u>In 2024, Snappy Satire IPhone Memes</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-from-4k-to-mp4-the-ultimate-video-conversion-and-download-guide/"><u>New 2024 Approved From 4K to MP4 The Ultimate Video Conversion and Download Guide</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ing-top-7-innovative-mobile-streaming-tools-for-youtube-enthusiasts-for-2024/"><u>Scouting Top 7 Innovative Mobile Streaming Tools for YouTube Enthusiasts for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-the-internet-explorer-no-longer-responding-error-a-step-by-step-guide/"><u>Solving the 'Internet Explorer No Longer Responding' Error: A Step-by-Step Guide</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-comprehensive-visuals-what-sets-360-apart/"><u>[New] 2024 Approved Comprehensive Visuals What Sets 360° Apart?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-how-to-increase-followers-on-facebook-10-effective-ways/"><u>[New] How to Increase Followers on Facebook (10 Effective Ways )</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-full-featured-mac-video-and-audio-recorder-for-2024/"><u>[Updated] Full-Featured Mac Video & Audio Recorder for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-a-comprehensive-guide-to-remove-images-background-in-canva/"><u>2024 Approved A Comprehensive Guide to Remove Image’s Background In Canva</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-adobes-quest-for-giggles-and-grins/"><u>2024 Approved Adobe's Quest for Giggles and Grins</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-audiophiles-guide-to-speed-adjustment-apps/"><u>2024 Approved Audiophile's Guide to Speed Adjustment Apps</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-digital-photo-management-incorporating-dates-seamlessly/"><u>2024 Approved Digital Photo Management Incorporating Dates Seamlessly</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-transforming-ordinary-sessions-into-visual-extravaganzas-in-zoom/"><u>2024 Approved Transforming Ordinary Sessions Into Visual Extravaganzas in Zoom</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-vivo-y27-4g-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Vivo Y27 4G in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-high-dynamic-range-the-essential-guide-to-modern-camera-tech/"><u>In 2024, High Dynamic Range The Essential Guide to Modern Camera Tech</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-any-poco-x5-pro-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Poco X5 Pro Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-15-apps-to-hack-wifi-password-on-realme-10t-5g-by-drfone-android/"><u>In 2024, Top 15 Apps To Hack WiFi Password On Realme 10T 5G</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-visual-memories-an-insiders-look-at-video-recorders/"><u>In 2024, Visual Memories An Insider's Look at Video Recorders</u></a></li>
 </ul></div>
 
