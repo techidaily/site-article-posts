@@ -1,7 +1,7 @@
 ---
 title: "[New] Mastering Panoramic Photography with a Fisheye Effect"
-date: 2024-11-02T22:47:33.366Z
-updated: 2024-11-04T18:06:36.529Z
+date: 2024-11-08T16:30:18.160Z
+updated: 2024-11-15T17:11:39.137Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,10 @@ thumbnail: https://thmb.techidaily.com/e61ec8b8b6fcdc5ae49f80ff7f35fd26c15f5f9f2
 ![Panohead for Fisheye lens](https://images.wondershare.com/filmora/article-images/panohead-for-fishlens.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. Leveling and rotating
@@ -55,10 +55,10 @@ thumbnail: https://thmb.techidaily.com/e61ec8b8b6fcdc5ae49f80ff7f35fd26c15f5f9f2
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. The actual shooting
@@ -72,6 +72,13 @@ thumbnail: https://thmb.techidaily.com/e61ec8b8b6fcdc5ae49f80ff7f35fd26c15f5f9f2
  **Keep this in mind when shooting 360 degree panoramas with fisheye**
 
  In normal photography, it always pays to remember what to include and what to exclude in your shots. When it comes to shooting 360s, it becomes more complicated since everything is included. For you to take successful 360s with fisheye therefore, you need to consider keenly where you stand. The fisheye lens will introduce a lot of space between you and the subject, hence you must consider how close or far away you are from the subject so that the pieces of the compositional puzzle will fall in place smoothly both in the horizontal and vertical planes.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Stitching 360 degrees panoramas after shooting
 
@@ -91,19 +98,6 @@ thumbnail: https://thmb.techidaily.com/e61ec8b8b6fcdc5ae49f80ff7f35fd26c15f5f9f2
 
 ![create 360 photos with fisheye lens](https://images.wondershare.com/filmora/article-images/fisheye-lens-image.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Conclusion
 
  Fisheye lenses have been around for a while now and the process of creating 360 panoramas with them may not be very challenging, but great results are achieved through practice and proper stitching. Once the photos are taken, you can use premium panorama software like Autopano Pro or you can use free options like the Microsoft ICE or Hugin. Ones stitching are done, it is imperative to have the final works uploaded online for others to view.
@@ -111,10 +105,10 @@ thumbnail: https://thmb.techidaily.com/e61ec8b8b6fcdc5ae49f80ff7f35fd26c15f5f9f2
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -142,14 +136,22 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-10-shopping-powerhouses-where-to-buy-personalized-present-wrappers/"><u>[New] 2024 Approved 10 Shopping Powerhouses Where to Buy Personalized Present Wrappers</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-strategies-for-hiring-superior-cinematographers/"><u>[New] 2024 Approved Strategies for Hiring Superior Cinematographers</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-zip-content-to-captions-how-to-convert-files-for-editors/"><u>[New] 2024 Approved Zip Content to Captions How to Convert Files for Editors</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ow-to-make-a-youtube-trailer-by-filmora-for-2024/"><u>[New] How to Make a YouTube Trailer by Filmora for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-top-handheld-video-stabilizer-equipment-to-help-shoot-smooth-scenes/"><u>[New] Top Handheld Video Stabilizer Equipment To Help Shoot Smooth Scenes</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-revolutionize-your-tiktok-photos-with-proven-hacks/"><u>[Updated] 2024 Approved Revolutionize Your TikTok Photos with Proven Hacks</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/speedy-iphone-to-mac-photo-transfer-top-3-techniques-for-swift-uploading/"><u>Speedy iPhone-to-Mac Photo Transfer: Top 3 Techniques for Swift Uploading!</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-art-of-condensation-editing-youtube-video-durations-for-2024/"><u>The Art of Condensation Editing YouTube Video Durations for 2024</u></a></li>
-<li><a href="https://win-hacks.techidaily.com/ultimate-walkthrough-copy-pics-onto-your-win10-exthardrive-with-ease/"><u>Ultimate Walkthrough: Copy Pics Onto Your Win10 ExtHardrive with Ease</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-enhancing-digital-meetings-focus-up-techniques/"><u>[New] 2024 Approved Enhancing Digital Meetings Focus Up Techniques</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-actionable-techniques-for-efficient-media-conversion-chains-for-2024/"><u>[New] Actionable Techniques for Efficient Media Conversion Chains for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-critique-of-the-frolicking-tale-a-videotape-retrospective/"><u>[New] Critique of 'The Frolicking Tale' A Videotape Retrospective</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-insta-cinematography-tips-three-way-borders/"><u>[New] In 2024, Insta Cinematography Tips Three-Way Borders</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-tailoring-text-features-in-ae-compositions/"><u>[New] Tailoring Text Features in AE Compositions</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-time-management-the-art-of-planning-zoom-meetings-for-2024/"><u>[New] Time Management The Art of Planning Zoom Meetings for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-ultimate-action-recorder-with-facing-mode/"><u>[New] Ultimate Action Recorder with Facing Mode</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-synthesizing-success-in-metaverse-sales-techniques/"><u>[Updated] 2024 Approved Synthesizing Success in Metaverse Sales Techniques</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-mastering-pinterest-content-top-5-free-download-apps-for-2024/"><u>[Updated] Mastering Pinterest Content Top 5 FREE Download Apps for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-latest-overhaul-sonys-s6500-hd-and-bd-player-review/"><u>2024 Approved Latest Overhaul Sony's S6500 HD & BD Player Review</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/3-ways-to-unlock-apple-iphone-8-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>3 Ways to Unlock Apple iPhone 8 without Passcode or Face ID | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/holistic-iphone-use-images-and-videos-fused-together/"><u>Holistic iPhone Use Images & Videos Fused Together</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-nokia-105-classic-is-unlocked-by-drfone-android/"><u>How To Check if Your Nokia 105 Classic Is Unlocked</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-google-pixel-fold-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Google Pixel Fold to New Android? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-cutting-edge-settings-for-online-broadcasts/"><u>In 2024, Cutting-Edge Settings for Online Broadcasts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-voice-driven-operation-platform-zero-price/"><u>In 2024, Voice-Driven Operation Platform Zero Price</u></a></li>
+<li><a href="https://article-posts.techidaily.com/xsplit-vs-obs-which-one-simplifies-live-broadcast/"><u>XSplit Vs. OBS – Which One Simplifies Live Broadcast?</u></a></li>
 </ul></div>
 

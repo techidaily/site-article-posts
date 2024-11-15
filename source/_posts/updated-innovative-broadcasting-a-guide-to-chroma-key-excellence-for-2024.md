@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Innovative Broadcasting  A Guide to Chroma Key Excellence for 2024\""
-date: 2024-09-09T07:18:36.621Z
-updated: 2024-09-10T07:18:36.621Z
+date: 2024-11-14T17:52:04.973Z
+updated: 2024-11-15T17:05:11.842Z
 tags: 
   - screen-recording
   - ai video
@@ -22,12 +22,6 @@ thumbnail: https://thmb.techidaily.com/00e6694a6e8523368549c14f60a0299171aaa2659
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -52,18 +46,6 @@ If you want to set up a large broadcasting studio the camera you’ll need shoul
 
 ![sony hdc 5500 studio camera](https://images.wondershare.com/filmora/Mac-articles/sony-hdc-5500-studio-camera.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 For normal web or twitch streaming a high-quality webcam should be used. It should have good face tracking and great picture quality. **A 1080p resolution** with the capability of 30-60 frames is a bonus. There are some great cameras on the market that you can even land at **under $100**.
 
 ![clear one unite pro webcam](https://images.wondershare.com/filmora/Mac-articles/clear-one-unite-pro-webcam.jpg)
@@ -78,24 +60,12 @@ For gamers and other streamers like beauty vloggers, twitch anchors, and YouTube
 
 ![foldable green screen](https://images.wondershare.com/filmora/Mac-articles/foldable-green-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Another option of the green screen for streamers is a collapsible green screen. It was introduced by Elgato and is easy to carry and easy to set-up. It can be adjusted to any height and can open and tear down in a matter of seconds. It comes with a relatively high price of around $150 but they are worth the money.
 
 Do remember that any green screen you use should be large enough to give your main subject space to move around. Apart from that, make sure you don’t have any green elements in your subject or your software will also make those areas disappear. **If your subject has blonde hair, a blue screen instead of a green screen is recommended.**
 
 ![elgato green screen stand](https://images.wondershare.com/filmora/Mac-articles/elgato-green-screen-stand.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * Lights
 
 A news broadcasting room will require a key light, fill light, and a backlight per subject so the lights should be set up accordingly. Similarly, for the green screen, enough lights should be set-up to keep the green screen evenly lit depending on the size and shape of your green screen. The number of lights will depend on the shape of your green screen rather than the size.
@@ -106,12 +76,6 @@ For small setups, the most commonly used set-up is the three-point set-up. It is
 
  ![lighting guide for a green screen](https://images.wondershare.com/filmora/Mac-articles/lighting-guide-for-a-green-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The two things to remember about lighting are that there is should be no shadow in the background and the green screen should be lit across evenly. It may take some time for you to learn the correct ways but practice and observation will make it perfect.
 
 * Final Step
@@ -124,12 +88,6 @@ To start a live stream you need to download [XSplit](https://www.xsplit.com/) br
 
 ![xsplit](https://images.wondershare.com/filmora/Mac-articles/xsplit.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Conclusion
 
 Green screens were a thing of luxury in the old times only to be used by filmmakers or news broadcasters. Now, with the current technology, it is possible to set up a green screen studio in your room. From gamers to vloggers, each one is trying to be as creative as possible to attract more viewers to the screen.
@@ -165,4 +123,27 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-essential-zooming-skills-for-clearer-google-meets-for-2024/"><u>[New] Essential Zooming Skills for Clearer Google Meets for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-mastering-podcast-beginnings-eye-catching-strategies/"><u>[New] In 2024, Mastering Podcast Beginnings Eye-Catching Strategies</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-rejuvenated-dialogue-ideas-to-hook-listeners-for-2024/"><u>[New] Rejuvenated Dialogue Ideas to Hook Listeners for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-srt-conversion-simplified-subtitles-transformation-for-2024/"><u>[New] SRT Conversion Simplified Subtitles Transformation for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-art-of-shots-discover-the-best-camera-angles-for-iphones-for-2024/"><u>[New] The Art of Shots Discover the Best Camera Angles for iPhones for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-get-rid-of-youtube-distractions-ad-blocking-on-chrome-firefox-and-ios-for-2024/"><u>[Updated] Get Rid of YouTube Distractions Ad-Blocking on Chrome, Firefox & iOS for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-comprehensive-sync-protocol-for-iphone-to-snapchat-media/"><u>[Updated] In 2024, Comprehensive Sync Protocol for iPhone to Snapchat Media</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-revitalize-your-photos-bringing-back-photo-viewer-in-win-11/"><u>[Updated] In 2024, Revitalize Your Photos Bringing Back Photo Viewer in Win 11</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-share-the-laughter-mastering-kinemaster/"><u>[Updated] In 2024, Share the Laughter Mastering KineMaster</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-photographic-journey-to-cinematic-expression-using-pixizs-tools/"><u>[Updated] Photographic Journey to Cinematic Expression Using Pixiz's Tools</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-prodigys-pathway-expert-techniques-for-iphone-podcast-downloads/"><u>2024 Approved The Prodigy's Pathway Expert Techniques for iPhone Podcast Downloads</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-infinix-hot-30-5g-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from Infinix Hot 30 5G</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exploring-public-domain-art-what-is-it-and-website-recommendations/"><u>In 2024, Exploring Public Domain Art What Is It and Website Recommendations</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

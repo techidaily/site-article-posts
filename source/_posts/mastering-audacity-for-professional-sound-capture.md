@@ -1,7 +1,7 @@
 ---
 title: "Mastering Audacity for Professional Sound Capture"
-date: 2024-11-04T12:41:45.374Z
-updated: 2024-11-04T23:25:22.505Z
+date: 2024-11-12T17:32:55.344Z
+updated: 2024-11-15T18:19:47.163Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,10 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Recording using Mac
@@ -61,10 +61,10 @@ Step3In the "Device" section of the Audacity preferences box, choose "Soundflowe
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Export your audio
@@ -115,17 +115,17 @@ Simply select the necessary file format from the drop-down box that appears next
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discord-videos.techidaily.com/new-how-to-pin-a-message-on-discord/"><u>[New] How to Pin A Message on Discord?</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-superior-audio-transformation-tools-unleash-voices-for-2024/"><u>[Updated] Superior Audio Transformation Tools Unleash Voices for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/best-free-video-viewing-software-guide-top-16/"><u>Best Free Video Viewing Software Guide - Top 16</u></a></li>
-<li><a href="https://article-posts.techidaily.com/combining-images-seamlessly-pc-edition/"><u>Combining Images Seamlessly PC Edition</u></a></li>
-<li><a href="https://article-posts.techidaily.com/comprehensive-insights-for-optimal-iphone-x-animoji-use/"><u>Comprehensive Insights for Optimal iPhone X Animoji Use</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/convergence-video-haute-definition-pour-apple-macintosh-convertisseurs-gratuits-and-premium-par-des-experts-envisagez-le-changement/"><u>Convergence Vidéo Haute Définition Pour Apple Macintosh: Convertisseurs Gratuits & Premium Par Des Experts Envisagez Le Changement!</u></a></li>
-<li><a href="https://article-posts.techidaily.com/crafting-a-unified-brand-presence-on-youtube-for-2024/"><u>Crafting a Unified Brand Presence on YouTube for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/cutting-edge-online-resources-for-glittering-3d-typography-for-2024/"><u>Cutting-Edge Online Resources for Glittering 3D Typography for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Nokia C12 Plus | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop My Spouse from Spying on My Infinix Note 30i | Dr.fone</u></a></li>
-<li><a href="https://data-recovery.techidaily.com/iphone-file-finder-your-reliable-resource/"><u>IPhone File Finder: Your Reliable Resource</u></a></li>
-<li><a href="https://blog-min.techidaily.com/transforma-tus-videos-mka-a-formato-ogg-sin-costo-con-movavi-online-conversion/"><u>Transforma Tus Videos MKA a Formato OGG Sin Costo Con Movavi Online Conversion</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-blueprint-to-blockbuster-scriptwriting-for-films/"><u>[New] In 2024, Blueprint to Blockbuster Scriptwriting for Films</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-mastering-eyes-only-snap-retrieval-on-social-media/"><u>[New] Mastering Eyes-Only Snap Retrieval on Social Media</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-professional-filmmaking-optics-that-elevate-4k-vision/"><u>[New] Professional Filmmaking Optics That Elevate 4K Vision</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/elevate-your-online-presence-with-manycam-advanced-video-editing-and-remote-camera-solutions/"><u>Elevate Your Online Presence with ManyCam - Advanced Video Editing and Remote Camera Solutions</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/exploring-apks-ensuring-safety-when-acquiring-applications/"><u>Exploring APKs: Ensuring Safety When Acquiring Applications</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/exploring-the-best-features-of-the-nook-glowlight-plus-by-barnes-and-noble/"><u>Exploring the Best Features of the Nook GlowLight Plus by Barnes & Noble</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/gratuitamente-converti-i-tuoi-file-flv-al-formato-audio-wav-usando-leditor-di-movavi-gratis-e-facile-da-usare/"><u>Gratuitamente Converti I Tuoi File FLV Al Formato Audio WAV Usando L'editor Di Movavi, Gratis E Facile Da Usare!</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-metaverse-vs-multiverse-a-comprehensive-breakdown/"><u>In 2024, Metaverse vs Multiverse A Comprehensive Breakdown</u></a></li>
+<li><a href="https://some-tips.techidaily.com/mka-flac-on-line/"><u>MKA FLAC 오디오 파일을 원근금지적으로 변환하는 방법: On-Line 가이드</u></a></li>
+<li><a href="https://article-posts.techidaily.com/revolutionizing-work-with-windows-10-innovations-for-2024/"><u>Revolutionizing Work with Windows 10 Innovations for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-the-watchful-eyes-of-facebook/"><u>Stop the Watchful Eyes of Facebook</u></a></li>
+<li><a href="https://fox-that.techidaily.com/ultimate-guide-resolving-iphones-final-line-unavailable-issue/"><u>Ultimate Guide: Resolving iPhone's 'Final Line Unavailable' Issue</u></a></li>
 </ul></div>
 

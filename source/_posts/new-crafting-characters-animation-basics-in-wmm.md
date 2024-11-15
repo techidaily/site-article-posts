@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Crafting Characters  Animation Basics in WMM\""
-date: 2024-09-09T07:18:30.643Z
-updated: 2024-09-10T07:18:30.643Z
+date: 2024-11-09T17:58:11.948Z
+updated: 2024-11-15T16:17:35.821Z
 tags: 
   - screen-recording
   - ai video
@@ -42,12 +42,6 @@ If you wish to clip off a section, go to "Edit" under "Video Tools" and choose t
 
 ![preview video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/preview-video-movie-maker.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step3Open the Animation Tab
 
 You may add two distinct types of animations—Transitions and Pan and Zoom—to video clips or photographs using the Animations window on the ribbon. The dropdown menu next to "Speed" in the "Edit" tab may be expanded to change the speed of a video clip. The 'Duration' dropdown menu allows you to choose how long a certain image will be shown in a movie.
@@ -60,12 +54,6 @@ Between two multimedia portions, a transition effect may be added. In the "Anima
 
 ![add transitions movie maker](https://images.wondershare.com/filmora/article-images/2022/09/add-transitions-movie-maker.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step5Save the Video
 
 When a transition is applied, a washed-out diagonal zone on the clip in the timeline indicates where the transition starts and finishes. Additionally, you have a choice in the sequence in which the effects are used. This may change how the movie is finally shown depending on the Effects, you choose. Once you're done, click Apply.
@@ -73,11 +61,12 @@ When a transition is applied, a washed-out diagonal zone on the clip in the time
 ![save animation video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/save-animation-video-movie-maker.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2\. Movie Maker Alternative to Add Animations
 
 You could encounter certain difficulties as a brand while creating an animated film using Windows Movie Maker for the first time. Despite all the modifications, making animations might still seem like a difficult effort. Most organizations find it difficult to readily include animations into their video marketing plan due to the intricacy of animated videos, among other factors. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) ought to be your only option if you want to produce something extensive, thorough, in-depth, and detailed.
@@ -105,17 +94,12 @@ Filmora helps you create your text animation using the controller window as seen
 The software's Preview window also allows you to preview the animation you've selected before adding it to the timeline with a few simple drag-and-drop actions. After finishing the production and editing of the instructional video, you may save it for distribution on social media. You may choose to save the document as an MP4, WMV, AVI, MOV, or even a GIF file.
 
 <!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3\. Related FAQs about Windows Movie Maker
 
 1. **Where is the Visual Effects tab in Movie Maker?**
@@ -148,12 +132,6 @@ Between two multimedia portions, a transition effect may be added. In the "Anima
 
 ![add transitions movie maker](https://images.wondershare.com/filmora/article-images/2022/09/add-transitions-movie-maker.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step5Save the Video
 
 When a transition is applied, a washed-out diagonal zone on the clip in the timeline indicates where the transition starts and finishes. Additionally, you have a choice in the sequence in which the effects are used. This may change how the movie is finally shown depending on the Effects, you choose. Once you're done, click Apply.
@@ -161,17 +139,12 @@ When a transition is applied, a washed-out diagonal zone on the clip in the time
 ![save animation video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/save-animation-video-movie-maker.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ## Part 2\. Movie Maker Alternative to Add Animations
 
 You could encounter certain difficulties as a brand while creating an animated film using Windows Movie Maker for the first time. Despite all the modifications, making animations might still seem like a difficult effort. Most organizations find it difficult to readily include animations into their video marketing plan due to the intricacy of animated videos, among other factors. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) ought to be your only option if you want to produce something extensive, thorough, in-depth, and detailed.
@@ -199,11 +172,12 @@ Filmora helps you create your text animation using the controller window as seen
 The software's Preview window also allows you to preview the animation you've selected before adding it to the timeline with a few simple drag-and-drop actions. After finishing the production and editing of the instructional video, you may save it for distribution on social media. You may choose to save the document as an MP4, WMV, AVI, MOV, or even a GIF file.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3\. Related FAQs about Windows Movie Maker
 
 1. **Where is the Visual Effects tab in Movie Maker?**
@@ -240,4 +214,22 @@ Simple movies may be easily made using Windows Live Movie Maker. With Windows Vi
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-transforming-google-meet-screens-on-devices/"><u>[New] 2024 Approved Transforming Google Meet Screens on Devices</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-elevating-visual-effects-the-impact-of-magix-vpx/"><u>[New] In 2024, Elevating Visual Effects The Impact of Magix VPX</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-enhance-your-workspace-best-8-macbook-wallpapers/"><u>[New] In 2024, Enhance Your Workspace Best 8 MacBook Wallpapers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-from-silent-screens-to-captivating-media-instantly-create-captions-on-fb/"><u>[Updated] 2024 Approved From Silent Screens to Captivating Media Instantly Create Captions on FB</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-free-range-riffs-and-rhythms-in-free-fire-for-2024/"><u>[Updated] Free Range Riffs and Rhythms in Free Fire for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-art-of-virtual-visualization-in-digital-streaming-platforms-for-2024/"><u>[Updated] The Art of Virtual Visualization in Digital Streaming Platforms for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-mastering-the-art-of-youtube-thumbnail-capture/"><u>2024 Approved Mastering the Art of YouTube Thumbnail Capture</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/conversion-directe-et-gratuite-transformez-vos-fichiers-dpx-en-png-via-movavi-en-ligne/"><u>Conversion Directe Et Gratuite: Transformez Vos Fichiers DPX en PNG via Movavi en Ligne</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discovering-magic-the-essential-smart-home-upgrade-you-never-knew-about-with-our-enchanting-light-projection-technology/"><u>Discovering Magic: The Essential Smart Home Upgrade You Never Knew About with Our Enchanting Light Projection Technology</u></a></li>
+<li><a href="https://article-posts.techidaily.com/elevating-images-pro-techniques-for-photography-perfection-for-2024/"><u>Elevating Images Pro Techniques for Photography Perfection for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/how-to-transfer-and-share-your-dvd-files-on-the-vimeo-platform-easily/"><u>How To Transfer And Share Your DVD Files On The Vimeo Platform Easily</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6s-plus-without-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 6s Plus Without Passcode? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/strategy-cradle-nurturing-market-gains/"><u>Strategy Cradle Nurturing Market Gains</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/tech-insights-from-tom-the-authority-in-computer-hardware-review/"><u>Tech Insights From Tom: The Authority in Computer Hardware Review</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/youtube-movie-maker-unleashed-creative-possibilities-explored-for-2024/"><u>YouTube Movie Maker Unleashed Creative Possibilities Explored for 2024</u></a></li>
+</ul></div>
 

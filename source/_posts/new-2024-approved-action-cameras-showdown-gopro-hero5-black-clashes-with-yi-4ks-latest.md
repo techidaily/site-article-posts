@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Action Cameras Showdown  GoPro Hero5 Black Clashes with Yi 4K's Latest\""
-date: 2024-09-09T07:18:32.647Z
-updated: 2024-09-10T07:18:32.647Z
+date: 2024-11-12T18:22:30.389Z
+updated: 2024-11-15T17:20:08.570Z
 tags: 
   - screen-recording
   - ai video
@@ -16,24 +16,12 @@ keywords: "\"GoPro Hero5 Battle,YI 4K ActionCam,Hero5 vs Yi Quality,Black GoPro 
 thumbnail: https://thmb.techidaily.com/97b0ddc570e6ff11d98aa739ad9094bf8b6916f3ca7d54eab5f1d4007ba674c0.JPG
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Action Cameras Showdown: GoPro Hero5 Black Clashes with Yi 4K's Latest
 
 # GoPro Hero5 Black vs. Yi 4K Action Camera: Which is Better?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Max Wales
 
  Mar 27, 2024• Proven solutions
@@ -46,12 +34,6 @@ thumbnail: https://thmb.techidaily.com/97b0ddc570e6ff11d98aa739ad9094bf8b6916f3c
 
 [Best GoPro Alternatives >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Comparison for Hero5 Black and Yi 4K Action Camera
 
 #### Basic specs comparison table
@@ -85,18 +67,6 @@ thumbnail: https://thmb.techidaily.com/97b0ddc570e6ff11d98aa739ad9094bf8b6916f3c
 
 ![Yi 4K action camera touchscreen](https://images.wondershare.com/filmora/article-images/yi-4k-touchscreen.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Image source:elproducente.com
 
 **Waterproof:** The biggest benefit of GoPro Hero5 is that it can serve you underwater but YI 4K cannot as you need additional protective case for this camera. But you cannot save your recordings from handling noise in case of GoPro unit. When you go underwater with YI 4K while using protective housing then it is not possible to use its touch screen feature and secondly the audio quality decays by large extent.
@@ -119,12 +89,6 @@ thumbnail: https://thmb.techidaily.com/97b0ddc570e6ff11d98aa739ad9094bf8b6916f3c
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -148,4 +112,33 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-the-essentials-of-whatsapp-call-messages/"><u>[New] 2024 Approved The Essentials of WhatsApp Call Messages</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-the-ultimate-image-sharing-blueprint-for-youtube-enthusiasts/"><u>[New] 2024 Approved The Ultimate Image Sharing Blueprint for YouTube Enthusiasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-digital-transit-how-to-route-files-to-your-computer/"><u>[New] In 2024, Digital Transit How to Route Files to Your Computer</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-echoes-of-the-past-iphone-x-portraiture/"><u>[New] In 2024, Echoes of the Past IPhone X Portraiture</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-hero5-black-vs-yis-new-tech-action-cam-showdown-update/"><u>[New] In 2024, Hero5 Black Vs. Yi's New Tech Action Cam Showdown Update</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-photographers-secret-to-color-inversion/"><u>[New] The Photographer's Secret to Color Inversion</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-time-stretched-pixelation-the-ultimate-guide-to-cam-gear/"><u>[New] Time-Stretched Pixelation The Ultimate Guide to Cam Gear</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-how-to-use-story-remix-to-edit-a-video-in-windows-10-photos/"><u>[Updated] 2024 Approved How to Use Story Remix to Edit a Video in Windows 10 Photos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-complete-guide-for-posting-photos-online/"><u>[Updated] 2024 Approved The Complete Guide for Posting Photos Online</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discover-the-ultimate-list-6-exceptional-standalone-language-apps/"><u>Discover the Ultimate List: 6 Exceptional Standalone Language Apps</u></a></li>
+<li><a href="https://article-posts.techidaily.com/essential-steps-for-identifying-a-great-stream-network/"><u>Essential Steps for Identifying a Great Stream Network</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Samsung Galaxy S23? | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-stop-discord-from-crashing-during-live-streams-solutions-unveiled/"><u>How to Stop Discord From Crashing During Live Streams - Solutions Unveiled</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-maximizing-mobile-video-quality-in-tweets/"><u>In 2024, Maximizing Mobile Video Quality in Tweets</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-the-art-of-incorporating-s2t-features-into-ppt/"><u>In 2024, The Art of Incorporating S2T Features Into PPT</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/pixiz-essentials-from-stills-to-moving-images/"><u>Pixiz Essentials From Stills to Moving Images</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/pro-tips-to-enhance-your-use-of-instagrams-query-symbol/"><u>Pro Tips to Enhance Your Use of Instagram's Query Symbol</u></a></li>
+<li><a href="https://win-dash.techidaily.com/the-ultimate-tutorial-on-leveraging-template-features-for-different-data-types-in-excel/"><u>The Ultimate Tutorial on Leveraging Template Features for Different Data Types in Excel</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

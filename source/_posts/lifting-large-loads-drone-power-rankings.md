@@ -1,7 +1,7 @@
 ---
 title: "\"Lifting Large Loads - Drone Power Rankings\""
-date: 2024-11-01T21:31:14.505Z
-updated: 2024-11-05T00:18:49.825Z
+date: 2024-11-08T18:02:02.837Z
+updated: 2024-11-15T18:54:40.416Z
 tags: 
   - screen-recording
   - ai video
@@ -56,10 +56,10 @@ Here are the best heavy lifting drones available in 2020, broken into over-10 kg
 | [ONYXSTAR HYDRA-12](#hydra12)                  | 12kg                                    | 30min       |       |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Heavy lifting Drones: Under-10kg payload
@@ -69,10 +69,10 @@ Here are the best heavy lifting drones available in 2020, broken into over-10 kg
 ![tarot t-18 ready to fly drone](https://images.wondershare.com/filmora/article-images/tarot-t-18-ready-to-fly-drone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The Tarot T-18 Ready To Fly Drone might just be the ideal drone for those (professional or amateur) who are looking to take outstanding, aerial photography with a decent sized DSLR, thanks to its capability of carrying up to an 8 kg payload. Thanks to the Tarot T-18's octocopter design, a heavy DSLR (or any other payload) will not cause stability or power issues that can come from single-, or even double-rotor drones. With a 20 min. flight time, the Tarot T-18 can be the perfect tool to add to any aerial photographers tool chest.
@@ -121,13 +121,6 @@ The Airlift series is one of Vulcan's heaviest lifting drones to date. With the 
 
 ![az 4k uhd camera drone green bee 1200](https://images.wondershare.com/filmora/article-images/az-4k-uhd-camera-drone-green-bee-1200.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 As the need for drones that can do some seriously heavy lifting has increased, the AZ 4K UHD Camera Drone Green Bee 1200 has stepped up to fill these needs. Whether you are looking to do some heavy lifting in the realm of photography or cinema, or you need a drone that can move your research and development technology around your indoor or outdoor work area, this drone has you covered. With the ability to carry a payload of up to 20 kg, and a flight time of 20 min. per battery, the AZ 4K UHD Camera Drone Green Bee 1200 is going to allow you to master any heavy lifting work situation with ease.
 
 #### 3\. Vulcan UAV Raven
@@ -148,6 +141,13 @@ Building off of an already sturdy line of drones, the Freefly ALTA 8 is the perf
 
 ![onyxstar hydra-12](https://images.wondershare.com/filmora/article-images/onyxstar-hydra-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads with absolute ease. Thanks to its 12 motors, this drone is capable of carrying a payload of up to 12 kg effectively and smoothly. Thanks to the HYDRA-12's ability to carry heavy payloads the possibilities for this drone are nearly endless. What is impossible for many drones on the market, the HYDRA-12 will do with great ease. And with a 30 min. flight time, you will have a lot of time in the air to get your job done.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -155,10 +155,10 @@ The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads w
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -186,16 +186,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-joint-ventures-in-content-creation-for-youtube-audiences/"><u>[New] 2024 Approved Joint Ventures in Content Creation for YouTube Audiences</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-best-choices-for-livestreaming-made-simple-mac-edition-for-2024/"><u>[New] Best Choices for Livestreaming Made Simple - Mac Edition for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-how-can-i-go-live-on-facebook-for-2024/"><u>[New] How Can I Go Live on Facebook for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-unlock-pip-in-edge-for-a-superior-browsing-experience/"><u>[New] In 2024, Unlock PIP in Edge for a Superior Browsing Experience</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-optimal-sound-settings-win/"><u>[Updated] In 2024, Optimal Sound Settings WIN</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-mastering-iphone-flipping-and-tilting-photos-perfectly-for-2024/"><u>[Updated] Mastering iPhone Flipping & Tilting Photos Perfectly for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-stabilizing-pixels-the-truth-behind-photoshop-shake/"><u>[Updated] Stabilizing Pixels The Truth Behind Photoshop Shake</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/expert-advice-how-not-to-see-live-news-on-your-windows-11-desktop/"><u>Expert Advice: How Not to See Live News on Your Windows 11 Desktop</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-pc-sound-card-reviews-the-definitive-list-of-2024-models/"><u>Leading PC Sound Card Reviews - The Definitive List of 2024 Models</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/navigating-virtual-realms-iphone-vr-video-playback/"><u>Navigating Virtual Realms IPhone VR Video Playback</u></a></li>
-<li><a href="https://driver-error.techidaily.com/no-response-from-apple-tv-remote-on-macos-sierra-fix-ready/"><u>No Response From Apple TV Remote on MacOS Sierra (Fix Ready)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-13-key-tactics-for-enhanced-visibility-in-facebook-videography-for-2024/"><u>[New] 13 Key Tactics for Enhanced Visibility in Facebook Videography for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-visual-filmmaking-resources-environmentally-conscious/"><u>[New] In 2024, Visual Filmmaking Resources - Environmentally Conscious</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-discover-the-top-10-iosandroid-vr-games/"><u>[Updated] Discover the Top 10 iOS/Android VR Games</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-mastering-close-up-techniques-with-videoleap/"><u>[Updated] In 2024, Mastering Close-Up Techniques with Videoleap</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-sticker-enhanced-imagery-ios-and-androids-best-app-companions/"><u>[Updated] In 2024, Sticker-Enhanced Imagery IOS and Android's Best App Companions</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-simplified-methods-to-validate-your-youtube-status/"><u>2024 Approved Simplified Methods to Validate Your YouTube Status</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/7-ways-to-unlock-a-locked-xiaomi-redmi-note-12-proplus-5g-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Xiaomi Redmi Note 12 Pro+ 5G Phone</u></a></li>
+<li><a href="https://solve-news.techidaily.com/harnessing-the-power-of-cookiebot-for-enhanced-web-presence-and-seo-mastery/"><u>Harnessing the Power of Cookiebot for Enhanced Web Presence and SEO Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/hold-your-breath-for-oculus-quest-iii-schedule-change/"><u>Hold Your Breath for Oculus Quest III Schedule Change</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-snapcutsolutions-reviews-extensive-critique/"><u>In 2024, SnapCutSolutions Reviews – Extensive Critique</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-social-media-savvy-quick-fire-tips-for-aspiring-online-marketers/"><u>In 2024, Social Media Savvy Quick-Fire Tips for Aspiring Online Marketers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-the-ultimate-guide-to-skype-sessions-with-obs-streaming/"><u>In 2024, The Ultimate Guide to Skype Sessions with OBS Streaming</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/madden-nfl-19-evaluation-engaging-features-overshadowed-by-familiarity/"><u>Madden NFL '19 Evaluation: Engaging Features Overshadowed by Familiarity</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-resolving-the-0x0000007b-blue-screen-of-death-issue/"><u>Ultimate Guide: Resolving the 0X0000007B Blue Screen of Death Issue</u></a></li>
 </ul></div>
 

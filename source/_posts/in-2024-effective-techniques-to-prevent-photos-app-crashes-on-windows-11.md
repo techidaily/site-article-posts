@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Effective Techniques to Prevent Photos App Crashes on Windows 11"
-date: 2024-10-30T09:24:43.307Z
-updated: 2024-11-04T21:45:19.595Z
+date: 2024-11-14T18:58:30.223Z
+updated: 2024-11-15T19:04:36.673Z
 tags: 
   - screen-recording
   - ai video
@@ -61,6 +61,13 @@ Here is how to troubleshoot –
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Solution 2: Restore Default Libraries
 
 Restoring the default libraries would resolve the Windows 10 Photos App crash issues. Resetting the Photo App to its default source to a valid network, path fixes the case.
@@ -71,6 +78,13 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
    4. Tap ‘Restore Defaults’ from the bottom-right portion of the screen.
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
@@ -84,13 +98,6 @@ Here is how can you reset it –
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Solution 4: Repair Photos App package
 
 A corrupted Photos App package might wreak havoc in your photo viewing, as the app doesn’t buzz follow your commands. The least you can do here is repair the package to fix minor glitches within and get it going.
@@ -103,10 +110,10 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 4. Now, the Windows 10 Photos App won’t crash.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution 5: Reinstall Windows 10 Photos app
@@ -121,10 +128,16 @@ Here is how to reinstall the Windows 10 Photos App –
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -134,13 +147,6 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -167,21 +173,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-androids-ultimate-fix-for-frustratingly-slow-vids/"><u>[New] 2024 Approved Android's Ultimate Fix for Frustratingly Slow Vids</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-efficient-strategies-for-designing-podcast-rss-feeds/"><u>[New] 2024 Approved Efficient Strategies for Designing Podcast RSS Feeds</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-ethical-relaxation-soundscapes/"><u>[New] 2024 Approved Ethical Relaxation Soundscapes</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-the-ultimate-guide-to-proficiently-navigating-win-10/"><u>[New] In 2024, The Ultimate Guide to Proficiently Navigating Win 10</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-winning-art-tools-comparison-chart-free-and-paid-apps-for-2024/"><u>[New] Winning Art Tools Comparison Chart FREE & PAID Apps for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-10-best-webcams-to-enhance-your-podcast-experience/"><u>[Updated] 2024 Approved 10 Best Webcams to Enhance Your Podcast Experience</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-perfecting-zoom-screen-sharpness-users-handbook/"><u>[Updated] Perfecting Zoom Screen Sharpness User's Handbook</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/sony-vaiopcssd/"><u>「Sony VaioノートPC用SSDへの容易な、お手頃価格無料ハードディスクアップグレードガイド」</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-29-cost-free-youtube-sound-extractors-free-youtube-audio-downloads/"><u>2024 Approved 29 Cost-Free YouTube Sound Extractors Free YouTube Audio Downloads</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/best-5-ios-apps-for-efficient-podcasting/"><u>Best 5 iOS Apps for Efficient Podcasting</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to use Pokemon Go Joystick on Apple iPhone 8 Plus? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-metaverse-chuckles-building-your-own-humorous-artifacts/"><u>In 2024, Metaverse Chuckles Building Your Own Humorous Artifacts</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-top-5-best-websites-to-add-emojis-to-photo-online/"><u>In 2024, Top 5 Best Websites to Add Emojis to Photo Online</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/revolutionizing-online-shopping-discover-ebays-innovative-ai-powered-personal-assistant-get-started-now/"><u>Revolutionizing Online Shopping: Discover eBay's Innovative AI-Powered Personal Assistant - Get Started Now!</u></a></li>
-<li><a href="https://article-posts.techidaily.com/ultimate-trailer-highlight-hodgepodge/"><u>Ultimate Trailer Highlight Hodgepodge</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/why-your-book-might-not-be-translating-well-solutions-explored/"><u>Why Your Book Might Not Be Translating Well - Solutions Explored</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-cartoony-conversion-chronicles-top-windowsmac-imaging-software/"><u>[New] 2024 Approved Cartoony Conversion Chronicles Top Windows/Mac Imaging Software</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-iconic-inning-cameo-examination/"><u>[New] Iconic Inning - Cameo Examination</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-amplifying-obs-visual-appeal-with-free-high-quality-luts/"><u>[New] In 2024, Amplifying OBS Visual Appeal with Free, High-Quality LUTs</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-gelato-gaze-guide-thorough-analysis-and-detailed-instructions-on-ice-cream-monitoring/"><u>[New] In 2024, Gelato Gaze Guide Thorough Analysis & Detailed Instructions on Ice Cream Monitoring</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-mobile-media-the-art-of-filming-with-a-smartphone/"><u>[New] Mastering Mobile Media The Art of Filming with a Smartphone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-choosing-between-obs-and-streamlabs-for-broadcast-excellence/"><u>[Updated] Choosing Between OBS and Streamlabs for Broadcast Excellence</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-exploring-lgs-27ud68-4k-freesync-tv-reviews-for-2024/"><u>[Updated] Exploring LG's 27UD68 4K FreeSync TV Reviews for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-googles-ar-sticker-innovation-an-inside-look-and-alternatives/"><u>[Updated] Google's AR Sticker Innovation An Inside Look & Alternatives</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-next-gen-gaming-horizon-upcoming-bests-in-playstation-vr/"><u>[Updated] In 2024, Next-Gen Gaming Horizon Upcoming Bests in PlayStation VR</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-transcoding-ttml-and-ssa-into-easy-to-use-srt-format/"><u>[Updated] In 2024, Transcoding TTML & SSA Into Easy-to-Use SRT Format</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-one-by-one-instagram-showcase/"><u>[Updated] One-by-One Instagram Showcase</u></a></li>
+<li><a href="https://article-posts.techidaily.com/essential-cloud-saving-apps-for-android-users-2024-rankings/"><u>Essential Cloud Saving Apps for Android Users (2024 Rankings)</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-tutorial-to-bypass-your-infinix-zero-30-5g-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Infinix Zero 30 5G Face Lock?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-high-octane-comparison-gopro-hero-4-vs-drift-ghost-s/"><u>In 2024, High Octane Comparison GoPro Hero 4 Vs. Drift Ghost-S</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-high-def-showdown-top-8k-tvs-rated-and-reviewed/"><u>In 2024, High-Def Showdown Top 8K TVs Rated and Reviewed</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Revamping Your Windows 11 Photo Viewer  Add Filters and Background Music\""
-date: 2024-11-03T08:30:18.957Z
-updated: 2024-11-04T23:05:44.761Z
+date: 2024-11-11T17:56:24.046Z
+updated: 2024-11-15T16:22:29.617Z
 tags: 
   - screen-recording
   - ai video
@@ -58,6 +58,19 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 **Step 5**: Just select one you like. Preview it and then click Done.
 
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to add music on Windows 10 Photos App
 
 Now that you have learnt how to **_add filters using Windows 10 Photos app._** Do you think there is any possibility regarding adding music over it? Adding music to your video would make it more enjoyable. The artificial intelligence feature on Windows 10 Photos app helps it add music to videos with a single click. It’s easy to do, but meanwhile there will be some twitches to the way artificial intelligence videos show up as you try to match the volume and tempo of the music. But, you can do it with the help of default Microsoft tools.
@@ -71,30 +84,23 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 5**: Hit the ‘Done’ button.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -104,10 +110,10 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -135,21 +141,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-essential-strategies-for-nba-live-streaming/"><u>[New] 2024 Approved Essential Strategies for NBA Live Streaming</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-discover-the-best-unboxing-experience-on-youtube/"><u>[New] Discover the Best Unboxing Experience on YouTube</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-going-against-the-tide-of-tradition-innovative-techniques-for-yt-rewinds/"><u>[New] In 2024, Going Against the Tide of Tradition Innovative Techniques for YT Rewinds</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-the-ultimate-snapchat-checklist-for-engaging-content/"><u>[New] In 2024, The Ultimate Snapchat Checklist for Engaging Content</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-pro-3-unboxed-a-comprehensive-review-of-ions-marvel/"><u>[New] Pro 3 Unboxed A Comprehensive Review of ION's Marvel</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-secure-fb-pages-with-ease-8-best-tools-no-cost-online-for-2024/"><u>[New] Secure FB Pages with Ease 8 Best Tools, No Cost Online for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-the-foundations-of-facebook-video-marketing-for-2024/"><u>[New] The Foundations of Facebook Video Marketing for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-value-capture-budget-cam-essentials-for-2024/"><u>[New] Value Capture Budget Cam Essentials for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-viewers-guide-app-performance-analysis/"><u>[New] Viewer's Guide App Performance Analysis</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-beginners-guide-to-gopro-extras/"><u>[Updated] 2024 Approved Beginner's Guide to GoPro Extras</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-enhance-your-audio-experience-with-windows-11-recording-tips-for-2024/"><u>[Updated] Enhance Your Audio Experience with Windows 11 Recording Tips for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-xbox-one-zoom-integration-essential-tips-for-2024/"><u>[Updated] Xbox One Zoom Integration Essential Tips for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-11x-5g-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from 11X 5G</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-vivo-x-fold-2-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Vivo X Fold 2 | Dr.fone</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/tackling-displays-erratic-behavior-on-lenovo/"><u>Tackling Displays' Erratic Behavior on Lenovo</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/unleash-online-presence-with-manycam-the-definitive-guide-to-virtual-webcams-and-advanced-live-video-tools/"><u>Unleash Online Presence with ManyCam: The Definitive Guide to Virtual Webcams and Advanced Live Video Tools</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-embark-on-a-virtual-odyssey-with-your-ios-device/"><u>[New] 2024 Approved Embark on a Virtual Odyssey with Your iOS Device</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-ultimate-list-of-20-magic-words-for-marketing-for-2024/"><u>[New] The Ultimate List of 20 Magic Words for Marketing for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tiktok-triumphs-in-twitter-land-toptiktoks-revealed-for-2024/"><u>[New] TikTok Triumphs in Twitter Land #TopTikToks Revealed for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-ultimate-roku-guide-to-facebook-live-streams/"><u>[Updated] 2024 Approved The Ultimate Roku Guide to Facebook Live Streams</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-top-notch-techniques-for-saving-online-radio-broadcasts/"><u>[Updated] In 2024, Top-Notch Techniques for Saving Online Radio Broadcasts</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/enthralling-3d-experience-selecting-top-blu-ray-decks/"><u>Enthralling 3D Experience Selecting Top Blu-Ray Decks</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-designs-unleashed-comprehensive-guide-to-animation-suites/"><u>In 2024, Innovative Designs Unleashed Comprehensive Guide to Animation Suites</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Oppo Reno 11F 5G | Dr.fone</u></a></li>
 </ul></div>
 

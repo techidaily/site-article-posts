@@ -1,7 +1,7 @@
 ---
 title: "Winning Strategies for Win 11'S Crashy Photos App"
-date: 2024-10-31T16:57:08.694Z
-updated: 2024-11-05T08:04:13.999Z
+date: 2024-11-09T16:15:02.907Z
+updated: 2024-11-15T16:04:08.971Z
 tags: 
   - screen-recording
   - ai video
@@ -47,13 +47,6 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 
 ## How to fix Windows 10 Photos app crashes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Solution 1: Use the Troubleshooter
 
 The Windows Troubleshooter is an inbuilt troubleshooting feature embedded with Windows 10 computers. It allows a simple interface to help you choose any application for troubleshooting. Windows Troubleshooter resolves basic issues with the Windows computer so that users can seamlessly use all Windows 10 system features and functionalities.
@@ -65,15 +58,15 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
 
@@ -86,7 +79,27 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
+
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -99,10 +112,10 @@ Here is how can you reset it –
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
@@ -133,13 +146,6 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -167,22 +173,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-audiograbbers-free-toolkit-and-evaluation/"><u>[New] AudioGrabbers Free Toolkit & Evaluation</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-in-2024-the-ultimate-combo-using-spotify-in-discord-channels/"><u>[New] In 2024, The Ultimate Combo Using Spotify in Discord Channels</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-gaming-memories-made-easy-with-fraps-for-2024/"><u>[Updated] Gaming Memories Made Easy with Fraps for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-hd-mastery-in-action-top-5-screen-recorders-reviewed-for-2024/"><u>[Updated] HD Mastery in Action Top 5 Screen Recorders Reviewed for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-the-visual-editors-journey-cropping-content-for-instagram-standout/"><u>[Updated] The Visual Editor's Journey Cropping Content for Instagram Standout</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-streamline-video-capture-macbook-webcam-tips/"><u>2024 Approved Streamline Video Capture MacBook Webcam Tips</u></a></li>
-<li><a href="https://article-posts.techidaily.com/adding-pictures-to-instagram-with-ease-for-2024/"><u>Adding Pictures to Instagram with Ease for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/advanced-gopro-filmmaking-hacks/"><u>Advanced GoPro Filmmaking Hacks</u></a></li>
-<li><a href="https://article-posts.techidaily.com/amp-up-your-sessions-with-essential-tips-from-zooms-changer-suite-for-2024/"><u>Amp Up Your Sessions with Essential Tips From Zoom's Changer Suite for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/apples-m1-expedition-the-new-era-of-computing-for-2024/"><u>Apple's M1 Expedition The New Era of Computing for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/bridging-platforms-instagram-and-tik-tok-synergy-manual/"><u>Bridging Platforms Instagram & Tik Tok Synergy Manual</u></a></li>
-<li><a href="https://article-posts.techidaily.com/callers-audio-logger-iphone-24/"><u>Caller's Audio Logger IPhone '24</u></a></li>
-<li><a href="https://article-posts.techidaily.com/craft-your-own-visual-story-iphones-top-10-image-design-techniques/"><u>Craft Your Own Visual Story IPhone's Top 10 Image Design Techniques</u></a></li>
-<li><a href="https://article-posts.techidaily.com/decoding-the-language-of-auditory-cues-in-movie-previews/"><u>Decoding the Language of Auditory Cues in Movie Previews</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/exploring-the-telegram-platform-an-in-depth-look-at-messaging/"><u>Exploring the Telegram Platform: An In-Depth Look at Messaging</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-how-do-i-make-my-video-perfectly-fit-instagram/"><u>In 2024, How Do I Make My Video Perfectly Fit Instagram?</u></a></li>
-<li><a href="https://program-issues.techidaily.com/step-by-step-guide-to-finding-and-installing-logitech-g403-mouse-drivers-on-desktopslaptops/"><u>Step-by-Step Guide to Finding and Installing Logitech G403 Mouse Drivers on Desktops/Laptops</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-exploring-the-dynamics-of-canon-timelapse-imagery-for-2024/"><u>[New] Exploring the Dynamics of Canon Timelapse Imagery for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-mastering-mobile-camera-best-android-practices/"><u>[New] Mastering Mobile Camera Best Android Practices</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-pro-level-clarity-top-8k-cameras-for-the-ultimate-picture-for-2024/"><u>[New] Pro-Level Clarity Top 8K Cameras for the Ultimate Picture for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-instant-tiktok-content-access-a-step-by-step/"><u>[Updated] 2024 Approved Instant TikTok Content Access - A Step-by-Step</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-efficient-use-of-telegram-browser-interface/"><u>[Updated] Efficient Use of Telegram Browser Interface</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-hacking-the-meme-game-master-kinemaster-skills/"><u>[Updated] Hacking the Meme Game Master KineMaster Skills</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/4-ways-to-unlock-iphone-xs-to-use-usb-accessories-without-passcode-by-drfone-ios/"><u>4 Ways to Unlock iPhone XS to Use USB Accessories Without Passcode</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-installation-of-canon-mx-series-mx492-drivers-download-and-update-tutorial-for-windows-users/"><u>Easy Installation of Canon MX Series (MX492) Drivers: Download & Update Tutorial for Windows Users</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-from-beginner-to-pro-top-glitch-video-editors-for-every-skill-level/"><u>In 2024, From Beginner to Pro Top Glitch Video Editors for Every Skill Level</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-make-your-favorite-tiktok-sound-a-phones-custom-ringtone/"><u>In 2024, Make Your Favorite TikTok Sound a Phone's Custom Ringtone</u></a></li>
+<li><a href="https://win-bits.techidaily.com/losungen-zum-speichern-auf-dem-netzlaufwerk/"><u>Lösungen Zum Speichern Auf Dem Netzlaufwerk</u></a></li>
+<li><a href="https://article-posts.techidaily.com/prime-8-transformative-lenses-for-virtual-conferencing/"><u>Prime 8 Transformative Lenses for Virtual Conferencing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/swift-recovery-reviving-windows-photo-viewer-on-modern-os-for-2024/"><u>Swift Recovery Reviving Windows Photo Viewer on Modern OS for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Step-by-Step to Upgraded Windows Photos Visuals & Tunes\""
-date: 2024-09-09T07:18:34.288Z
-updated: 2024-09-10T07:18:34.288Z
+date: 2024-11-08T16:14:11.039Z
+updated: 2024-11-15T17:43:33.077Z
 tags: 
   - screen-recording
   - ai video
@@ -16,18 +16,6 @@ keywords: "Windows Photo Upgrade Guide,Enhanced Windows Photo Viewing,Windows Ph
 thumbnail: https://thmb.techidaily.com/6f98ed833e99780ec633017bfd02ba19a6f592b2168edc5e24a71f77a22d913e.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## A Step-by-Step to Upgraded Windows Photos Visuals & Tunes
 
 # How to Add Filters and Music on Windows 10 Photos App
@@ -57,25 +45,20 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 5**: Just select one you like. Preview it and then click Done.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
 
@@ -89,24 +72,32 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 5**: Hit the ‘Done’ button.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
@@ -114,11 +105,12 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -142,4 +134,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-help.techidaily.com/new-eye-openers-yearly-infographics-on-yts-surprising-stats-17/"><u>[New] Eye-Openers! Yearly Infographics on YT's Surprising Stats ('17)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-assembling-a-spectacular-screenplay-cut-out/"><u>[New] In 2024, Assembling a Spectacular Screenplay Cut-Out</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-prowl-without-interrups-find-the-best-7-android-adblock-tools/"><u>[New] Prowl Without Interrups Find the Best 7 Android AdBlock Tools</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unraveling-the-secrets-of-exceptional-green-screen-filming/"><u>[New] Unraveling the Secrets of Exceptional Green Screen Filming</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-15-best-royalty-free-music-download-sites-for-youtube-creators/"><u>[Updated] 15 Best Royalty Free Music Download Sites For YouTube Creators</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-premiere-camera-lineup-for-high-definition-live-concert-videos/"><u>[Updated] 2024 Approved Premiere Camera Lineup for High-Definition Live Concert Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-ultimate-software-showdown-winning-windows-10-video-grabbers/"><u>[Updated] Ultimate Software Showdown Winning Windows 10 Video Grabbers</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-evolutionary-journey-of-metaverse-laughter/"><u>2024 Approved The Evolutionary Journey of Metaverse Laughter</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-leading-the-way-in-iphonecomputer-video-format-conversion/"><u>In 2024, Leading the Way in iPhone/Computer Video Format Conversion</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-master-iphoneandroid-apps-top-10-photo-edits-guide/"><u>In 2024, Master iPhone/Android Apps Top 10 Photo Edits Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-professionals-choice-best-drone-gimbals/"><u>In 2024, Professional's Choice Best Drone Gimbals</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/mastering-3d-printing-at-home-the-ultimate-strategy-for-your-domestic-workshop/"><u>Mastering 3D Printing at Home - The Ultimate Strategy for Your Domestic Workshop</u></a></li>
+<li><a href="https://common-error.techidaily.com/total-war-rome-remastered-crashes-solved/"><u>Total War: ROME REMASTERED Crashes [SOLVED]</u></a></li>
+</ul></div>
 

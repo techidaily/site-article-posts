@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Visionaries of Virtuality  Industry Breakthroughs\""
-date: 2024-10-29T18:43:37.510Z
-updated: 2024-11-05T07:52:45.386Z
+date: 2024-11-09T16:20:40.409Z
+updated: 2024-11-15T18:19:17.512Z
 tags: 
   - screen-recording
   - ai video
@@ -41,10 +41,10 @@ thumbnail: https://thmb.techidaily.com/693eb80266e384166dbf5061df1490b93fef1d741
  )
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The VR gaming development is truly rising then
@@ -53,15 +53,22 @@ thumbnail: https://thmb.techidaily.com/693eb80266e384166dbf5061df1490b93fef1d741
 
 ![vr-gaming ](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg )
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
 
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## About the European VR game makers and their funding
@@ -71,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/693eb80266e384166dbf5061df1490b93fef1d741
 ![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
@@ -82,13 +89,6 @@ thumbnail: https://thmb.techidaily.com/693eb80266e384166dbf5061df1490b93fef1d741
  Overall, this is what cooking inside the VR gaming world and this survey report explains the different aspects of virtual reality that clearly presents the state of the VR industry on this year – 2016\. Hopefully, we will come across much more advancement to this process in the coming years since gaming on VR headsets is massively exciting and fun.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -115,17 +115,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-essential-insights-best-instagram-editors-for-mobile-and-pc/"><u>[New] 2024 Approved Essential Insights Best Instagram Editors for Mobile and PC</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-top-5-easy-android-image-fixes/"><u>[New] In 2024, Top 5 Easy Android Image Fixes</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-androids-ultimate-fix-for-frustratingly-slow-vids-for-2024/"><u>[Updated] Android's Ultimate Fix for Frustratingly Slow Vids for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-from-pro-to-max-the-evolutionary-journey-in-apples-m-chips/"><u>[Updated] In 2024, From Pro to Max The Evolutionary Journey in Apple's M Chips</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-art-and-craft-of-documentary-writing/"><u>[Updated] In 2024, The Art and Craft of Documentary Writing</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/elite-4k-recording-units-our-favorites-of-18-for-2024/"><u>Elite 4K Recording Units Our Favorites of 18 for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/exploring-top-rated-frame-rate-choices-for-cinema-slow-motion/"><u>Exploring Top-Rated Frame Rate Choices for Cinema Slow-Motion</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-silent-speakers-resolving-conexant-smartaudio-hd-issues-on-windows-11/"><u>Fixing Silent Speakers: Resolving Conexant SmartAudio HD Issues on Windows 11</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-10-best-tags-analyzing-apps-fb-twt-and-ig-platforms/"><u>In 2024, 10 Best Tags Analyzing Apps FB, Twt & IG Platforms</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-the-artisans-approach-to-archiving-facebook-discussions/"><u>In 2024, The Artisan's Approach to Archiving Facebook Discussions</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/transform-your-chromebook-how-to-install-linux-and-unlock-new-features/"><u>Transform Your Chromebook How to Install Linux and Unlock New Features</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-illuminating-your-android-videos/"><u>[New] 2024 Approved Illuminating Your Android Videos</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-from-raw-tape-to-broadcast-ready-using-studio-editor-for-2024/"><u>[New] From Raw Tape to Broadcast-Ready Using Studio Editor for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-leading-the-charge-smart-transcription-in-professional-slides/"><u>[New] Leading the Charge Smart Transcription in Professional Slides</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-revolutionary-no-cost-online-convertors-for-tiktop-to-mp3-for-2024/"><u>[New] Revolutionary No-Cost Online Convertors for TikTop to MP3 for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-quintessential-editing-advantages-of-filmora/"><u>[New] The Quintessential Editing Advantages of Filmora</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-elite-writers-of-aural-narratives/"><u>[Updated] Elite Writers of Aural Narratives</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-ideal-image-to-animation-suite-for-macwindows-users-for-2024/"><u>[Updated] Ideal Image-to-Animation Suite for Mac/Windows Users for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-integrating-harmonious-sounds-into-your-canva-videos/"><u>[Updated] In 2024, Integrating Harmonious Sounds Into Your Canva Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-premium-20-unrestricted-pubg-captures-array/"><u>[Updated] In 2024, Premium 20 Unrestricted PUBG Captures Array</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-innovative-approaches-to-podcast-summary-creation/"><u>[Updated] Innovative Approaches to Podcast Summary Creation</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-instant-social-media-artistry-facebook-collages/"><u>2024 Approved Instant Social Media Artistry Facebook Collages</u></a></li>
+<li><a href="https://win-dash.techidaily.com/effortless-installation-updated-graphics-drivers-for-your-amd-rx-480-ready/"><u>Effortless Installation: Updated Graphics Drivers for Your AMD RX 480 Ready</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/full-tutorial-to-bypass-your-realme-gt-5-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Realme GT 5 Face Lock?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/go-beyond-the-tv-watch-nba-gameplay-with-these-15-hacks-for-2024/"><u>Go Beyond the TV Watch NBA Gameplay with These 15 Hacks for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-tecno-spark-20-proplus-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Tecno Spark 20 Pro+ Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-vivo-y100-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on Vivo Y100 5G</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-how-to-get-instagram-sponsorship-for-making-money/"><u>In 2024, How to Get Instagram Sponsorship for Making Money</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/lock-your-motorola-moto-g84-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Motorola Moto G84 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://article-posts.techidaily.com/your-guide-to-preserving-live-streams-on-periscope/"><u>Your Guide to Preserving Live Streams on Periscope</u></a></li>
 </ul></div>
 

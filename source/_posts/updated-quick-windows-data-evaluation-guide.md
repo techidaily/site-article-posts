@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Quick Windows Data Evaluation Guide"
-date: 2024-11-04T09:01:00.519Z
-updated: 2024-11-04T21:17:25.320Z
+date: 2024-11-12T18:58:46.406Z
+updated: 2024-11-15T18:25:17.588Z
 tags: 
   - screen-recording
   - ai video
@@ -46,10 +46,16 @@ Step3 After successfully installing QuickLook, head to File Explorer and select 
 Unfortunately, you won’t preview the content inside the document file. Instead, you’ll only see details like the file type/format, size, image name, and more. You can also directly choose the opening app. As for videos and audio, the media file will automatically play on the QuickLook media player. But don’t fret because the following section will teach you to read your documents, presentations, PDFs, and other files on QuickLook without opening the file.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Get the App on GitHub
@@ -70,16 +76,16 @@ Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://g
 
 ![install quicklook for windows plugins](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 After a successful installation, find the file you want to preview and select it. Then, tap the space bar to preview the files. And remember, browse ZIP files to view all content.
 
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
 
@@ -90,10 +96,10 @@ Meanwhile, it’s expected that QuickLook will come with a small preview screen.
 In other related news, Microsoft will be answering the prayers of their loyal patrons to get tabbed browsing. This is another feature similar to what you currently have on macOS, where you can open new tabs for numerous file locations. In return, this makes moving and copying files more straightforward. This easy-to-navigate addition will definitely make Microsoft Windows users more productive than before.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Frequently Asked Questions
@@ -111,10 +117,10 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -151,16 +157,14 @@ This guidepost is another testament that your PC has massive hidden abilities. W
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-mastering-close-up-mode-in-roblox-playground/"><u>[New] 2024 Approved Mastering Close-Up Mode in Roblox Playground</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-chromebook-pitch-and-timbre-control-guide-the-leading-online-speech-modifiers/"><u>[New] Chromebook Pitch and Timbre Control Guide The Leading Online Speech Modifiers</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-the-ultimate-guide-to-crafting-irresistible-titles-for-2024/"><u>[New] The Ultimate Guide to Crafting Irresistible Titles for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-zero-cost-creativity-inject-movement-to-video-text-for-2024/"><u>[New] Zero-Cost Creativity Inject Movement to Video Text for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-capturing-continuity-a-detailed-manual-for-screen-recordings-on-windows-pcs-for-2024/"><u>[Updated] Capturing Continuity A Detailed Manual for Screen Recordings on Windows PCs for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-discovering-virtual-mastery-kinemasters-android-journey/"><u>[Updated] In 2024, Discovering Virtual Mastery KineMaster's Android Journey</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-revitalizing-a-frozen-obs-video-source-feed-for-2024/"><u>[Updated] Revitalizing a Frozen OBS Video Source Feed for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-tune-your-status-on-whatsapp/"><u>2024 Approved Tune Your Status on WhatsApp</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/connect-and-control-expert-strategies-for-windows-telnet-client-usage/"><u>Connect and Control: Expert Strategies for Windows Telnet Client Usage</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/professional-shutter-sense-the-prime-6-4k-dslr-selections/"><u>Professional Shutter Sense The Prime 6 4K DSLR Selections</u></a></li>
-<li><a href="https://some-tips.techidaily.com/unlock-the-potential-of-your-podcast-covers-now-for-2024/"><u>Unlock the Potential of Your Podcast Covers Now for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-master-your-favorite-games-with-obs-streaming-tips/"><u>[New] 2024 Approved Master Your Favorite Games with OBS Streaming Tips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-xsplit-compendium-download-and-review-archive/"><u>[New] 2024 Approved XSplit Compendium Download & Review Archive</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-ace-your-signature-rapid-background-cleansing-guide/"><u>[New] In 2024, Ace Your Signature Rapid Background Cleansing Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-transforming-your-content-delivery-the-power-of-onestream/"><u>[Updated] In 2024, Transforming Your Content Delivery The Power of OneStream</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-netizen-chucklers-aid/"><u>[Updated] Netizen Chuckler's Aid</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-pivotal-principles-in-digital-story-making/"><u>[Updated] Pivotal Principles in Digital Story Making</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fortnite-troubleshooting-overcoming-permission-denied-to-play-issues/"><u>Fortnite Troubleshooting: Overcoming 'Permission Denied to Play' Issues</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-from-your-apple-iphone-7-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card from Your Apple iPhone 7 Apple ID and Apple Pay</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/how-to-do-screen-recording-on-ipad-in-2024/"><u>How to Do Screen Recording on iPad, In 2024</u></a></li>
 </ul></div>
 

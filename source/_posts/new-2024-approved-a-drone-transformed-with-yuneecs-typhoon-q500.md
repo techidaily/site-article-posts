@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  A Drone Transformed with Yuneec's Typhoon Q500\""
-date: 2024-11-02T09:39:46.034Z
-updated: 2024-11-05T11:52:04.466Z
+date: 2024-11-10T16:50:46.911Z
+updated: 2024-11-15T17:27:04.959Z
 tags: 
   - screen-recording
   - ai video
@@ -59,6 +59,13 @@ thumbnail: https://thmb.techidaily.com/a6ef7d238dd7bb214a3984e4799089ad86b5e4b6f
 
  Yuneec has launched this camera unit with so many advanced features that make it highly suitable for professional [aerial photography](https://tools.techidaily.com/wondershare/filmora/download/) or videography needs. It is one of the easy to operate and fast to adjust drone unit with little higher price range. Users can capture impressive footage with this camera whether you begin with ground or in air shooting.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review for Yuneec Typhoon Q500 4K
 
 #### 1\.  Basic Specs Info
@@ -80,10 +87,10 @@ thumbnail: https://thmb.techidaily.com/a6ef7d238dd7bb214a3984e4799089ad86b5e4b6f
 ![yuneec typhoon design](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-q500-design.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  This device is having big size that makes it difficult to carry on trips. But the design is sturdy with impressive appearance. At the same time, you are going to find one charger, two batteries and two sets of propellers with this package. Few other accessories are sunshield, neck strap, ST10+ controller, cable and a steady Grip mount. The design is almost good but demands little polish to appear attractive. Professionals love to work with its sturdy body and stable design that helps to keep videos shake free during flight hours.
@@ -100,13 +107,6 @@ thumbnail: https://thmb.techidaily.com/a6ef7d238dd7bb214a3984e4799089ad86b5e4b6f
 
 ![yuneec typhoon controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-controller.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The transmitter as well as personal ground station of this system, both are combined together to form a single device that supports 10 channel functioning at 2.4GHz. Controller helps to make easy adjustments for flight modes and decisions about adventurous activities in air can be done easily. Roughly the control range is reported up to 800 meters. The dynamic return to home buttons offers fast response from drone to get back to its original position and it is very helpful if your device is running out of battery and it is required to make a safe landing as soon as possible. If you are able to understand the surroundings perfectly and learn all the control functions then it will become much easier to avoid crashes on the way and your device will surely work for years with great flight performances.
 
 #### 6\.  Camera
@@ -114,16 +114,16 @@ thumbnail: https://thmb.techidaily.com/a6ef7d238dd7bb214a3984e4799089ad86b5e4b6f
 ![yuneec typhoon q500 camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-q500-camera.jpg)
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  As already discussed, it supports 4k recording abilities so users can expect breathtaking shoots in air. The camera is designed to offer 115 degree Field of View where 30 fps frame rate is supported for both 4K and 1080p resolution modes. Users can enjoy automatic settings at initial stage and once they are able to learn all advanced controls then it becomes much easier to shift towards classic flights with smart modes. You will be glad to know that this drone also has settings for slow motion videos with 1080p resolution and at frame rate of 120fps. It provides great flexibility to professional videographers for their advanced recording needs.
@@ -135,10 +135,10 @@ thumbnail: https://thmb.techidaily.com/a6ef7d238dd7bb214a3984e4799089ad86b5e4b6f
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -166,22 +166,21 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-how-to-captivate-viewers-using-multiple-perspectives-on-fb-live/"><u>[New] 2024 Approved How to Captivate Viewers Using Multiple Perspectives on FB Live</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-prime-sites-to-explore-glossy-golden-typography-designs-for-2024/"><u>[New] Prime Sites to Explore Glossy, Golden Typography Designs for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-essential-guide-to-anime-style-youtube-subscribe-buttons-using-filmora-for-2024/"><u>[New] The Essential Guide to Anime-Style YouTube Subscribe Buttons Using Filmora for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-step-by-step-guide-to-professional-filmmaking-via-youtube/"><u>[Updated] 2024 Approved Step-by-Step Guide to Professional Filmmaking via YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-power-of-words-enhancing-viewer-count-with-impressive-description-templates/"><u>[Updated] 2024 Approved The Power of Words Enhancing Viewer Count with Impressive Description Templates</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-mastering-lut-integration-in-obs-for-enhanced-visual-effects/"><u>[Updated] Mastering LUT Integration in OBS for Enhanced Visual Effects</u></a></li>
-<li><a href="https://article-posts.techidaily.com/apple-macbook-air-vs-macbook-pro-which-m1-laptop-is-better-for-2024/"><u>Apple MacBook Air Vs. MacBook Pro Which M1 Laptop Is Better for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/audiovisual-decision-making-is-podcast-or-youtube-more-appealing-in-2024/"><u>Audiovisual Decision-Making Is Podcast or YouTube More Appealing, In 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/bridge-the-gap-transferring-files-from-pc-to-ios/"><u>Bridge the Gap Transferring Files From PC to iOS</u></a></li>
-<li><a href="https://article-posts.techidaily.com/celebratory-closures-from-bare-bones-to-full-featured-for-2024/"><u>Celebratory Closures From Bare-Bones to Full-Featured for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/comprehensive-angles-in-filming-versus-diverse-dimensions/"><u>Comprehensive Angles in Filming versus Diverse Dimensions</u></a></li>
-<li><a href="https://article-posts.techidaily.com/create-brand-symbols-from-templates-at-no-cost/"><u>Create Brand Symbols From Templates at No Cost</u></a></li>
-<li><a href="https://article-posts.techidaily.com/cut-to-quality-perfecting-videos-with-enhancer-22/"><u>Cut to Quality Perfecting Videos with Enhancer 2.2</u></a></li>
-<li><a href="https://article-posts.techidaily.com/deconstructing-the-best-podcast-title-examples/"><u>Deconstructing the Best Podcast Title Examples</u></a></li>
-<li><a href="https://blog-min.techidaily.com/easy-methods-for-separating-and-downloading-audio-tracks-from-mkv-videos/"><u>Easy Methods for Separating and Downloading Audio Tracks From MKV Videos</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-itel-a60-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Itel A60 | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-samsung-galaxy-xcover-6-pro-tactical-edition-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Samsung Galaxy XCover 6 Pro Tactical Edition to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-apples-next-chapter-the-m1-chip-revelation/"><u>[New] Apple's Next Chapter The M1 Chip Revelation</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-entertainment-unlocked-apk-of-funimate-explained-for-2024/"><u>[New] Entertainment Unlocked APK of Funimate Explained for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-launching-your-digital-dialogues-in-google-meet/"><u>[New] Launching Your Digital Dialogues in Google Meet</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-perfecting-online-presence-screen-sharing-techniques-for-2024/"><u>[New] Perfecting Online Presence Screen Sharing Techniques for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-step-by-step-iphone-ringer-update-guide/"><u>[Updated] 2024 Approved Step-by-Step IPhone Ringer Update Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-embrace-audio-freedom-the-revolutionary-pazera-extractor-guide-for-2024/"><u>[Updated] Embrace Audio Freedom The Revolutionary Pazera Extractor Guide for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-your-motorola-moto-g-5g-2023-lock-screen-password-by-drfone-android/"><u>How to Reset your Motorola Moto G 5G (2023) Lock Screen Password</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-is-greyed-out-on-apple-iphone-15-plus-how-to-bypass-by-drfone-ios/"><u>In 2024, Apple ID is Greyed Out On Apple iPhone 15 Plus How to Bypass?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-budget-saving-stratospheric-storage-for-heavy-dumps/"><u>In 2024, Budget-Saving Stratospheric Storage for Heavy Dumps</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-solitary-snaps-to-awe-inspiring-tiled-panoramas/"><u>In 2024, From Solitary Snaps to Awe-Inspiring Tiled Panoramas</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-optimizing-tweets-a-guide-to-full-hd-video-experience/"><u>In 2024, Optimizing Tweets A Guide to Full HD Video Experience</u></a></li>
+<li><a href="https://fox-that.techidaily.com/resolving-the-problem-of-no-siri-suggestions-in-ios-step-by-step-instructions/"><u>Resolving the Problem of No Siri Suggestions in iOS – Step-by-Step Instructions</u></a></li>
+<li><a href="https://article-posts.techidaily.com/speedy-conversion-techniques-for-your-srt-to-txt-tasks-for-2024/"><u>Speedy Conversion Techniques for Your SRT to TXT Tasks for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/srt-revelation-transforming-computer-performance-for-2024/"><u>SRT Revelation Transforming Computer Performance for 2024</u></a></li>
+<li><a href="https://win-webster.techidaily.com/unveiling-the-dynamic-between-openai-and-microsoft-collaborative-giants-or-silicon-valley-rivals/"><u>Unveiling the Dynamic Between OpenAI and Microsoft - Collaborative Giants or Silicon Valley Rivals?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/what-does-jailbreaking-apple-iphone-7-plus-i-do-get-answers-here-by-drfone-ios/"><u>What Does Jailbreaking Apple iPhone 7 Plus i Do? Get Answers here</u></a></li>
 </ul></div>
 
