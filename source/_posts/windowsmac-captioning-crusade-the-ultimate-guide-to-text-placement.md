@@ -1,7 +1,7 @@
 ---
 title: "\"Windows/Mac Captioning Crusade  The Ultimate Guide to Text Placement\""
-date: 2024-11-09T17:31:03.508Z
-updated: 2024-11-15T16:49:19.354Z
+date: 2024-11-20T01:51:14.653Z
+updated: 2024-11-24T19:38:09.299Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ But if you still have these questions in your mind that "How you can **add text 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Add text using the photos program
 
 ### 1.1 Add writing to photos on Mac
@@ -42,6 +46,10 @@ Step2Click the edit button there at the top.
 Step3Now click the More icon, which is at the top right portion of it (it usually looks like an ellipsis), and then in the dropdown menu, click on the Markup option.
 
 ![click more icon](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4Now click on the text button at the top left corner of the screen to add a text box to the image.
 
@@ -65,16 +73,13 @@ Step3Now click on the text button at the top.
 
 ![click on text button](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4To make the text box of your choice, you have to click and drag it.
 
 ![click and drag text box](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step5Now you can write whatever you want to on your photo.
 
@@ -99,13 +104,6 @@ Step8Click any Save or Save as button to save the edited image.
 Wondershare PixStudio is one of the best websites to edit your photos online for free. Here you can add text to your photos quickly and use other advanced editing features to enhance your photos professionally. Due to its user-friendly interface and regularly updated features, it has millions of users.
 
 ![wondershare pixstudio](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-11.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **How to add text on photos with PixStudio?**
 
@@ -132,10 +130,7 @@ Step5A menu will appear on your right side from which you can easily change or e
 ![a menu](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-16.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step6Also, to change the text size inside the **Text Box**, drag its corners.
@@ -147,6 +142,10 @@ Step7Moreover, if you want to change the size of the **Text Box**, drag its bord
 ![change the size of text box](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-18.jpg)
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Important Note:** Remember that what changes you have done using the right sidebar menu will be applied to the whole text inside the selected text box.
 
@@ -270,10 +269,7 @@ Cons
 * A few problems sometimes occur due to the bugs in its newly updated versions or beta versions if you are using them.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. [PhotoDirector](https://www.cyberlink.com/downloads/trials/photodirector-photo-editing-software/download%5Fen%5FUS.html)
@@ -297,6 +293,10 @@ Cons
 * Also, there are some of the menus in it which are slow
 * The lens profiles are not too enough, like in other photo editors.
 * Also, it is not too good in chromatic aberration and noise corrections.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. [GIMP](https://www.gimp.org/downloads/)
 
@@ -340,10 +340,7 @@ Cons
 * The startup screen doesn't have any close, minimize or maximize buttons.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. [Phoxo](http://www.phoxo.com/en/download/)
@@ -426,6 +423,10 @@ Cons
 * You must purchase their premium plans to access more professional features.
 * There are some errors in previewing when you are using certain functions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. [Pixlr](https://pixlr.com/x/)
 
 **Introduction:**
@@ -491,6 +492,10 @@ Cons
 * To acquire more advanced features, you must purchase its premium version.
 * A few problems sometimes occur due to the bugs in its newly updated versions or beta versions if you are using them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. [PhotoDirector](https://www.cyberlink.com/downloads/trials/photodirector-photo-editing-software/download%5Fen%5FUS.html)
 
 **Introduction:**
@@ -512,13 +517,6 @@ Cons
 * Also, there are some of the menus in it which are slow
 * The lens profiles are not too enough, like in other photo editors.
 * Also, it is not too good in chromatic aberration and noise corrections.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. [GIMP](https://www.gimp.org/downloads/)
 
@@ -569,13 +567,6 @@ Phoxo is another alternative to all the above software. It is also photo editing
 
 ![phoxo](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-27.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Pros
 
 * Amicable interface for beginners.
@@ -585,13 +576,6 @@ Cons
 
 * It does not have significantly updated editing tools.
 * It is not compatible with any other operating system except Windows.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -625,22 +609,17 @@ The last words for today's topic here is that there are numerous solutions avail
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-removing-inaudible-voices-from-obs-recording/"><u>[New] 2024 Approved Removing Inaudible Voices From OBS Recording</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-unlock-the-potential-of-close-up-videos-using-videoleap/"><u>[New] 2024 Approved Unlock the Potential of Close-Up Videos Using Videoleap</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-apex-design-suite-assessment-for-2024/"><u>[New] Apex Design Suite Assessment for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-unleash-creativity-discover-the-top-11-grading-techniques-for-video-editors/"><u>[New] In 2024, Unleash Creativity Discover the Top 11 Grading Techniques for Video Editors</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-pro-tips-navigating-without-watching-edgenuity-content-for-2024/"><u>[New] Pro Tips Navigating Without Watching Edgenuity Content for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/he-premier-selector-master-your-video-grabs-for-2024/"><u>[New] The Premier Selector Master Your Video Grabs for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-detailed-assessment-of-simple-high-dynamic-range-for-2024/"><u>[Updated] Detailed Assessment of Simple High-Dynamic Range for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-navigate-effortlessly-inshots-role-in-video-crafting-on-devices-for-2024/"><u>[Updated] Navigate Effortlessly Inshot's Role in Video Crafting on Devices for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/burn-photos-to-dvd-how-to-burn-photos-to-dvd-with-transitions-and-music-for-2024/"><u>Burn Photos to DVD | How to Burn Photos to DVD with Transitions and Music for 2024</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/convert-heic-photos-to-jpg-for-free-step-by-step-guide-for-windows-11-users/"><u>Convert HEIC Photos to JPG for Free - Step-by-Step Guide for Windows 11 Users</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Lava Yuva 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-top-workplace-cloud-storage-networks/"><u>In 2024, Top Workplace Cloud Storage Networks</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/introducing-the-latest-innovations-govees-advanced-ai-enabled-gaming-sync-box-and-vibrant-neon-rope-light-explore-on-zdnet/"><u>Introducing the Latest Innovations: Govee's Advanced AI-Enabled Gaming Sync Box & Vibrant Neon Rope Light - Explore on ZDNet</u></a></li>
-<li><a href="https://article-posts.techidaily.com/light-and-color-interplay-for-images-for-2024/"><u>Light & Color Interplay for Images for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-20-best-chatgpt-prompts-on-github/"><u>The 20 Best ChatGPT Prompts on GitHub</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-recover-deleted-contacts-on-meizu-without-backup-by-fonelab-android-recover-contacts/"><u>The way to recover deleted contacts on Meizu without backup.</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-syncing-your-fire-stick-remote-with-ease/"><u>Ultimate Guide: Syncing Your Fire Stick Remote with Ease</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-efficient-video-editing-techniques-for-instagram-mac-edition/"><u>[New] 2024 Approved Efficient Video Editing Techniques for Instagram, Mac Edition</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-essential-tips-for-creating-films-with-movie-maker-in-w11/"><u>[New] Essential Tips for Creating Films with Movie Maker in W11</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-bridging-past-video-to-present-streaming-live-via-facebook-for-2024/"><u>[Updated] Bridging Past Video to Present Streaming Live via Facebook for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-netizen-humorist-platform-for-2024/"><u>[Updated] Netizen Humorist Platform for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-comparative-study-youtube-app-on-smartphone-platforms/"><u>2024 Approved Comparative Study YouTube App on Smartphone Platforms</u></a></li>
+<li><a href="https://article-posts.techidaily.com/free-top-6-best-apps-to-remove-objects-from-photo-on-iphone-for-2024/"><u>FREE Top 6 Best Apps to Remove Objects From Photo on iPhone for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-chart-topping-photos-origins-explored/"><u>In 2024, Chart-Topping Photos Origins Explored</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-visionary-works-analysis-studio-25-deep-dive-2023/"><u>In 2024, Visionary Works Analysis Studio 25 Deep Dive, 2023</u></a></li>
+<li><a href="https://article-posts.techidaily.com/increasing-visibility-with-strategic-reddit-posts-for-2024/"><u>Increasing Visibility with Strategic Reddit Posts for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/remove-the-lock-screen-fingerprint-of-your-samsung-galaxy-a05s-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Samsung Galaxy A05s</u></a></li>
+<li><a href="https://win11.techidaily.com/repairing-dormant-thermal-regulation-protocol-in-windows/"><u>Repairing Dormant Thermal Regulation Protocol in Windows</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/simplify-your-pc-maintenance-instant-driver-updates-with-windows/"><u>Simplify Your PC Maintenance: Instant Driver Updates with Windows</u></a></li>
 </ul></div>
 

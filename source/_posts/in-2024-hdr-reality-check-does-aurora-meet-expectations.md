@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, HDR Reality Check  Does Aurora Meet Expectations?\""
-date: 2024-09-04T18:20:09.373Z
-updated: 2024-09-05T18:20:09.373Z
+date: 2024-11-21T18:40:41.744Z
+updated: 2024-11-25T01:43:53.622Z
 tags: 
   - screen-recording
   - ai video
@@ -55,29 +55,15 @@ Well, dear reader, Aurora HDR is here to help! With its unique features and abil
 Aurora HDR is an all-encompassing software that will fulfill all your needs with its innovative features such as an intuitive interface, tonal mapping tech, automated batch processing, and much more. Let’s discuss these features in a bit more detail.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. AI HDR Editing
 
 AI HDR editing is the feature that allows you to give your photos a captivating HDR effect by using an exclusive set of presets that are powered by artificial intelligence. Aurora HDR has included its AI technology in different aspects of the program, such as HDR Smart Structure, HDR Clarity, and HDR Smart Tone.
 
 ![aurora hdr](https://images.wondershare.com/filmora/article-images/2022/07/aurora-hdr-review-is-aurora-hdr-a-good-choice-in-2022-1.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * **HDR Smart Structure:** With this feature, you can create strong images with enhanced details. It makes your shots clearer and sharper by increasing the local contrast and sharpening the details. This is especially helpful in making buildings and architecture pop out, particularly for real estate agents.
 * **HDR Clarity:** This is a simple feature that adds contrasts to your images. It ensures that the lighting isn’t messed up and noise isn’t created.
 * **HDR Smart Tone:** This feature adjusts the shadows and highlights to boost your images, making them distinctive.
@@ -90,12 +76,6 @@ Another great feature offered by Aurora HDR is Batch Processing. This feature is
 
 Now suppose, if you wish to apply the same settings to all the images, this feature can help you with that. You can choose the desired processing and export setting for the whole batch. You no longer have to make corrections and adjustments to each image.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. UI and Visual Style
 
 Suppose you are new to the world of HDR editing. In that case, Aurora HDR is the perfect fit for you, owing to its super simple User Interface and Visual Style. Not only do you have easy access to all the primary tools, but it also has no interrupting advertisements.
@@ -114,18 +94,16 @@ One such user praised Aurora, saying, “No other HDR editing program offers lay
 
 Although Aurora serves as one of the best HDR programs, it may not be up to your mark. And there are users feedback to forums that problem appears when enabling deghosting when batch processing in Aurora HDR. So, we are here to recommend some alternatives that you can use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Luminance HDR
 
 Luminance HDR is a top-notch program that can help you with the creation and manipulation of high-dynamic range shots. It is accessible and easy to use for beginners and professionals alike. It offers several features, such as creating HDR from a set of files and tonal mapping of HDR images to LDR images. Apart from that, it can also save, load, rotate, and resize HDR photos. You can also apply transformations to your HDR images.
 
 ![luminance hdr](https://images.wondershare.com/filmora/article-images/2022/07/aurora-hdr-review-is-aurora-hdr-a-good-choice-in-2022-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 More importantly, Luminance HDR is available for free download on both Windows and Mac devices.
 
 **Best For:**
@@ -140,11 +118,19 @@ Each of the operators provides different parameters according to which your imag
 
 According to SoureForge.net, Luminance HDR was rated by 55 users and has a rating of 4.6 out of 5.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Adobe Premiere
 
 Adobe Premiere is another alternative for Aurora. Adobe is basically a video editing software that offers a variety of features to help you create amazing videos from scratch or edit your prerecorded videos. Some of the main features that Adobe offers are automated editing tools such as auto reframing, quick mode, step-by-step guided edits, sharing with ease, different libraries, and much more. However, among its vast list of features also lies the HDR feature.
 
 ![adobe premiere hdr](https://images.wondershare.com/filmora/article-images/2022/07/aurora-hdr-review-is-aurora-hdr-a-good-choice-in-2022-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 As High Dynamic Range shots and images become more common, Adobe adapted to the change. As of 2020, Adobe allows its users to import, edit and export HLG content. HLG format bundles the SDR and HDR color spaces into one stream of information. Now, users can edit HDR footage without any difficulty.
 
@@ -159,23 +145,15 @@ Adobe Premiere is the most common software used for video editing. Hollywood vid
 Adobe has an average of 4.5-star ratings out of 5.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Wondershare Filmora
 
 Last but in no way is the least alternative for Aurora is [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Wondershare Filmora is another creative video editing platform for beginners as well as professionals. Its easy-to-use interface allows for a wonderful experience while creating fantastic footage.
 
 ![wondershare filmora hdr](https://images.wondershare.com/filmora/article-images/2022/07/aurora-hdr-review-is-aurora-hdr-a-good-choice-in-2022-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
@@ -194,12 +172,6 @@ Another cool thing is that Filmora offers Windows and Mac users these features.
 
 On the Microsoft App Store, [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has an average of 3.8 stars out of 5.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Final Words
 
 HDR Editing is one of the trends that has been catching on pretty quickly. Professional photographers and videographers are most attracted to software that have the HDR editing feature. This makes their job a lot easier by providing a feature that will enhance their end product tenfold.
@@ -213,17 +185,9 @@ All these software bring forth different aspects of HDR editing, so depending on
 * [Wondershare Filmora](#part3-3)
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Summary Box on Aurora HDR
 
 **Summary**  
@@ -250,29 +214,21 @@ Well, dear reader, Aurora HDR is here to help! With its unique features and abil
 
 Aurora HDR is an all-encompassing software that will fulfill all your needs with its innovative features such as an intuitive interface, tonal mapping tech, automated batch processing, and much more. Let’s discuss these features in a bit more detail.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. AI HDR Editing
 
 AI HDR editing is the feature that allows you to give your photos a captivating HDR effect by using an exclusive set of presets that are powered by artificial intelligence. Aurora HDR has included its AI technology in different aspects of the program, such as HDR Smart Structure, HDR Clarity, and HDR Smart Tone.
 
 ![aurora hdr](https://images.wondershare.com/filmora/article-images/2022/07/aurora-hdr-review-is-aurora-hdr-a-good-choice-in-2022-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * **HDR Smart Structure:** With this feature, you can create strong images with enhanced details. It makes your shots clearer and sharper by increasing the local contrast and sharpening the details. This is especially helpful in making buildings and architecture pop out, particularly for real estate agents.
 * **HDR Clarity:** This is a simple feature that adds contrasts to your images. It ensures that the lighting isn’t messed up and noise isn’t created.
 * **HDR Smart Tone:** This feature adjusts the shadows and highlights to boost your images, making them distinctive.
 
 Users worldwide have applauded the powerful AI tools of Aurora HDR.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Batch Processing
 
@@ -281,29 +237,15 @@ Another great feature offered by Aurora HDR is Batch Processing. This feature is
 Now suppose, if you wish to apply the same settings to all the images, this feature can help you with that. You can choose the desired processing and export setting for the whole batch. You no longer have to make corrections and adjustments to each image.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. UI and Visual Style
 
 Suppose you are new to the world of HDR editing. In that case, Aurora HDR is the perfect fit for you, owing to its super simple User Interface and Visual Style. Not only do you have easy access to all the primary tools, but it also has no interrupting advertisements.
 
 ![aurora hdr ul visual style](https://images.wondershare.com/filmora/article-images/2022/07/aurora-hdr-review-is-aurora-hdr-a-good-choice-in-2022-4.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Moreover, the sliders are highly sensitive, which allows you to make a significant change with a slight change.
 
 **User Reviews**
@@ -317,11 +259,9 @@ One such user praised Aurora, saying, “No other HDR editing program offers lay
 Although Aurora serves as one of the best HDR programs, it may not be up to your mark. And there are users feedback to forums that problem appears when enabling deghosting when batch processing in Aurora HDR. So, we are here to recommend some alternatives that you can use.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Luminance HDR
 
 Luminance HDR is a top-notch program that can help you with the creation and manipulation of high-dynamic range shots. It is accessible and easy to use for beginners and professionals alike. It offers several features, such as creating HDR from a set of files and tonal mapping of HDR images to LDR images. Apart from that, it can also save, load, rotate, and resize HDR photos. You can also apply transformations to your HDR images.
@@ -383,6 +323,10 @@ Another cool thing is that Filmora offers Windows and Mac users these features.
 **Ratings:**
 
 On the Microsoft App Store, [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has an average of 3.8 stars out of 5.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -414,4 +358,22 @@ All these software bring forth different aspects of HDR editing, so depending on
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-create-captivating-yt-thumbnails-fast/"><u>[New] 2024 Approved Create Captivating YT Thumbnails Fast</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-unlocking-creative-photos-using-pexels-effectively/"><u>[New] 2024 Approved Unlocking Creative Photos Using Pexels Effectively</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unraveling-the-secrets-of-inshot-editing-excellence/"><u>[New] Unraveling the Secrets of InShot Editing Excellence</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-high-fidelity-mac-gif-capturer/"><u>[Updated] 2024 Approved High-Fidelity Mac Gif Capturer</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-skill-up-on-the-fly-with-top-10-freeware-art-apps-for-mac/"><u>[Updated] In 2024, Skill Up on the Fly with Top 10 Freeware Art Apps for Mac</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-monetizing-vlogs-a-step-by-step-blueprint/"><u>[Updated] Monetizing Vlogs A Step-by-Step Blueprint</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-richer-imagery-enhancing-video-with-device-based-filters/"><u>[Updated] Richer Imagery Enhancing Video with Device-Based Filters</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-top-mp4-to-facebook-video-converter-2023-edition/"><u>[Updated] Top MP4-to-Facebook Video Converter 2023 Edition</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-your-blueprint-for-an-instantaneously-crafted-virtual-avatar/"><u>[Updated] Your Blueprint for an Instantaneously Crafted Virtual Avatar</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/comparing-360-degree-captures-and-full-immersion-media-for-2024/"><u>Comparing 360-Degree Captures and Full Immersion Media for 2024</u></a></li>
+<li><a href="https://win-latest.techidaily.com/effizientes-image-reparatur-tool-zur-gewahrleistung-erfolgreicher-datenwiederherstellungsprozesse/"><u>Effizientes Image Reparatur Tool Zur Gewährleistung Erfolgreicher Datenwiederherstellungsprozesse</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-exclusive-analysis-full-potential-of-bublcams-360-degree-scope/"><u>In 2024, Exclusive Analysis Full Potential of Bublcam's 360-Degree Scope</u></a></li>
+<li><a href="https://article-posts.techidaily.com/key-approaches-to-enhance-vhs-photos-digitally-for-2024/"><u>Key Approaches to Enhance VHS Photos Digitally for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/steps-to-overcome-windows-memory-errors/"><u>Steps to Overcome Windows Memory Errors</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-art-of-mobility-in-sound-excellence/"><u>The Art of Mobility in Sound Excellence</u></a></li>
+</ul></div>
 

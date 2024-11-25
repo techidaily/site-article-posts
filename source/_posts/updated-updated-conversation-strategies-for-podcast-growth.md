@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Updated Conversation Strategies for Podcast Growth"
-date: 2024-11-11T17:10:29.830Z
-updated: 2024-11-15T18:02:57.924Z
+date: 2024-11-23T18:19:28.827Z
+updated: 2024-11-25T01:54:35.703Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,10 @@ Icebreaker questions are used to begin an interview or meeting. These are person
 
 ![icebreaker questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are some icebreaker questions that you can ask to start an interview.
 
 1. Where did you grow up and make the impact on you today?
@@ -59,13 +63,6 @@ Here are some icebreaker questions that you can ask to start an interview.
 A leading question suggests a particular answer to the question that the questioner desires. These questions mostly have a yes or no answer. However, if you extract your question from the answer just given by the guest of the podcast, it is also a leading question.
 
 ![leading questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Some leading questions that you can ask are discussed below.
 
@@ -91,13 +88,6 @@ In an interview, a comparison question is one where you ask a person what he pre
 
 ![comparison questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You can ask questions from the comparison questions given below.
 
 1. Can you compare and contrast standard costing and actual costing?
@@ -117,10 +107,7 @@ You can ask questions from the comparison questions given below.
 15. What do you prefer to eat, pizza or a burger?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Great Closing Questions
@@ -157,29 +144,23 @@ You can get the best information from the person you are interviewing if you do 
 
 ![ask why](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 As an interviewer, "why" is your most powerful tool. Guests usually provide surface-level information or opinions. The follow-up question of "why" makes them go further and give deeper details. It will also help your audience understand correctly what the guest wants to say.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### What happened next?
 
 If your guest is overwhelmed by the emotions and has stopped before completing his answer, help him achieve it by asking, "What Happened Next?" Use a softer tone while asking this question.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### What were your feelings when this happened?
 
 Sometimes you want the guest to answer your questions with feelings and emotions. Making your guest answer your questions while drenched in emotions can take your podcast to the next level. Questions like "What were your feelings when this happened?" can take the guest back to the past and make him answer your question with full emotions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Mirror your guest
 
@@ -199,10 +180,7 @@ So you see how this can continue to move forward by simply mirroring your guest.
 The best thing you can extract from someone in a podcast is their story. If you want to pull out a story from someone, phrase it like this, "Tell me about a time when..." After this question, your job is to sit back, listen, and not interrupt the guest.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4\. Podcast Questions to Avoid Asking
@@ -215,9 +193,17 @@ Avoiding asking wrong questions is as important as asking good questions. Some q
 * Similarly, avoid asking questions to which you can predict the answer will be a "no."
 * Avoid questions that might offend your guest.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5\. Should I Send an Advance Interview Questions Podcast?
 
 Yes, you can send interview questions to guests. Therefore, they get time to prepare interesting responses. Also, they may think about their answers or type out lengthy responses. Either way, they'll feel more comfortable and help you make better content.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Take Your Content to the Next Level and Gets Shared
 
@@ -255,16 +241,21 @@ Consider the following when picking which of the above questions to use on your 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-how-to-craft-an-engaging-solo-auditory-adventure/"><u>[New] 2024 Approved How to Craft an Engaging Solo Auditory Adventure</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-step-into-photo-magic-innovative-edits-on-snapchat/"><u>[New] In 2024, Step Into Photo Magic Innovative Edits on Snapchat</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-mastering-school-without-edgenuity-videos/"><u>[New] Mastering School Without Edgenuity Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-streamlining-audio-integration-in-youtube-videos-for-professionals/"><u>[New] Streamlining Audio Integration in YouTube Videos for Professionals</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-futuristic-enlightenment-the-best-30-virtual-musings/"><u>[Updated] 2024 Approved Futuristic Enlightenment The Best 30 Virtual Musings</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-best-options-cheap-but-premium-4k-projector-systems/"><u>[Updated] Best Options Cheap but Premium 4K Projector Systems</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-the-ultimate-checklist-what-makes-dji-phantom-4-special-for-2024/"><u>[Updated] The Ultimate Checklist What Makes DJI Phantom 4 Special for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/how-to-perfectly-stream-your-ps4-gaming-session-for-2024/"><u>How to Perfectly Stream Your PS4 Gaming Session for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-oppo-reno-10-proplus-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Oppo Reno 10 Pro+ 5G without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-itel-p55-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Itel P55 Phone without Google Account?</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-editors-toolkit-maximizing-the-impact-of-gopro-videos-for-2024/"><u>The Editor's Toolkit Maximizing the Impact of GoPro Videos for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-master-the-art-of-livestreaming-three-key-approaches-subscriber-less-style/"><u>[New] 2024 Approved Master the Art of Livestreaming Three Key Approaches, Subscriber-Less Style</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-direct-tweeting-to-your-facebook-followers/"><u>[New] In 2024, Direct Tweeting to Your Facebook Followers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-htc-vive-a-gateway-to-extraordinary-virtual-realms/"><u>[New] In 2024, HTC Vive A Gateway to Extraordinary Virtual Realms</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-spreading-twitter-vid-facebook-integration-methods-for-2024/"><u>[New] Spreading Twitter Vid Facebook Integration Methods for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-zero-price-windows-desktop-snapping-tutorials/"><u>[New] Zero Price Windows Desktop Snapping Tutorials</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-prime-photograph-peruser-in-windows-10/"><u>[Updated] 2024 Approved Prime Photograph Peruser in Windows 10</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-creating-memes-made-easy-using-kinemaster/"><u>[Updated] Creating Memes Made Easy Using KineMaster</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-combat-chronicles-in-the-ring-or-on-screen/"><u>[Updated] In 2024, Combat Chronicles In the Ring or on Screen?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-revolutionary-tools-for-next-gen-streaming-experience-for-2024/"><u>[Updated] Revolutionary Tools for Next-Gen Streaming Experience for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/effective-solutions-for-starting-saints-row-on-pc-without-errors/"><u>Effective Solutions for Starting Saints Row on PC Without Errors</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-honor-magic-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-a-list-14-animation-illustration-cases/"><u>In 2024, A-List 14 Animation Illustration Cases</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-sdr-vs-hdri-elevating-your-content-with-advanced-color-techniques/"><u>In 2024, SDR Vs. HDRI Elevating Your Content with Advanced Color Techniques</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-swift-guide-to-screenshots-via-ipados/"><u>In 2024, Swift Guide to Screenshots via iPadOS</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/text-transformation-tricks-for-media/"><u>Text Transformation Tricks for Media</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-honor-x50-gt-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Honor X50 GT without Him Knowing | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Hero5 Black Versus Yi 4K  Latest Updates on High-Res Cameras\""
-date: 2024-09-04T18:19:06.291Z
-updated: 2024-09-05T18:19:06.291Z
+date: 2024-11-22T00:10:42.048Z
+updated: 2024-11-24T17:02:52.667Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/2dd3f6016f2ac6912827509209a1009782287114c
 [Best 4K action cameras for 2017 >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [Best GoPro Alternatives >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Comparison for Hero5 Black and Yi 4K Action Camera
 
@@ -67,6 +71,10 @@ thumbnail: https://thmb.techidaily.com/2dd3f6016f2ac6912827509209a1009782287114c
 
 ![Yi 4K action camera touchscreen](https://images.wondershare.com/filmora/article-images/yi-4k-touchscreen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image source:elproducente.com
 
 **Waterproof:** The biggest benefit of GoPro Hero5 is that it can serve you underwater but YI 4K cannot as you need additional protective case for this camera. But you cannot save your recordings from handling noise in case of GoPro unit. When you go underwater with YI 4K while using protective housing then it is not possible to use its touch screen feature and secondly the audio quality decays by large extent.
@@ -88,6 +96,10 @@ thumbnail: https://thmb.techidaily.com/2dd3f6016f2ac6912827509209a1009782287114c
  Almost all features are discussed above and it is observed that if you are searching for a camera to record videos underwater or in rainy seasons then it is best idea to invest on GoPro Hero5 but in case of other adventurous sports activities Yi 4K can also provide you impressive results and it is a fit to budget camera unit. The Video and Photo quality is almost similar for both units but the battery backup of Yi 4K is again better then GoPro unit. So it is better to decide your budget and needs first and then pick the right camera unit for you.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -112,11 +124,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-elite-gopro-accessory-catalog/"><u>[New] In 2024, Elite Gopro Accessory Catalog</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-essential-steps-for-fb-file-transfers-on-linux-mac/"><u>[New] In 2024, Essential Steps for FB File Transfers on Linux, Mac</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ey-information-every-asmr-aficionado-should-know/"><u>[New] Key Information Every ASMR Aficionado Should Know</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-mobile-video-smoothing-system-pro-for-2024/"><u>[New] Mobile Video Smoothing System Pro for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-top-15-must-try-iphone-vr-apps-for-everyday-gamers/"><u>[New] Top 15 Must-Try IPhone VR Apps for Everyday Gamers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-mobile-vr-experience-best-10-headsets-list/"><u>[Updated] 2024 Approved Mobile VR Experience Best 10 Headsets List</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-framefusion-media-suite/"><u>[Updated] In 2024, FrameFusion Media Suite</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-windows-10-photos-guide-snatching-stills-from-video-footage/"><u>[Updated] In 2024, Windows 10 Photos Guide Snatching Stills From Video Footage</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-maximized-speed-the-prime-10-choices-of-srt-upgrades-for-pcs-and-macs-for-2024/"><u>[Updated] Maximized Speed The Prime 10 Choices of SRT Upgrades for PCs & Macs for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-pro-hdr-image-processing-a-lightroom-approach/"><u>[Updated] Pro HDR Image Processing A Lightroom Approach</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-top-actions-cameras-reviewed-hero5-vs-yi-in-the-spotlight/"><u>[Updated] Top Actions Cameras Reviewed Hero5 Vs. YI in the Spotlight</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unleash-professional-quality-facebook-profile-pictures-with-these-tools-for-2024/"><u>[Updated] Unleash Professional Quality Facebook Profile Pictures with These Tools for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-10-online-hubs-for-public-domain-music-in-games/"><u>2024 Approved Top 10 Online Hubs for Public Domain Music in Games</u></a></li>
+<li><a href="https://win11.techidaily.com/audioscape-refresh-on-windows-the-driver-upgrade-path/"><u>Audioscape Refresh on Windows: The Driver Upgrade Path</u></a></li>
+<li><a href="https://win-answers.techidaily.com/discover-the-ultimate-pick-of-5-tiktok-audio-downloaders-for-your-computer-and-browser/"><u>Discover the Ultimate Pick of 5 TikTok Audio Downloaders for Your Computer and Browser</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-nokia-c02-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Nokia C02? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-best-photography-enhancers-for-ios-and-android-guide-for-2024/"><u>The Best Photography Enhancers for iOS & Android Guide for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/the-journey-of-facetime-snapshots-how-to-retrieve-and-store-them-safely/"><u>The Journey of FaceTime Snapshots: How to Retrieve and Store Them Safely</u></a></li>
+<li><a href="https://article-posts.techidaily.com/transform-your-thought-processes-mematic-app-for-2024/"><u>Transform Your Thought Processes - Mematic App for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

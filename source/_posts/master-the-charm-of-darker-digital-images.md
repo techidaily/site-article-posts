@@ -1,7 +1,7 @@
 ---
 title: "Master the Charm of Darker Digital Images"
-date: 2024-09-04T18:22:32.646Z
-updated: 2024-09-05T18:22:32.646Z
+date: 2024-11-22T22:53:44.477Z
+updated: 2024-11-24T20:56:08.559Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,10 @@ The Invert option is commonly used to invert a scanned film negative to color, b
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/ms-paint-invert-color.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Open the photo you’d like to invert with MS Paint, and then choose the **Select All option** from the **Select Menu**. **Right-click** on the picture and click on the **Invert Color** option. The colors in the image will be automatically inverted, so you can then head over to the **Save As submenu** in the **File menu** to select the file format of the new photo.
 
 If you are using Windows XP or an earlier version of the Windows OS, you can invert colors in a photo by clicking on the **Invert Colors option** in the **Image menu**. Even though MS Paint lets you invert image colors easily, it is still better to use a more powerful image editor to edit your photos.
@@ -54,9 +58,17 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can experiment with the values you assign to each of these sliders in order to get a more visually pleasing result.
 
@@ -67,6 +79,10 @@ You can experiment with the values you assign to each of these sliders in order 
 **Compatibility:** Online platform
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/pinetools-invert-image-colors.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The platform’s homepage contains a number of categories of tools such as **Colors, Numbers, Text and Lists or Images**. Clicking on the **Images category** will grant you the access to all photo editing tools PineTools offers, so you just have to click on the **Invert Colors** options to start the process of inverting a photo online. Once the **Invert Colors window** loads, you can click on the **Choose File button** to select a photo you’d like to invert. When the upload is completed, simply click on the **Invert button** located near the bottom of the screen and the platform will automatically invert the colors in your photo. To save the watermark-free image with inverted colors you just have to click on **PNG, JPEG or WEBP file** formats that are displayed above the preview of the picture.
 
@@ -122,6 +138,10 @@ Inverting colors in a photo is not a complicated process, but finding creative w
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -145,17 +165,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-from-novice-to-master-the-ultimate-periscope-handbook/"><u>[New] 2024 Approved From Novice to Master The Ultimate Periscope Handbook</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-revolutionizing-healthcare-marketing-via-social-networks/"><u>[New] 2024 Approved Revolutionizing Healthcare Marketing via Social Networks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-express-originality-craft-professional-logos-from-template-designs-free/"><u>[New] Express Originality Craft Professional Logos From Template Designs (Free)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unfolding-the-digital-canvas-vr-evolution-for-2024/"><u>[New] Unfolding the Digital Canvas VR Evolution for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-2023s-elite-fb-content-collectors-ranked-8/"><u>[Updated] In 2024, 2023'S Elite FB Content Collectors Ranked 8</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-unlocking-creative-potential-with-pexels-visuals/"><u>[Updated] In 2024, Unlocking Creative Potential with Pexels Visuals</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-mastering-googles-podcast-publishing-process-for-2024/"><u>[Updated] Mastering Google's Podcast Publishing Process for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-ultimate-framework-for-selecting-winning-podcast-names/"><u>[Updated] The Ultimate Framework for Selecting Winning Podcast Names</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-unveiling-canvas-power-10-pro-editor-techniques/"><u>[Updated] Unveiling Canva's Power 10 Pro Editor Techniques</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-action-camera-showdown-unmatched-seventh-lineup-wetproof/"><u>2024 Approved Action Camera Showdown Unmatched Seventh Lineup Wetproof</u></a></li>
+<li><a href="https://fox-that.techidaily.com/8-proven-strategies-for-superior-wi-fi-functionality-on-your-apple-device/"><u>8 Proven Strategies for Superior Wi-Fi Functionality on Your Apple Device</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722989405949-league-of-legends-connectivity-solutions-resolve-your-games-internet-problems-today/"><u>League of Legends Connectivity Solutions: Resolve Your Game's Internet Problems Today!</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-advanced-strategies-to-convert-your-spotify-playlist-into-a-local-library/"><u>New In 2024, Advanced Strategies to Convert Your Spotify Playlist Into a Local Library</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/revolutionary-techniques-to-elevate-vhs-photos-on-pcs/"><u>Revolutionary Techniques to Elevate VHS Photos on PCs</u></a></li>
+<li><a href="https://common-error.techidaily.com/success-story-restoring-functionality-to-your-igfxem-module/"><u>Success Story: Restoring Functionality to Your igfxEM Module</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-beginners-blueprint-mastering-telegram-web/"><u>The Beginner's Blueprint Mastering Telegram Web</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-to-lava-blaze-curve-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Lava Blaze Curve 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
