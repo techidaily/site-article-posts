@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Essential Online Repositories - 12 Sites with Free Photography Samples\""
-date: 2024-09-04T18:14:47.294Z
-updated: 2024-09-05T18:14:47.294Z
+date: 2024-12-02T22:05:21.900Z
+updated: 2024-12-04T08:01:25.141Z
 tags: 
   - screen-recording
   - ai video
@@ -80,17 +80,29 @@ StockSnap- as the name suggests, it contains huge stock of snaps that can be dow
 
 [![websites gratisography](https://images.wondershare.com/filmora/article-images/websites-gratisography.jpg)](https://gratisography.com/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Beginners as well as professionals have deep love for this application because it assists in easy downloading of high resolution images. One can easily process these images for business promotion needs as well as for personal requirements. This tool is highly preferred due to its excellent image quality and easy image search options.
 
 #### 7. [MorgueFile](https://morguefile.com)
 
 [![websites-morguefile](https://images.wondershare.com/filmora/article-images/websites-morguefile.jpg)](https://morguefile.com)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here is a popular photo repository where stills for commercial as well as personal usages are listed. Users can find crystal clear images on this platform and some of the most common image categories are: animals, objects, scenes, stills, textures, sports and people etc.
 
 #### 8. [FreeDigitalPhotos](http://www.freedigitalphotos.net/)
 
 [![websites-freedigitalphoto](https://images.wondershare.com/filmora/article-images/websites-freedigitalphoto.jpg)](http://www.freedigitalphotos.net/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 It not only assist users in downloading free images rather it also provides easy downloads facility to photoshop projects, educational projects and PowerPoint etc. These images can be freely used for commercial as well as personal tools. You will be glad to know that FreeDigitalPhotos also provides collection of greeting cards that are permitted to be used for commercial needs.
 
@@ -110,11 +122,19 @@ Photogen can help you to enjoy high resolution collection of images for commerci
 
 [![websites-googleimages](https://images.wondershare.com/filmora/article-images/websites-googleimages.jpg)](https://image.google.com)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This platform use to be the first preference of most of the image searchers and no one can predict the details about actual license of those images. This platform is updated time to time by professionals so that users can easily find their selected collection of stills.
 
 #### 12. [Flickr](https://www.flickr.com/)
 
 [![websites-flickr](https://images.wondershare.com/filmora/article-images/websites-flickr.jpg)](https://www.flickr.com/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Flockr is loved by all for its wide collection of royalty free images. If you need your desired image faster and need not to mess with unwanted content then it is good to move to flickr because it can understand all your requirements well. Images can be downloaded in different size ranges with unique file formats.
 
@@ -123,6 +143,10 @@ Now, download some photos and polish it with a proper photo editor. In this arti
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -147,11 +171,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-navigating-picture-in-picture-features-in-firefox/"><u>[New] 2024 Approved Navigating Picture-in-Picture Features in Firefox</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-the-ultimate-motion-capturer-polaroids-camplus-action-wrap-up/"><u>[New] In 2024, The Ultimate Motion Capturer Polaroid's Cam+ Action Wrap-Up</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-masterclass-the-different-faces-of-hand-tracker/"><u>[New] Masterclass The Different Faces of Hand Tracker</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-craft-professional-edits-with-story-remix-in-windows-photos-app/"><u>[Updated] 2024 Approved Craft Professional Edits with Story Remix in Windows Photos App</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-effortless-edits-bending-image-into-shape/"><u>[Updated] 2024 Approved Effortless Edits Bending Image Into Shape</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-streamline-media-storage-with-3-tactics/"><u>[Updated] 2024 Approved Streamline Media Storage with 3 Tactics</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-from-novice-to-nirvana-transform-your-instagram-edits-for-2024/"><u>[Updated] From Novice to Nirvana Transform Your Instagram Edits for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-iphone-lens-wisdom-stunning-image-secrets/"><u>[Updated] In 2024, IPhone Lens Wisdom Stunning Image Secrets</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-mastering-video-conferencing-a-complete-guide-to-zoom-on-android/"><u>[Updated] In 2024, Mastering Video Conferencing A Complete Guide to Zoom on Android</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-essential-guide-to-uploading-and-sharing-youtube-vids-in-insta-stories/"><u>[Updated] The Essential Guide to Uploading and Sharing YouTube Vids in Insta Stories</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unlocking-youtubes-potential-subscriber-triumph-tactics/"><u>[Updated] Unlocking YouTube's Potential Subscriber Triumph Tactics</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unstoppable-streams-the-rising-stars-of-female-youtube-content/"><u>[Updated] Unstoppable Streams The Rising Stars of Female YouTube Content</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-updated-dialogue-tools-to-engage-audio-audiences-for-2024/"><u>[Updated] Updated Dialogue Tools to Engage Audio Audiences for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-mastering-screen-recordings-powerpoint-edition/"><u>2024 Approved Mastering Screen Recordings PowerPoint Edition</u></a></li>
+<li><a href="https://article-posts.techidaily.com/how-to-curve-images-in-photoshop/"><u>How to Curve Images in Photoshop</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-tecno-spark-10-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Tecno Spark 10 4G | Dr.fone</u></a></li>
+<li><a href="https://os-tips.techidaily.com/iphone-management-with-dearmob-effortless-transfer-of-your-icloud-photos-and-videos-to-computer-or-mac/"><u>IPhone Management with DearMob: Effortless Transfer of Your iCloud Photos and Videos to Computer or Mac</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

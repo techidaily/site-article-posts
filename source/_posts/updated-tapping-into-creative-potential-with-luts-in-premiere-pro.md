@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Tapping Into Creative Potential with LUTs in Premiere Pro"
-date: 2024-11-18T23:23:48.310Z
-updated: 2024-11-24T21:53:30.690Z
+date: 2024-11-28T18:10:27.590Z
+updated: 2024-12-04T07:29:41.771Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ Step2Locate the Lumetri LUTs folder in your Premiere Pro installation directory 
 Step3Paste all of your fresh LUTs in this folder at this time. Your new LUTs will now show up in the Lumetri Color Panel when you launch Premiere Pro (or restart the software if it was already open). Innovative >> Looks
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. How to add LUTs to your footage
@@ -52,7 +52,7 @@ Step3The first Basic Correction option in the right-hand panel of Lumetri Color 
 Step4Double-click the LUT you wish to use once you've located it, and it will be applied immediately.A tiny tip I like to use occasionally is to find the Effect Controls panel on the left side, then click the drop-down arrow next to Opacity, and make adjustments if you input your LUT and feel that it's too intense.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Why use LUTs in your project?
@@ -66,7 +66,7 @@ Because of this, some designers employ look-up tables (LUTs) that they have crea
 When it comes to working on a project for a customer that has a stringent deadline to fulfill, poor color grading could result in a negative impression of your work. This is the case even if everything from the sound effects to the video effects is done to a high standard and is done well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Can you adjust the strength of the LUT?
@@ -76,6 +76,10 @@ There are no such modifications that can be made in a certain LUT or Look, and t
 The entire color panel in Premiere Pro is packed with all of the color grading tools that are required to adjust your film in the appropriate way. Investigating them can provide you with some understanding of how they function. You can get a sense of how these LUTs function by using the pre-installed LUTs that are accessible in Premiere Pro, which you can use at first to get a feel for the LUTs before moving on to using paid or free Color Grading profiles.
 
 The end outcome does not vary by a substantial amount, but how it looks can change depending on the LUT you use. In the event that something seems to be lacking, you can always modify the color grading.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Export LUTs
 
@@ -90,7 +94,7 @@ Step2Export ".cube" This function exports lookup tables in the.cube format so th
 Step3Store Preset: You can personalize the settings for each color effect, then save the resulting combinations as presets. Within the Save Preset dialog box, give your preset the name you want it to have. If desired, enter a description. Please visit the article on how to create and store an effect preset for further details.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Where can you find LUTs?
@@ -105,10 +109,6 @@ You might be asking, "Now that I've learned more about LUTs (Lookup Tables), whe
 * Complete Cinema LUTs
 * Filmic Tone LUTs
 * Urban Dark Creative LUTs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -146,17 +146,22 @@ Sometimes, some of them are out there to steal your money rather than provide th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-ultra-hd-monitor-roundup-lgs-27ud68-reviewed/"><u>[New] In 2024, Ultra HD Monitor Roundup LG's 27UD68 Reviewed</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-revisit-facebooks-top-watches-a-step-by-step-for-2024/"><u>[New] Revisit Facebook's Top Watches A Step-by-Step for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-speedy-sonic-tuning-devices-index-pc-tablet/"><u>[Updated] 2024 Approved Speedy Sonic Tuning Devices Index (PC, Tablet)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-premiere-pro-streamline-for-online-video-uploads/"><u>[Updated] Premiere Pro Streamline for Online Video Uploads</u></a></li>
-<li><a href="https://article-posts.techidaily.com/beak-beat-boatwrights/"><u>Beak Beat Boatwrights</u></a></li>
-<li><a href="https://article-posts.techidaily.com/bridging-realities-the-art-of-using-luts-in-vfx-and-ar-for-2024/"><u>Bridging Realities The Art of Using LUTs in VFX & AR for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/capturing-the-moment-expert-tips-for-amazing-android-slow-mo-videos/"><u>Capturing the Moment Expert Tips for Amazing Android Slow Mo Videos</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/comprehensive-tutorial-on-saving-your-chatgpt-history/"><u>Comprehensive Tutorial on Saving Your ChatGPT History</u></a></li>
-<li><a href="https://article-posts.techidaily.com/comprehensively-reviewed-androids-lightroom-features-and-functions/"><u>Comprehensively Reviewed Android’s Lightroom Features & Functions</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/essential-top-5-iphone-podcast-aggregators/"><u>Essential Top 5 iPhone Podcast Aggregators</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Itel S23+? | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/top-picks-the-7-most-amazing-gratis-music-applications-compatible-with-ios-and-googles-os/"><u>Top Picks: The 7 Most Amazing Gratis Music Applications Compatible with iOS and Google's OS</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-haptic-feedback-in-e-commerce-trials/"><u>[New] 2024 Approved Haptic Feedback in E-Commerce Trials</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-designing-a-spectacular-snapshot-of-cinema/"><u>[New] Designing a Spectacular Snapshot of Cinema</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-elevate-your-storytelling-with-instagram-and-youtube-vids-for-2024/"><u>[New] Elevate Your Storytelling with Instagram & YouTube Vids for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-ice-chase-top-moments-captured-s-olympic-snowboard-race-events/"><u>[New] Ice Chase Top Moments Captured 'S Olympic Snowboard Race Events</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-microsoft-azure-unlocking-speech-to-text-potential/"><u>[New] Microsoft Azure Unlocking Speech-to-Text Potential</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-zip-to-subrip-conversion-techniques-for-2024/"><u>[New] Zip-to-SubRip Conversion Techniques for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-easy-to-follow-guide-to-mobile-recording-snapchat-edition/"><u>[Updated] 2024 Approved Easy-to-Follow Guide to Mobile Recording Snapchat Edition</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/alert-systems-for-counterfeit-chatgpt-websites/"><u>Alert Systems for Counterfeit ChatGPT Websites</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/express-more-with-emoji-and-gifs-enhancing-instagram-comments-effectively/"><u>Express More with Emoji and GIFs - Enhancing Instagram Comments Effectively</u></a></li>
+<li><a href="https://article-posts.techidaily.com/hypervision-pro-all-in-one-4k-screen-desks/"><u>HyperVision Pro All-in-One 4K Screen Desks</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-solved-how-to-transfer-from-apple-iphone-6-plus-to-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Solved How To Transfer From Apple iPhone 6 Plus to iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-password-cracking-tools-for-tecno-spark-10c-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Tecno Spark 10C</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/mastering-fb-live-streams-a-guide-for-roku-users/"><u>Mastering FB Live Streams A Guide for Roku Users</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/tamamen-uygulanabilirken-en-az-sevgi-gormuyorlugu-arastirma-yaptiklarin-11-ts-mp4-donusturme-tarziyenin-ve-sistemleri/"><u>Tamamen Uygulanabilirken En Az Sevgi Görmüyorluğu Araştırma Yaptıkların 11 TS MP4 Dönüştürme Tarziyenin Ve Sistemleri</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-ultimate-dji-phantom-upgrade-kit/"><u>The Ultimate DJI Phantom Upgrade Kit</u></a></li>
+<li><a href="https://article-posts.techidaily.com/ultimate-screenplay-treasures-for-each-movie-division-for-2024/"><u>Ultimate Screenplay Treasures for Each Movie Division for 2024</u></a></li>
 </ul></div>
 

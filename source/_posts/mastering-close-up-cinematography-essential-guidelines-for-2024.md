@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Close-Up Cinematography  Essential Guidelines for 2024\""
-date: 2024-11-22T20:24:53.680Z
-updated: 2024-11-24T22:00:01.632Z
+date: 2024-11-27T22:46:34.361Z
+updated: 2024-12-04T05:35:53.293Z
 tags: 
   - screen-recording
   - ai video
@@ -69,6 +69,10 @@ Try to get great visual perspectives or angles by bracing the camera on the tree
 
 ![Tripod](https://images.wondershare.com/filmora/article-images/oconnor-ultimate-1030d-fluid-head-30l-cf-tripod.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3\. Background
 
 The background of your macro video always remains blurred as you shoot it closely. But, the background color is visible so, choosing it correctly is vital. The color of the background must compliment your composition’s color and must be chosen creatively.
@@ -76,7 +80,7 @@ The background of your macro video always remains blurred as you shoot it closel
 ![background](https://images.wondershare.com/filmora/article-images/separate-the-foreground-from-background.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4\. DSLR Cameras
@@ -89,6 +93,10 @@ You may also add an extension tube which basically splits the focal distance in 
 
 ![dslr camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5\. Depth of Field
 
 The lens has certain limitation to capture and focus the subject closely. The camera’s aperture can be adjusted to control the depth of your field.
@@ -100,7 +108,7 @@ But, you must remember that when the opening of the lens is small, the light req
 ![depth of field](https://images.wondershare.com/filmora/article-images/depth-of-field.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 6\. Composition
@@ -112,11 +120,7 @@ For instance, in order to keep a snail always in focus, you may choose to shoot 
 ![composition](https://images.wondershare.com/filmora/article-images/composition.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -124,10 +128,6 @@ For instance, in order to keep a snail always in focus, you may choose to shoot 
 Once you can master the above tips for making the macro video, you can easily shoot small objects like a pro. A videographer’s experience and creativity can be matched even by you if you can easily grasp the techniques, practice it, and implement creatively while making your macro videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -154,17 +154,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-budget-friendly-bundles-startup-channels-for-newcomers/"><u>[New] 2024 Approved Budget-Friendly Bundles Startup Channels for Newcomers</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-unleashing-instagram-success-through-precision-metrics-monitoring-for-2024/"><u>[New] Unleashing Instagram Success Through Precision Metrics Monitoring for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-exploring-the-best-phone-apps-to-modify-voice-quality-for-2024/"><u>[Updated] Exploring the Best Phone Apps to Modify Voice Quality for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-screenplay-basics-penning-dynamic-characters-speeches/"><u>[Updated] Screenplay Basics Penning Dynamic Characters' Speeches</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-maximize-your-workflow-with-efficient-use-of-macs-preview-tool/"><u>2024 Approved Maximize Your Workflow with Efficient Use of Mac's Preview Tool</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-navigating-zoom-on-chromebook-essential-advice/"><u>2024 Approved Navigating Zoom on Chromebook Essential Advice</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-secrets-to-selecting-a-premier-cinematographer/"><u>2024 Approved Secrets to Selecting a Premier Cinematographer</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-stay-incognito-how-to-stream-unnoticed-on-instagram/"><u>2024 Approved Stay Incognito How to Stream Unnoticed on Instagram</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/best-video-grabbers-for-mac-for-2024/"><u>Best Video Grabbers for Mac for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/discover-other-pc-video-editing-programs/"><u>Discover Other PC Video Editing Programs</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-poco-c50-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Poco C50 Devices | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-to-avi-tutorial-plus-8-best-youtube-to-avi-converters/"><u>In 2024, YouTube to AVI Tutorial + 8 Best YouTube to AVI Converters</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-forge-funnies-giphys-playground/"><u>[New] 2024 Approved Forge Funnies Giphy's Playground</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-win-11-strategies-to-successfully-save-mov-files/"><u>[New] 2024 Approved Win 11 Strategies to Successfully Save .mov Files</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-ultimate-clock-companion-for-wedding-planners-and-couples/"><u>[New] The Ultimate Clock Companion for Wedding Planners & Couples</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-25-secrets-for-effective-win10-use/"><u>[New] Top 25 Secrets for Effective Win10 Use</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unlocking-deep-sleep-with-asmr-strategies/"><u>[New] Unlocking Deep Sleep with ASMR Strategies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-assessment-of-various-camera-types-for-videos/"><u>[Updated] 2024 Approved Assessment of Various Camera Types for Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-device-transcending-entry-editor-leader-of-2023/"><u>[Updated] Device-Transcending Entry Editor Leader of 2023</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-perfected-panels-expert-recommended-photo-editing-screens/"><u>[Updated] In 2024, Perfected Panels Expert-Recommended Photo Editing Screens</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-how-to-manual-for-time-stamped-videos-on-youtubes/"><u>[Updated] In 2024, The How-To Manual for Time-Stamped Videos on YouTubes</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/1716069182755-updated-in-2024-top-offline-mobile-world-choose-the-ultimate-game-for-fun/"><u>[Updated] In 2024, Top Offline Mobile World - Choose the Ultimate Game for Fun!</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-reinstate-your-airdrop-linkages-simple-fixes-for-iosmacos-issues-for-2024/"><u>[Updated] Reinstate Your AirDrop Linkages Simple Fixes for iOS/macOS Issues for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-top-25-mobile-editors-for-dji-filmmaking/"><u>[Updated] The Top 25 Mobile Editors for DJi Filmmaking</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-voice-logger-essentials-the-best-speech-apps-for-mac-devices-for-2024/"><u>[Updated] Voice Logger Essentials The Best Speech Apps for Mac Devices for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-large-softboxes-the-sturdy-choice/"><u>Exploring Large Softboxes - The Sturdy Choice</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-audible-brilliance-the-ultimate-mic-guide/"><u>In 2024, Audible Brilliance The Ultimate Mic Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-complete-visual-storytellers-guide-to-vsco-app/"><u>In 2024, Complete Visual Storyteller's Guide to VSCO App</u></a></li>
+<li><a href="https://article-posts.techidaily.com/spectacular-hooks-title-crafter-for-2024/"><u>Spectacular Hooks Title Crafter for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/spectrum-surge-tools-for-sharper-web-videos-for-2024/"><u>Spectrum Surge Tools for Sharper Web Videos for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/transformative-color-workflow-with-cg-central-luts-for-2024/"><u>Transformative Color Workflow with CG Central LUTs for 2024</u></a></li>
 </ul></div>
 

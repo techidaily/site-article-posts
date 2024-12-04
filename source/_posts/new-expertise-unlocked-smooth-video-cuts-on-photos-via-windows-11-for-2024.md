@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Expertise Unlocked  Smooth Video Cuts on Photos via Windows 11 for 2024\""
-date: 2024-11-18T17:11:06.416Z
-updated: 2024-11-25T01:57:44.189Z
+date: 2024-12-01T04:57:59.038Z
+updated: 2024-12-04T06:58:42.216Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,6 @@ The in-built editor in Windows 10 Photos can do that for you. Through this artic
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to trim video in Windows 10 Photos
 
 When you talk about video trimming apps on Windows 10 PC, Photos is the only built-in app capable of doing so. Whether you want to do away with the awkward starting of your video or want to club multiple video clips, get Photos on work for that. Basic level editing is possible with Photos, for additional video editing.
@@ -59,14 +55,10 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to trim video in Windows 10 with VLC
 
@@ -80,6 +72,10 @@ Here comes the step by step guide to trim video in VLC –
 
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
 2. Select the position from where you want to keep the video and hit the play and record button together.
 3. Now, tap the 'Record' button again where you want to stop the recording. This clip automatically gets saved as an MP4 media file. You can find it within the 'Libraries/Videos' folder if it's a Windows 7 PC.
@@ -87,7 +83,7 @@ Here comes the step by step guide to trim video in VLC –
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -97,10 +93,14 @@ From the above article, we found that **trimming video in VLC and Windows 10 Pho
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -127,19 +127,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-rapidly-rise-with-smart-instagram-reel-techniques-for-2024/"><u>[New] Rapidly Rise with Smart Instagram Reel Techniques for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-androids-new-frontier-the-impact-of-kinemaster-app/"><u>2024 Approved Android's New Frontier The Impact of KineMaster App</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-bridging-words-to-visuals-the-scriptwriters-craft/"><u>2024 Approved Bridging Words to Visuals The Scriptwriter's Craft</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-key-20-free-pubg-thumbnail-collections/"><u>2024 Approved Key 20 Free PUBG Thumbnail Collections</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-perfect-phone-match-up-for-samsungs-virtual-reality-dreams-update-2023/"><u>2024 Approved Perfect Phone Match-Up for Samsung's Virtual Reality Dreams - Update 2023</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-scrutinizing-dji-drone-goggle-specifications/"><u>2024 Approved Scrutinizing DJI Drone Goggle Specifications</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-voice-interpretation-without-a-price-tag/"><u>2024 Approved Voice Interpretation Without a Price Tag</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-zooms-best-practices-for-organizing-online-meetings/"><u>2024 Approved Zoom's Best Practices for Organizing Online Meetings</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723212196629-aoc-monitor-not-responding-heres-your-ultimate-guide-for-windows-10-users/"><u>AOC Monitor Not Responding? Here's Your Ultimate Guide for Windows 10 Users!</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ing-youtube-rankings-with-top-seo-practices-1-11/"><u>Boosting YouTube Rankings with Top SEO Practices (1-11)</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-honor-magic-6-pro-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Honor Magic 6 Pro</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-reset-the-security-questions-of-your-apple-id-on-your-apple-iphone-11-pro-by-drfone-ios/"><u>How To Reset the Security Questions of Your Apple ID On Your Apple iPhone 11 Pro</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-infinix-hot-40i-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Infinix Hot 40i Phone</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/the-art-of-playlist-construction-on-youtube-for-2024/"><u>The Art of Playlist Construction on YouTube for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-choosing-top-8-free-ai-powered-srt-translators-for-2024/"><u>[New] Choosing Top 8 Free, AI-Powered SRT Translators for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-inside-polarrs-magic-box-the-ultimate-digital-image-enhancer/"><u>[New] In 2024, Inside Polarr's Magic Box The Ultimate Digital Image Enhancer</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-streamed-audiovideo-crafts-meetup-for-2024/"><u>[Updated] Streamed Audio/Video Crafts Meetup for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unveiling-untapped-potential-to-augment-your-youtube-audience-for-2024/"><u>[Updated] Unveiling Untapped Potential to Augment Your Youtube Audience for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210772923-9781649691415-echoes-through-eternity/"><u>Echoes Through Eternity | Free Book</u></a></li>
+<li><a href="https://blog-min.techidaily.com/embracing-tomorrow-today-the-superiority-and-innovation-of-oculus-quest-2-in-modern-vr-experiences/"><u>Embracing Tomorrow Today: The Superiority & Innovation of Oculus Quest 2 in Modern VR Experiences</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-any-infinix-smart-8-plus-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Infinix Smart 8 Plus Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-newest-compatible-cameras-to-match-samsung-gear-360/"><u>In 2024, Newest Compatible Cameras to Match Samsung Gear 360</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-overcoming-unnatural-motion-blur-in-uav-videos/"><u>In 2024, Overcoming Unnatural Motion Blur in UAV Videos</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/inside-toms-computing-world-precision-hardware-evaluations-and-guides/"><u>Inside Tom's Computing World: Precision Hardware Evaluations and Guides</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-the-riddle-of-the-green-glitch-in-nba-2k21-a-comprehensive-guide/"><u>Solving the Riddle of the Green Glitch in NBA 2K21 - A Comprehensive Guide</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-resolve-missing-msvcr100dll-error-with-ease/"><u>Ultimate Guide: Resolve 'Missing MSVCR100.DLL' Error with Ease</u></a></li>
+<li><a href="https://win-able.techidaily.com/ultimate-guide-resolving-doom-eternal-game-crashes-and-stability-problems/"><u>Ultimate Guide: Resolving DOOM Eternal Game Crashes & Stability Problems</u></a></li>
+<li><a href="https://article-posts.techidaily.com/whats-the-difference-between-360-video-and-vr-video/"><u>What's the Difference Between 360° Video and VR Video?</u></a></li>
 </ul></div>
 

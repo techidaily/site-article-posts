@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, A Symphony of Shades  Practical Color Utilization\""
-date: 2024-11-22T19:50:19.448Z
-updated: 2024-11-25T03:36:52.043Z
+date: 2024-11-30T19:39:08.022Z
+updated: 2024-12-03T17:35:02.440Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ If you are more selective with your colors in your videos or imagery the viewer 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is Color Theory
@@ -36,10 +36,6 @@ If you are more selective with your colors in your videos or imagery the viewer 
 Color theory consists of many elements that could fill a library on its own but for this guide we will focus on two key elements. The color wheel and color harmony. By understanding the color wheel and color harmony you can hand pick which colors to add or use in your pieces to create a well-balanced viewing experience which can help in viewer engagement and enjoyment.
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Color Wheel
 
@@ -55,6 +51,10 @@ So now we know how the wheel is made and what it looks like. What does it do? We
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
 These colors always work as they create contrast and stability.
@@ -64,7 +64,7 @@ The blue lines represent what is known as split contrasting colors and these wil
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## But How Do I Use This
@@ -73,20 +73,20 @@ You may still be unsure as to how to implement color theory into your videos. Le
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
 As you can see from this example the base color for the scene is a dark blue/purple and using the analogous color of pink they created a point of interest within the scene that doesn't look out of place. This is a very good way to pull the viewers eyes towards something you want them to take in above all else.
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -123,24 +123,15 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-breezy-methodology-for-downloading-twitters-laughs-gifs-for-2024/"><u>[New] Breezy Methodology for Downloading Twitter's Laughs (GIFs) for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-weaving-your-way-to-greatness-in-tiktok-content/"><u>[New] Weaving Your Way to Greatness in TikTok Content</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-boosting-youtube-videos-activating-av1-support/"><u>[Updated] In 2024, Boosting YouTube Videos Activating AV1 Support</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-iphone-slow-motion-shooting-essentials/"><u>[Updated] In 2024, IPhone Slow Motion Shooting Essentials</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-elevate-your-snaps-with-zooming-techniques/"><u>2024 Approved Elevate Your Snaps with Zooming Techniques</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-exploring-the-future-of-interactive-headsets/"><u>2024 Approved Exploring the Future of Interactive Headsets</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-in-depth-analysis-complete-overhaul-of-facetune-app/"><u>2024 Approved In-Depth Analysis Complete Overhaul of Facetune App</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-in-depth-analysis-complete-revamp-of-facetune-app/"><u>2024 Approved In-Depth Analysis Complete Revamp of Facetune App</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-innovative-methods-for-time-loop-illusions/"><u>2024 Approved Innovative Methods for Time Loop Illusions</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-image-retrieval-on-pexels-a-step-by-step-guide/"><u>2024 Approved Mastering Image Retrieval on Pexels A Step-by-Step Guide</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-navigating-tiktok-profile-updates-with-linktree-integration/"><u>2024 Approved Navigating TikTok Profile Updates with Linktree Integration</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-privacy-prioritized-procedures-uploading-and-sending-youtube-files-via-google/"><u>2024 Approved Privacy-Prioritized Procedures Uploading and Sending YouTube Files via Google</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-rejuvenated-interview-framework-for-auditory-appeal/"><u>2024 Approved Rejuvenated Interview Framework for Auditory Appeal</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-the-top-photo-protection-apps-reviewed/"><u>2024 Approved The Top Photo Protection Apps Reviewed</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-ultimate-visual-upgrade-mastery-of-video-enhancer-version-22/"><u>2024 Approved Ultimate Visual Upgrade Mastery of Video Enhancer Version 2.2</u></a></li>
-<li><a href="https://article-posts.techidaily.com/action-shooting-basics-buying-guide-for-new-film-enthusiasts-for-2024/"><u>Action Shooting Basics – Buying Guide for New Film Enthusiasts for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-pushing-boundaries-upward-an-incisive-mavic-pro-review/"><u>In 2024, Pushing Boundaries Upward An Incisive Mavic Pro Review</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/master-the-art-of-permanent-deletion-with-these-7-algorithmic-strategies/"><u>Master the Art of Permanent Deletion with These 7 Algorithmic Strategies</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/step-by-step-guide-creating-a-dvd-copy-on-your-pc-using-windows-10-or-11/"><u>Step-by-Step Guide: Creating a DVD Copy on Your PC Using Windows 10 or 11</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-5-reddit-marketing-tips-that-will-turn-beginners-into-experts/"><u>[New] 2024 Approved 5 Reddit Marketing Tips that Will Turn Beginners Into Experts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-microsofts-hololens-journey-from-vision-to-reality/"><u>[New] In 2024, Microsoft’s HoloLens Journey – From Vision to Reality</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-dance-drumming-dodoes/"><u>[Updated] Dance Drumming Dodoes</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-spatial-realities-compared-the-meta-and-omni-experience-for-2024/"><u>[Updated] Spatial Realities Compared The Meta and Omni Experience for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-vocalizing-video-content-tunes-for-instagram-stories/"><u>[Updated] Vocalizing Video Content Tunes for Instagram Stories</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/auflosung-von-windows-automatischer-wiederholungsreparatur-im-jahr-2024/"><u>Auflösung Von Windows' Automatischer Wiederholungsreparatur Im Jahr 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/guide-on-how-to-remove-apple-id-from-apple-iphone-8-plus-by-drfone-ios/"><u>Guide on How To Remove Apple ID From Apple iPhone 8 Plus</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-unveiling-the-essence-filmoras-top-10-enchanting-features/"><u>In 2024, Unveiling the Essence Filmora’s Top 10 Enchanting Features</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-speech-to-text-the-whisper-desktop-way/"><u>Mastering Speech-to-Text: The Whisper Desktop Way</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-rated-ipad-models-featuring-comprehensive-reviews-by-tech-experts-insights-from-zdnet/"><u>Top-Rated iPad Models Featuring Comprehensive Reviews by Tech Experts - Insights From ZDNet</u></a></li>
 </ul></div>
 

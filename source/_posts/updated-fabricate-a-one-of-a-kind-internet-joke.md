@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Fabricate a One-of-a-Kind Internet Joke\""
-date: 2024-11-24T04:12:38.825Z
-updated: 2024-11-24T18:28:26.108Z
+date: 2024-11-29T17:51:21.251Z
+updated: 2024-12-03T21:56:03.923Z
 tags: 
   - screen-recording
   - ai video
@@ -29,10 +29,6 @@ Let's check how you can **create your own meme** with these apps.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 In this market, there are numerous meme creators, but only a few allow doing it for free. You will always want an app that allows you to create memes online without registration and watermark. Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is there to help you out with creating video and image memes.
@@ -49,10 +45,6 @@ You will only have to import the image, add your text, and then export it to mak
 * **Add caption:** Place the file on the timeline. You can click on the "Title" tab and select the text style. Enter words and add color, font, and size to the caption. You can also try inserting a famous song in the background. You must drag and drop the file into the program and put the audio track.
 * **Save your meme:** Of course, when you are finished with the meme, you will want to share the meme with the online world. It is as simple as you can upload the video meme to any social media platform by clicking on the "Export" option.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Use Photoshop
 
 Want to learn how to create a meme with Photoshop? This manual is meant to assist. Since the invention of the internet, memes have increased to disseminate complex information in brief, digestible chunks. It is a low-cost, high-impact image that may be quickly produced and destroyed. Many meme creators are available, including one in Photoshop, but using Photoshop itself will give you much more power.
@@ -67,7 +59,7 @@ Here's how to create memes on your computer using only Photoshop CC. Choose a ph
 * **Add Text:** In the end, a meme's appearance serves as a vehicle for its message. The writing should be boldly extensive and assertive next to the image, compromising style for effect. To create a box across the canvas, use the Type tool. Aim for a structure with one significant remark and a lesser message below by keeping the wording extensive and straightforward.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Use Canva
@@ -76,9 +68,17 @@ It's free and straightforward to make a meme with Canva's meme maker. You may co
 
 ![use canva create meme](https://images.wondershare.com/filmora/article-images/2022/07/use-canva-create-meme.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * **Open Canva and Search for the template:** Open the Canva and then search “Meme” on the search tool. You can browse through the library of meme templates for all themes. You can add the keyword which fits your choice and then style it to narrow the search. You can click on the template you love to add the page to the editor.
 * **Explore features:** The Canva's library has several stock stickers, images, icons, photos, and speech bubbles. You can use the handy feature for making the elements rise, pan, or tumble on the page. You can even add a video or audio clip.
 * **Personalize the meme:** Do you have an idea in your mind? You can feel free to upload photos or artwork images. You can choose your color scheme, background, and style and mix the element from several templates.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. imgflip
 
@@ -115,6 +115,10 @@ The process of making memes with memes better is as follows:
 * These meme templates are free to use and are categorized according to different trends. You can scroll to different pages to find a perfect meme template for you or you can also click on the search button to find a particular template with keywords.
 * After you have selected a meme template, you will be available with different text fields where you can insert your texts, and then the text will be shown on the image. If you want to refresh or undo your changes, then you can click on the "Auto-refresh" option to add the texts again.
 * When you are done with your editing, click on the "Save image" and the meme will be saved to your device.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Make a Meme
 
@@ -139,25 +143,21 @@ Memes are enjoyable because they make you smile and chuckle. The ideal way to cr
 
 ![use filmora](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You will only have to import the image, add your text, and then export it to make a meme with the meme generator. This built-in video trimmer will help you cut out the unwanted parts of the video while creating memes. Let's see the steps on how you can **create your meme** with Filmora.
 
 * **Import the video:** Launch the Filmora video and then hit "New Project" to create your new project. In the settings, you can set proper ratios like 1:1, 16:9, or 4:3\. After that, you will have to click on the "important" button to load the video or image. After that, click on the "record" button.
 * **Add caption:** Place the file on the timeline. You can click on the "Title" tab and select the text style. Enter words and add color, font, and size to the caption. You can also try inserting a famous song in the background. You must drag and drop the file into the program and put the audio track.
 * **Save your meme:** Of course, when you are finished with the meme, you will want to share the meme with the online world. It is as simple as you can upload the video meme to any social media platform by clicking on the "Export" option.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Use Photoshop
 
 Want to learn how to create a meme with Photoshop? This manual is meant to assist. Since the invention of the internet, memes have increased to disseminate complex information in brief, digestible chunks. It is a low-cost, high-impact image that may be quickly produced and destroyed. Many meme creators are available, including one in Photoshop, but using Photoshop itself will give you much more power.
 
 ![make meme with ps](https://images.wondershare.com/filmora/article-images/2022/07/make-meme-with-ps.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Here's how to create memes on your computer using only Photoshop CC. Choose a photo and **make it a meme** with these steps.
 
@@ -167,7 +167,7 @@ Here's how to create memes on your computer using only Photoshop CC. Choose a ph
 * **Add Text:** In the end, a meme's appearance serves as a vehicle for its message. The writing should be boldly extensive and assertive next to the image, compromising style for effect. To create a box across the canvas, use the Type tool. Aim for a structure with one significant remark and a lesser message below by keeping the wording extensive and straightforward.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Use Canva
@@ -181,7 +181,7 @@ It's free and straightforward to make a meme with Canva's meme maker. You may co
 * **Personalize the meme:** Do you have an idea in your mind? You can feel free to upload photos or artwork images. You can choose your color scheme, background, and style and mix the element from several templates.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. imgflip
@@ -189,10 +189,6 @@ It's free and straightforward to make a meme with Canva's meme maker. You may co
 It is a free online meme maker app that will allow you to add some custom images, text, and many more to the picture. People mostly use the generator for customizing the famous meme, and you can find those in Imgflip's collection. You can easily upload the template and begin the process from scratch with blank templates.
 
 ![create-meme-with-imgflip.jpg](https://images.wondershare.com/filmora/article-images/2022/07/create-meme-with-imgflip.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Steps to make a meme with imgflip:
 
@@ -206,6 +202,10 @@ iLoveIMG is another free-to-use online application that helps users with editing
 
 ![make meme with iloveimg](https://images.wondershare.com/filmora/article-images/2022/07/make-meme-with-iloveimg.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * First, go to [iloveimg.com](http://www.iloveimg.com) and then click on the "meme generator" option given on your screen. This will take you to the meme generator page where you will be asked to upload the image you want to make a meme with.
 * You can click on the "upload image" option to upload an image from your camera roll to modify or create your meme. Or else you can click on the "Select meme template" to search for any particular meme template that you want to edit.
 * After you have chosen a meme template or uploaded your image, you will be available with different editing tools that will help you to resize and add texts of different fonts to your image. Select the font you want to go with and then add it to your image.
@@ -217,6 +217,10 @@ One of the most popular subjects of interest among social media users these days
 
 ![meme better](https://images.wondershare.com/filmora/article-images/2022/07/meme-better.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The process of making memes with memes better is as follows:
 
 * Go to your device browser and type [memebetter.com](http://www.memebetter.com) in the search bar. This will take you to the official website of the modern meme generator. Click on the "launch the meme generator" option and the browser will open a page where meme templates are available to use for free.
@@ -225,7 +229,7 @@ The process of making memes with memes better is as follows:
 * When you are done with your editing, click on the "Save image" and the meme will be saved to your device.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Make a Meme
@@ -238,10 +242,6 @@ If you are looking for a free and simple meme generator for your social media ne
 * After you open the Make a Meme web app interface, you will be asked to "Upload Image" by clicking on the option under the same name. You can upload your preferred image for generating memes or else there is also the option to try out different meme templates.
 * After selecting an image, you can edit it to add texts or layers and when you are done, the image will be ready for preview. The texts in the meme image can be changed by tapping on the text box provided on the screen and then inserting the preferred texts.
 * If you are satisfied with your meme creation and want no further changes, you will need to click on the "Download Image" option and your meme will be saved successfully. Along with this, you also have the option to share the meme instantly to any cloud storage if you want to do so.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -275,20 +275,22 @@ Memes are enjoyable because they make you smile and chuckle. The ideal way to cr
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-ultimate-android-3d-player-showcase/"><u>[New] 2024 Approved Ultimate Android 3D Player Showcase</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-ideal-3d-software-for-creating-animation/"><u>[New] Ideal 3D Software for Creating Animation</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-tactics-and-techniques-for-thriving-in-spotifys-adverse/"><u>[New] Tactics and Techniques for Thriving in Spotify's Adverse</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-escape-artists-manual-to-disguised-youtube-archives/"><u>[Updated] The Escape Artist's Manual to Disguised YouTube Archives</u></a></li>
-<li><a href="https://win-manuals.techidaily.com/1728475089195-2022/"><u>2022最新版頂級硬碟修復魔術師：完美重建磁區</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-effective-methods-for-downloading-audio-tracks-from-pinterest-videos/"><u>2024 Approved Effective Methods for Downloading Audio Tracks From Pinterest Videos</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-free-cross-platform-4k-playback-tools-for-win-and-os-x-devices/"><u>2024 Approved Free, Cross-Platform 4K Playback Tools for Win & OS X Devices</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-mastering-the-art-of-discovering-excellent-insta-soundtracks-and-creating-stellar-call-alerts/"><u>2024 Approved Mastering the Art of Discovering Excellent Insta Soundtracks & Creating Stellar Call Alerts</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-sjcam-sj7-star-action-camera-complete-review/"><u>2024 Approved SJCam SJ7 Star Action Camera Complete Review</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-unleash-virtual-reality-to-the-fullest-with-htc-vive-review/"><u>2024 Approved Unleash Virtual Reality to the Fullest with HTC Vive Review</u></a></li>
-<li><a href="https://article-posts.techidaily.com/4k-resolution-reimagined-picking-the-right-vision-technology-for-2024/"><u>4K Resolution Reimagined Picking the Right Vision Technology for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/expert-advice-to-correct-error-code-0xc00aturate-issues-in-black-ops-cold-war-gameplay/"><u>Expert Advice to Correct Error Code 0Xc00aturate Issues in Black Ops: Cold War Gameplay</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-tecno-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Tecno .</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-premium-timepieces-for-your-dream-wedding-on-smartphones/"><u>In 2024, Premium Timepieces for Your Dream Wedding on Smartphones</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-lava-yuva-3-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Lava Yuva 3 Device</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-brush-up-creativity-leading-mac-friendly-free-design-tools-for-2024/"><u>[New] Brush Up Creativity Leading Mac-Friendly FREE Design Tools for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-pace-your-panorama-learning-time-lapses-on-samsung-phones/"><u>[New] In 2024, Pace Your Panorama Learning Time-Lapses on Samsung Phones</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-crafting-compelling-narratives-key-market-words-and-phrases/"><u>[Updated] Crafting Compelling Narratives Key Market Words and Phrases</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-science-behind-time-warp-visuals/"><u>[Updated] In 2024, The Science Behind Time Warp Visuals</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-exploring-the-in-depth-world-of-magix-video-pro-x/"><u>2024 Approved Exploring the In-Depth World of Magix Video Pro X</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-immediate-audience-monitoring-tools/"><u>2024 Approved Immediate Audience Monitoring Tools</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/boost-windows-efficiency-the-ultimate-guide-to-wintools/"><u>Boost Windows Efficiency: The Ultimate Guide to Wintools</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Samsung Galaxy S24? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/how-to-get-up-close-with-video-chat-colleagues-for-2024/"><u>How to Get Up Close with Video Chat Colleagues for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-bright-ideas-elevate-your-video-with-strategic-lighting/"><u>In 2024, Bright Ideas Elevate Your Video with Strategic Lighting</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-oppo-a38-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Oppo A38 to PC? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-luxurious-asmr-sound-priced-right-top-picks-listed-here/"><u>In 2024, Luxurious ASMR Sound, Priced Right - Top Picks Listed Here</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-unlocking-vr-advertising-potential/"><u>In 2024, Unlocking VR Advertising Potential</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/superior-visuals-leading-hdmi-21-monitors-for-ps5-gaming-for-2024/"><u>Superior Visuals Leading HDMI 2.1 Monitors for PS5 Gaming for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/tiktok-downloading-the-blueprint-for-mass-media-capture-for-2024/"><u>TikTok Downloading The Blueprint for Mass Media Capture for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/top-8-affordable-srt-services-for-flawless-translation/"><u>Top 8 Affordable SRT Services for Flawless Translation</u></a></li>
+<li><a href="https://article-posts.techidaily.com/windows-10-new-features-at-a-glance/"><u>Windows 10 New Features at a Glance</u></a></li>
 </ul></div>
 

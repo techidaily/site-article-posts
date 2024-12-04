@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Looking Beneath Surface  Understanding VR Drawbacks\""
-date: 2024-09-04T18:14:46.622Z
-updated: 2024-09-05T18:14:46.622Z
+date: 2024-11-28T18:01:34.324Z
+updated: 2024-12-03T16:44:22.048Z
 tags: 
   - screen-recording
   - ai video
@@ -32,9 +32,17 @@ thumbnail: https://thmb.techidaily.com/c3feb7e5b167df5f057578cdbf724989b5f251480
 _[Differences between VR, AR and MR](https://tools.techidaily.com/wondershare/filmora/download/)_
 _[Virtual Reality Technology: Current State and Future Challenges](https://tools.techidaily.com/wondershare/filmora/download/)_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The equipment used for VR is very expensive
 
  Of course with any early stage technology, there are a host of issues to overcome among the first is cost for consumers to participate. Many systems run between $100 and $600 and we have not yet discussed the cost of purchasing experiences or games.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Low resoultion content, large file size
 
@@ -57,29 +65,23 @@ _[Virtual Reality Technology: Current State and Future Challenges](https://tools
  There is an addictive quality of Virtual Reality environments that should not be ignored. Those who are regular users of these spaces, even in its developmental state find that it can be hard to stay away. Users find themselves in some cases, preferring the virtual world to the real one. If these anecdotal experiences are being reported by a very small sample size what will be the impact on entire cultures that embrace this technology? Considerations of Virtual Reality must extend into the world of human activity and definitions of normal behavior. And as a reminder most of us who love science fiction have a sense of what true Virtual Reality really is. It should be clear that we are a very long way from enjoying the holodeck.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Best Video Editor: [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -103,4 +105,26 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-ace-your-videos-essential-editors-for-youtube/"><u>[New] 2024 Approved Ace Your Videos Essential Editors for YouTube</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-detailed-review-and-tips-picsart-users/"><u>[New] In 2024, Detailed Review & Tips PicsArt Users</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-mastering-story-tempo-adjusting-video-speed-in-instagram/"><u>[New] Mastering Story Tempo Adjusting Video Speed in Instagram</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-premium-vector-graphics-the-ultimate-10-site-list-for-2024/"><u>[New] Premium Vector Graphics The Ultimate 10 Site List for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unlocking-potential-the-right-propeller-match-in-fpv-flight-for-2024/"><u>[New] Unlocking Potential The Right Propeller Match in FPV Flight for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-elite-budget-free-fb-imagemotion-engineer/"><u>[Updated] 2024 Approved Elite Budget-Free FB Image/Motion Engineer</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-beyond-the-headset-global-vr-evolution/"><u>[Updated] Beyond the Headset Global VR Evolution</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-fast-and-free-fb-video-conversion-tools-for-mp3-files/"><u>[Updated] In 2024, Fast and Free FB Video Conversion Tools for MP3 Files</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-mastering-the-art-of-soundtrack-posts-a-copyright-primer-for-insta/"><u>[Updated] In 2024, Mastering the Art of Soundtrack Posts A Copyright Primer for Insta</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-ultimate-guide-to-valheim-sowing-seeds/"><u>[Updated] In 2024, Ultimate Guide to Valheim Sowing Seeds</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-smooth-operations-leading-windows-phones-videos-for-2024/"><u>[Updated] Smooth Operations Leading Windows Phones Videos for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/amazon-kindle-paperwhite-time-change-instructions-made-easy/"><u>Amazon Kindle Paperwhite Time Change Instructions Made Easy</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-solve-your-headphone-problems-when-using-a-windows-10-computer/"><u>How to Solve Your Headphone Problems When Using a Windows 10 Computer</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-winning-at-tinder-quick-bio-tweaks-to-make-you-shine/"><u>In 2024, Winning at Tinder Quick Bio Tweaks to Make You Shine</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/simplified-pubg-voice-alteration-guide/"><u>Simplified PUBG Voice Alteration Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/step-by-step-snagging-stunning-pexels-pictures/"><u>Step-by-Step Snagging Stunning Pexels Pictures</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dangers-of-opening-up-to-unknown-facebook-friends/"><u>The Hidden Dangers of Opening Up to Unknown Facebook Friends</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/top-5-excellent-substitutes-for-malwarebytes-on-windows-11-enhanced-security-solutions/"><u>Top 5 Excellent Substitutes for Malwarebytes on Windows 11: Enhanced Security Solutions</u></a></li>
+<li><a href="https://article-posts.techidaily.com/unlock-expertise-proven-hidden-window-11-strategies-for-everyday-users-for-2024/"><u>Unlock Expertise Proven, Hidden WINDOW 11 Strategies for Everyday Users for 2024</u></a></li>
+</ul></div>
 
