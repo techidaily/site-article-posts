@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Ultimate Tips for Erasing Backgrounds in Figma Design"
-date: 2024-11-29T00:24:54.303Z
-updated: 2024-12-04T00:56:32.750Z
+date: 2024-12-03T16:26:08.654Z
+updated: 2024-12-10T16:55:37.797Z
 tags: 
   - screen-recording
   - ai video
@@ -32,7 +32,7 @@ So, keep reading to find out about removing an image's background in Figma!
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Best Option to Remove Image's Background in Figma
@@ -69,6 +69,10 @@ Step1 First, open a browser, visit the [Figma website](https://www.figma.com), a
 
 ![importing image to figma to remove background](https://images.wondershare.com/filmora/article-images/2023/03/importing-image-to-figma-to-remove-background.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Once the import process is complete, click **"Done"** in the pop-up window and open your image. Now, click the "**Main Menu"** icon and choose **"Plugins" > "Find More Plugins"** from the drop-down menu.
 
 Step2 Next, search for **"**[**PixCut Background Remover**](https://www.figma.com/community/plugin/990188175789012011)**"** using the search option and select it from the result. Click **"Run,"** choose the **"Select App key"** option from the drop-down menu, and you will be asked for your **"Appkey."**
@@ -92,6 +96,10 @@ Follow these tips to remove the background of images with transparent or solid c
 * When saving your images from programs like Photoshop, make sure to save them with transparent background. This way, when you import it to Figma, the BG will be removed automatically.
 * If your image has a solid background, import it to Figma and use the **"Edit Color"** tool to change the BG to transparent.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### (2) 3 Other Figma Plugins
 
 You can use the following **Figma plugins to remove the image background**:
@@ -114,19 +122,15 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### (3) Using Online Removers
 
 Another alternative is to use any tool that **removes the image background online**. For example, we recommend using the [Remove BG tool](https://www.remove.bg/).
 
 To use the Remove BG tool, visit its website, drop your image file, or click the **"Upload"** option to import your file. Now, wait for the program to process your image and then click **"Download"** to save your picture. Afterward, you can import it to Figma for further editing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
@@ -153,11 +157,7 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### (3) Using Online Removers
@@ -166,13 +166,13 @@ Another alternative is to use any tool that **removes the image background onlin
 
 To use the Remove BG tool, visit its website, drop your image file, or click the **"Upload"** option to import your file. Now, wait for the program to process your image and then click **"Download"** to save your picture. Afterward, you can import it to Figma for further editing.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -206,21 +206,22 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-engaging-instagram-stories-with-animated-text-effects/"><u>[New] Engaging Instagram Stories with Animated Text Effects</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-ice-chase-top-moments-captured-s-olympic-snowboard-race-events-for-2024/"><u>[New] Ice Chase Top Moments Captured 'S Olympic Snowboard Race Events for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-mastering-channel-artistry-explore-these-10-visual-creation-tools/"><u>[New] Mastering Channel Artistry Explore These 10 Visual Creation Tools</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-top-15-facebook-videograbber-add-ons-compatible-with-firefox-for-2024/"><u>[New] Top 15 Facebook Videograbber Add-Ons, Compatible with FireFox for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-what-is-a-drone-and-how-does-it-work-for-2024/"><u>[New] What Is a Drone and How Does It Work for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-strategic-utilization-of-azure-voice-to-text-capabilities/"><u>[Updated] 2024 Approved Strategic Utilization of Azure Voice-to-Text Capabilities</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-from-novice-to-pro-the-complete-guide-to-greenscreen-in-kinemaster/"><u>[Updated] In 2024, From Novice to Pro The Complete Guide to Greenscreen in KineMaster</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-top-places-to-access-westeros-themed-phone-sounds/"><u>[Updated] Top Places to Access Westeros-Themed Phone Sounds</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-video-editor-guide-and-review/"><u>[Updated] YouTube Video Editor Guide and Review</u></a></li>
-<li><a href="https://win-ratings.techidaily.com/effettuare-il-tuo-stesso-convertitore-da-dvd-a-mp4-con-movavi-video-converter/"><u>Effettuare Il Tuo Stesso Convertitore Da DVD a MP4 Con Movavi Video Converter</u></a></li>
-<li><a href="https://article-posts.techidaily.com/full-analysis-of-t5-eyes-exceptional-action-recording-for-2024/"><u>Full Analysis of T5 Eye's Exceptional Action Recording for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-expertly-enhance-photos-with-free-technology/"><u>In 2024, Expertly Enhance Photos with Free Technology</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/optimal-mkv-watcher-for-laptops/"><u>Optimal MKV Watcher for Laptops</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/share-it-all-free-unwatermarked-tiktok-downloads-for-2024/"><u>Share-It-All Free, Unwatermarked TikTok Downloads for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshoot-on-hold-charging-issues-top-8-fixes-for-iphones/"><u>Troubleshoot 'On-Hold Charging' Issues: Top 8 Fixes for iPhones</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-analysis-of-sony-bdp-s6700-for-2024/"><u>Updated Analysis of Sony BDP-S6700 for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-up-close-and-personal-tips-for-sharper-videos-on-videoleap/"><u>[New] 2024 Approved Up Close & Personal Tips for Sharper Videos on Videoleap</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-iphone-techniques-for-full-sphere-videography/"><u>[New] In 2024, IPhone Techniques for Full-Sphere Videography</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-navigating-top-10-affordable-mobile-video-services/"><u>[New] Navigating Top 10 Affordable Mobile Video Services</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unlock-the-power-of-product-placements-a-comprehensive-guide-for-youtubers-for-2024/"><u>[New] Unlock the Power of Product Placements A Comprehensive Guide for YouTubers for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-4-unrooted-ways-to-log-internal-android-audio/"><u>[Updated] 2024 Approved 4 Unrooted Ways to Log Internal Android Audio</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-aviations-new-titans-dji-phantom-pro-and-gopro-k20-ii/"><u>[Updated] In 2024, Aviation's New Titans DJI Phantom Pro & GoPro K20 II</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-throughput-your-videos-8-top-android-apps/"><u>[Updated] Throughput Your Videos 8 Top Android Apps</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-3-best-smartphones-for-recording-video/"><u>2024 Approved 3 Best Smartphones for Recording Video</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-huawei-nova-y71-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Huawei Nova Y71 Fingerprint Lock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-value-with-the-apple-watch-se-a-detailed-assessment/"><u>Discovering Value with the Apple Watch SE - A Detailed Assessment</u></a></li>
+<li><a href="https://common-error.techidaily.com/efficient-solutions-to-restore-your-laptops-touchpad-functionality-expert-advice-and-tips/"><u>Efficient Solutions To Restore Your Laptop's Touchpad Functionality – Expert Advice & Tips</u></a></li>
+<li><a href="https://article-posts.techidaily.com/estimating-a-20mb-videoclip-duration/"><u>Estimating a 20MB Videoclip Duration</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/expertly-picked-top-10-windows-11-cam-recorders/"><u>Expertly Picked Top 10 Windows 11 Cam Recorders</u></a></li>
+<li><a href="https://article-posts.techidaily.com/incorporating-captions-in-photography-a-user-friendly-guide-on-pc-and-mac/"><u>Incorporating Captions in Photography A User-Friendly Guide on PC & Mac</u></a></li>
+<li><a href="https://win-able.techidaily.com/mastering-rule-based-cell-highlights-a-step-by-step-guide-to-conditional-formatting-in-excel/"><u>Mastering Rule-Based Cell Highlights: A Step-by-Step Guide to Conditional Formatting in Excel</u></a></li>
+<li><a href="https://article-posts.techidaily.com/mastery-guide-on-the-world-of-voice-recordings/"><u>Mastery Guide on the World of Voice Recordings</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/step-by-step-guide-reviving-your-iphones-calendar-app-on-the-latest-models/"><u>Step-by-Step Guide: Reviving Your iPhone's Calendar App on the Latest Models</u></a></li>
 </ul></div>
 

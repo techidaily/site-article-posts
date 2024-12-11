@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Primer on Using Azure's Voice-to-Text Service\""
-date: 2024-12-02T02:02:23.707Z
-updated: 2024-12-04T05:05:04.633Z
+date: 2024-12-03T23:31:49.183Z
+updated: 2024-12-10T16:24:23.397Z
 tags: 
   - screen-recording
   - ai video
@@ -43,10 +43,6 @@ If you're not good with programming languages, use Speech CLI, a command tool th
 
 It is also worth noting that Azure Speech Studio supports keyword recognition or keyword spotting. You can generate keyword recognition models and specify any short phrase or word. Users can also personalize keywords with the correct punctuations. And best of all, there is no extra cost for customizing keywords.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Step by Step Guide to Transcribe Speech to Text with Microsoft Speech Studio
 
 Now let's learn how to use Microsoft Azure speech recognition services. Remember, the conversion may not be accurate if the audio has lots of domain-industry jargon or ambient noises. Therefore, use crisp-clear audio with an external mic or train the software to recognize specific words or keywords. Let's get started!
@@ -59,6 +55,10 @@ Step3The program will take a while to deploy an instance. Now tap Keys and endpo
 
 ![micrsoft azure speech to text copy key and region](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4Download and install Microsoft Visual C++ and .NET Core 3.1 Runtime. Next, install Speech CL on .NET by running this command “**dotnet tool install -global Microsoft.CognitiveServices.Speech.CLI.**” Alternatively, download and install Speech CLI for Windows PCs as a [ZIP file](https://aka.ms/speech/spx-windows).
 
 Step5Now enter the Azure regional identifier and subscription key on Windows Terminal or PowerShell. To configure the region and key, run these commands; “**spx config @key --set SUBSCRIPTION-KEY** and **spx config @region --set REGION.**”
@@ -67,10 +67,14 @@ Step6Now it's time to convert speech to text using Azure STT Service. To do that
 
 ![icon note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** Click [this video](https://docs.microsoft.com/en-us/shows/one-dev-minute/how-to-use-the-azure-cognitive-services-net-speech-sdk-for-recognition) for a detailed guide on how to use Azure Speech Services with Visual Basic (SDK).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: What Are the Free Alternatives to the Microsoft Speech to Text Service?
@@ -105,19 +109,11 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 
 ![toolbar stt](https://images.wondershare.com/filmora/guide/guide-win/toolbar-stt.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step 2
 
 Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
 
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Google Docs - Free
 
@@ -135,13 +131,13 @@ Step2Next, click the language drop-down arrow on the microphone to choose the tr
 
 Step3Click the Microphone icon to start dictating texts on Google Docs. After dictating enough texts, tap the red Microphone icon and edit your text. It's that simple!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3.[Audtext](https://audext.com/) \- $60 one-time fee
 
 ![micrsoft azure speech to text alternative audtext](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If Google's voice recognition service is too slow for your liking, consider Audtext. It's a highly rated online program that uses cutting-edge machine learning technology to transcribe audio to text in 60+ languages. You can easily train this program to identify the speaker in your interview or podcast file.
 
@@ -154,6 +150,10 @@ Step1Create a transcription account on Audtext and click New Upload to choose th
 Step2Drag-n-drop your video or audio file on the program and then choose the transcription language. After adding your file, click Upload to scan and transcribe it. This should take a while.
 
 Step3Finally, click the transcribed text file to edit it with new texts and punctuations on the inbuilt editor. You can export your transcription in .txt, .srt, or .docx formats. Directly export to Google Drive is also available.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -171,7 +171,7 @@ In that case, use a more straightforward option like Google Docs to dictate text
 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 
@@ -193,22 +193,14 @@ In that case, use a more straightforward option like Google Docs to dictate text
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-giggle-gang-exploring-the-best-memetic-apps/"><u>[New] 2024 Approved Giggle Gang Exploring the Best Memetic Apps</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-boost-your-visibility-with-a-cutting-edge-set-of-banners-for-2024/"><u>[New] Boost Your Visibility with a Cutting-Edge Set of Banners for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/levate-engagement-with-these-10-premier-youtube-seo-instruments/"><u>[New] Elevate Engagement with These 10 Premier YouTube SEO Instruments</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-essential-gadgets-amplify-online-videos/"><u>[New] Essential Gadgets Amplify Online Videos</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-jestjungle-your-gateway-to-universal-comedy-for-2024/"><u>[New] JestJungle Your Gateway to Universal Comedy for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-learn-to-make-a-flawless-square-video-in-imovie-for-instagram-for-2024/"><u>[New] Learn to Make a Flawless Square Video in iMovie for Instagram for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-unleash-potential-a-step-by-step-solo-podcast-creation/"><u>[New] Unleash Potential A Step-By-Step Solo Podcast Creation</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-accessing-the-ultimate-10-lists-of-vector-pics-sites/"><u>[Updated] 2024 Approved Accessing the Ultimate 10 Lists of Vector Pics Sites</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-superior-commercial-cloud-vaulting/"><u>[Updated] 2024 Approved Superior Commercial Cloud Vaulting</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-transform-your-profile-into-an-instagram-powerhouse-with-these-verification-insights/"><u>[Updated] 2024 Approved Transform Your Profile Into an Instagram Powerhouse with These Verification Insights</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-professionals-playbook-merging-srt-captions-into-mp4/"><u>[Updated] In 2024, Professional's Playbook Merging SRT Captions Into MP4</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-mastering-pc-hdr-views-and-edits/"><u>[Updated] Mastering PC HDR Views & Edits</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/expert-advice-on-fixing-steams-voice-call-problems-for-gamers/"><u>Expert Advice on Fixing Steam's Voice Call Problems for Gamers</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-be-amongst-the-few-essential-metaverse-technology/"><u>In 2024, Be Amongst the Few Essential Metaverse Technology</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/insiders-approach-to-webinar-preservation-for-2024/"><u>Insider's Approach to Webinar Preservation for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/leading-20-free-open-source-pubg-galleries/"><u>Leading 20 Free, Open Source PUBG Galleries</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/mastering-the-market-with-a-samsung-galaxy-note-9-walkthrough-why-its-the-top-choice-in-large-display-phones/"><u>Mastering the Market with a Samsung Galaxy Note 9 Walkthrough: Why It's the Top Choice in Large Display Phones</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-discover-budget-friendly-superior-asmr-mics-for-2024/"><u>[New] Discover Budget-Friendly, Superior ASMR Mics for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-protective-phone-cases-with-screen-shields/"><u>[Updated] 2024 Approved Protective Phone Cases with Screen Shields</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-impart-rotational-luminosity-modification-in-photoshopping/"><u>[Updated] In 2024, Impart Rotational Luminosity Modification in Photoshopping</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-in-depth-insights-into-full-periscope-utilization/"><u>[Updated] In 2024, In-Depth Insights Into Full Periscope Utilization</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722970082574-hp-driver-setup-made-easy-step-by-step-downloading-instructions/"><u>HP Driver Setup Made Easy - Step-by-Step Downloading Instructions</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-capture-stunning-videos-on-iphone-8-pro-tips-for-quality-shootings/"><u>In 2024, Capture Stunning Videos on iPhone 8 Pro Tips for Quality Shootings</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-unveiling-the-secrets-of-srt-creation-from-text-formats/"><u>In 2024, Unveiling the Secrets of SRT Creation From Text Formats</u></a></li>
+<li><a href="https://win-blog.techidaily.com/overcome-the-frozen-launcher-solutions-for-far-cry-5-display-issues/"><u>Overcome the Frozen Launcher: Solutions for Far Cry 5 Display Issues</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Tecno Spark Go (2024)? | Dr.fone</u></a></li>
 </ul></div>
 

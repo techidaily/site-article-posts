@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Tips and Tricks for Effective Azure Speech-to-Text Use\""
-date: 2024-11-30T06:15:06.330Z
-updated: 2024-12-04T02:31:52.427Z
+date: 2024-12-05T22:27:40.090Z
+updated: 2024-12-10T20:56:55.769Z
 tags: 
   - screen-recording
   - ai video
@@ -44,7 +44,7 @@ If you're not good with programming languages, use Speech CLI, a command tool th
 It is also worth noting that Azure Speech Studio supports keyword recognition or keyword spotting. You can generate keyword recognition models and specify any short phrase or word. Users can also personalize keywords with the correct punctuations. And best of all, there is no extra cost for customizing keywords.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Step by Step Guide to Transcribe Speech to Text with Microsoft Speech Studio
@@ -59,10 +59,6 @@ Step3The program will take a while to deploy an instance. Now tap Keys and endpo
 
 ![micrsoft azure speech to text copy key and region](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4Download and install Microsoft Visual C++ and .NET Core 3.1 Runtime. Next, install Speech CL on .NET by running this command “**dotnet tool install -global Microsoft.CognitiveServices.Speech.CLI.**” Alternatively, download and install Speech CLI for Windows PCs as a [ZIP file](https://aka.ms/speech/spx-windows).
 
 Step5Now enter the Azure regional identifier and subscription key on Windows Terminal or PowerShell. To configure the region and key, run these commands; “**spx config @key --set SUBSCRIPTION-KEY** and **spx config @region --set REGION.**”
@@ -72,6 +68,10 @@ Step6Now it's time to convert speech to text using Azure STT Service. To do that
 ![icon note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** Click [this video](https://docs.microsoft.com/en-us/shows/one-dev-minute/how-to-use-the-azure-cognitive-services-net-speech-sdk-for-recognition) for a detailed guide on how to use Azure Speech Services with Visual Basic (SDK).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: What Are the Free Alternatives to the Microsoft Speech to Text Service?
 
@@ -106,7 +106,7 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 ![toolbar stt](https://images.wondershare.com/filmora/guide/guide-win/toolbar-stt.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step 2
@@ -115,13 +115,13 @@ Click the "Speech-to-Text" icon, and it will show the parameter settings. You ca
 
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Google Docs - Free
 
 ![micrsoft azure speech to text alternative google docs](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 If you're looking for free voice typing software, you're better off with Google Docs. Most of you may not be aware that Google Docs can accurately convert speech to text. This makes it a handy tool if you find speaking easier than writing. As expected, this voice transcription tool recognizes hundreds of languages, like English, French, Italian, Hindi, etc.
 
@@ -135,13 +135,13 @@ Step2Next, click the language drop-down arrow on the microphone to choose the tr
 
 Step3Click the Microphone icon to start dictating texts on Google Docs. After dictating enough texts, tap the red Microphone icon and edit your text. It's that simple!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3.[Audtext](https://audext.com/) \- $60 one-time fee
 
 ![micrsoft azure speech to text alternative audtext](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 If Google's voice recognition service is too slow for your liking, consider Audtext. It's a highly rated online program that uses cutting-edge machine learning technology to transcribe audio to text in 60+ languages. You can easily train this program to identify the speaker in your interview or podcast file.
 
@@ -171,7 +171,7 @@ In that case, use a more straightforward option like Google Docs to dictate text
 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 
@@ -193,18 +193,17 @@ In that case, use a more straightforward option like Google Docs to dictate text
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-free-enterprise-templates-with-dynamic-ideas-for-slideshows/"><u>[New] 2024 Approved Free Enterprise Templates with Dynamic Ideas for Slideshows</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-premium-screen-capturer-non-lagging-efficiency-for-2024/"><u>[New] Premium Screen Capturer Non-Lagging Efficiency for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-revolutionizing-your-viewing-the-zoom-effectiveness-for-2024/"><u>[New] Revolutionizing Your Viewing The Zoom Effectiveness for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-unlocking-digital-expression-the-joy-of-creating-metaverse-memes/"><u>[Updated] 2024 Approved Unlocking Digital Expression The Joy of Creating Metaverse Memes</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-peaceful-beats-best-20-tranquil-country-songs-and-dancing-on-tiktok/"><u>[Updated] In 2024, Peaceful Beats Best 20 Tranquil Country Songs & Dancing on TikTok</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-quintessential-audio-drama-story-creation-for-2024/"><u>[Updated] Quintessential Audio-Drama Story Creation for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/implementing-soft-decline-in-logic-pro-audio-for-2024/"><u>Implementing Soft Decline in Logic Pro Audio for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-tecno-spark-10-4g-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Tecno Spark 10 4G Pattern Lock Screen</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/is-investing-in-a-wi-fi-mesh-network-a-smart-choice/"><u>Is Investing in a Wi-Fi Mesh Network a Smart Choice?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/securing-brand-deals-with-youtube-personalities-for-2024/"><u>Securing Brand Deals with YouTube Personalities for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/sharpsnap-recorder-for-windows-10-for-2024/"><u>SharpSnap Recorder for Windows 10 for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/twitch-chat-5-things-that-confuse-streaming-newbies/"><u>Twitch Chat: 5 Things That Confuse Streaming Newbies</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/updated-6-best-voice-changers/"><u>Updated 6 Best Voice Changers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-angle-away-discover-our-top-11-bridge-photography-tools-for-2024/"><u>[New] Angle Away! Discover Our Top 11 Bridge Photography Tools for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-constructing-compelling-trailer-crafts-for-2024/"><u>[New] Constructing Compelling Trailer Crafts for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-digital-doyens-guide-streaming-and-recording-mastery/"><u>[Updated] In 2024, Digital Doyen’s Guide Streaming and Recording Mastery</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-public-domain-soundtracks-downloadable-playing-games/"><u>[Updated] Public Domain Soundtracks Downloadable, Playing Games</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-screen-guards-protect-your-device-capture-better/"><u>2024 Approved Screen Guards Protect Your Device, Capture Better</u></a></li>
+<li><a href="https://fox-making.techidaily.com/easily-set-up-your-merge-module-a-step-by-step-guide/"><u>Easily Set Up Your Merge Module: A Step-by-Step Guide</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/easy-tutorial-on-adding-a-new-printer-via-the-windows-control-panel-by-yl-software-experts/"><u>Easy Tutorial on Adding a New Printer via the Windows Control Panel by YL Software Experts</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-anno-1800-game-resolving-persistent-directx-troubles/"><u>Fixing Anno 1800 Game: Resolving Persistent DirectX Troubles</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/guia-practica-para-leer-la-hora-en-espanol/"><u>Guía Práctica Para Leer La Hora en Español</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/hps-ultimate-savings-event-discounts-up-to-71-on-monitors-and-laptops-exclusive-deals-from-zdnet/"><u>HP's Ultimate Savings Event: Discounts up to 71% on Monitors and Laptops – Exclusive Deals From ZDNet!</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-beyond-imagination-exploring-ar-worlds/"><u>In 2024, Beyond Imagination Exploring AR Worlds</u></a></li>
+<li><a href="https://common-error.techidaily.com/wind-down-your-win11-achieve-sleep-mode/"><u>Wind Down Your Win11: Achieve Sleep Mode</u></a></li>
 </ul></div>
 

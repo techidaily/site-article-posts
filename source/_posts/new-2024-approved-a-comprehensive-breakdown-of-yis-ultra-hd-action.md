@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  A Comprehensive Breakdown of Yi's Ultra HD Action\""
-date: 2024-08-31T14:17:57.042Z
-updated: 2024-09-01T14:17:57.042Z
+date: 2024-12-04T18:03:10.369Z
+updated: 2024-12-10T16:54:50.061Z
 tags: 
   - screen-recording
   - ai video
@@ -114,11 +114,19 @@ Yi 4K is designed with built in Wi-Fi abilities so that users can make direct co
 
 The future firmware update of Yi 4K+ action camera is supposed to bring so many interesting features into this tiny device. It will be extending support towards live streaming facility and raw images will be soon processed. The most interesting addition will be voice command support that will make control actions much easier during adventurous sports recording needs. This device will be offering impressive high performance service while consuming very low power and all ultra HD videos will deliver crisper details with elegant color distributions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Yi 4K+ is first action camera device to support 60fps frame rate at 4K resolution level and it further provides 8MP support to every still while ensuring crisp and deep details. There are several interesting features inside this tiny action cam including USB-C external mic connectivity and many more. However, you may also find few troubles like it cannot go underwater without protective housing. It not even extends support to live streaming and RAW files cannot be processed. But, even after so many downsides, its amazing video quality makes it standout against all competitors. You must order your new action camera soon.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -143,8 +151,21 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-from-battery-life-to-final-cut-a-drone-editors-journey/"><u>[New] 2024 Approved From Battery Life to Final Cut A Drone Editor's Journey</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-the-subscriber-youtube-connection-maximizing-engagement/"><u>[New] 2024 Approved The Subscriber-YouTube Connection Maximizing Engagement</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-top-6-minecraft-oriental-house-ideas/"><u>[New] 2024 Approved Top 6 Minecraft Oriental House Ideas</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-a-novices-vision-on-vectors-categories-explored-and-apps-for-2024/"><u>[New] A Novice's Vision on Vectors Categories Explored and Apps for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-advanced-camera-control-for-iphone-users-for-2024/"><u>[New] Advanced Camera Control for iPhone Users for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-light-and-color-interplay-for-images-for-2024/"><u>[New] Light & Color Interplay for Images for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-ultimate-tutorial-on-winning-spotify-advertising-for-2024/"><u>[New] The Ultimate Tutorial on Winning Spotify Advertising for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exclusive-catalog-budget-friendly-image-treasuries-online/"><u>2024 Approved Exclusive Catalog Budget-Friendly Image Treasuries Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unearthing-the-hidden-an-orderly-guide-to-covert-youtube-videos/"><u>2024 Approved Unearthing the Hidden An Orderly Guide to Covert YouTube Videos</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-oppo-a58-4g-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Oppo A58 4G Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-atandt-iphone-15-with-3-methods-by-drfone-ios/"><u>In 2024, How to Unlock AT&T iPhone 15 with 3 Methods</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/quick-and-simple-get-your-microsoft-4000-ergonomic-keyboard-up-and-running/"><u>Quick and Simple: Get Your Microsoft 4000 Ergonomic Keyboard Up & Running!</u></a></li>
+<li><a href="https://fox-info.techidaily.com/simplifying-itunes-add-and-listen-to-your-choice-of-podcasts-for-2024/"><u>Simplifying iTunes Add and Listen to Your Choice of Podcasts for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-writers-toolkit-dialogue-and-narration-techniques-for-success/"><u>The Writer's Toolkit Dialogue and Narration Techniques for Success</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

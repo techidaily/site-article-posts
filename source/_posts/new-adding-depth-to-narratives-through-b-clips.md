@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Adding Depth to Narratives Through B-Clips\""
-date: 2024-11-26T19:16:45.415Z
-updated: 2024-12-04T08:09:50.425Z
+date: 2024-12-05T17:01:10.082Z
+updated: 2024-12-10T22:14:33.520Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ Now that we know that, let's dive in!
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. B roll In TV And Movies
 
 Broll is an acronym for "background" or "behind," respectively. It usually refers to extra footage captured with a movie camera while keeping the lighting consistent between scenes in the movie industry. When the filmmaker doesn't want to show any dialogue or action on screen but needs some movement within the frame, it might be utilized as filler.
@@ -38,7 +42,7 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Methods to use b roll
@@ -53,20 +57,20 @@ On the other hand, cutaways can show how different people react to what is being
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Visual detail b roll footage
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Storytelling b roll footage
@@ -74,7 +78,7 @@ Including archival material in your video allows your audience to experience a p
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Undirected b roll footage
@@ -92,10 +96,6 @@ Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" tha
 A pick-up is a tiny shot added to previously captured material. Re-shoots involve redoing entire scenes. Both types of shots are commonly added during film editing to fix, logic, continuity, or quality flaws. These photos happen a while after the sets have been taken down, clothes and props stowed, and the actors and crew have gone on to new projects.
 
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
 
@@ -135,19 +135,21 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-changing-the-game-unveiling-top-6-in-nft-arts-and-culture-for-2024/"><u>[New] Changing the Game Unveiling Top 6 in NFT Arts & Culture for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-how-to-recover-hidden-shorts-thumbnails-in-videos/"><u>[New] How to Recover Hidden Shorts' Thumbnails in Videos</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-photopony-pro-exploring-affordable-filters/"><u>[New] PhotoPony Pro Exploring Affordable Filters</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-versions-of-windows-cuttingediting-programs/"><u>[New] Versions of Windows Cutting/Editing Programs</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-childs-drone-pick-top-five-suggestions-for-2024/"><u>[Updated] Child's Drone Pick Top Five Suggestions for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-how-to-import-music-to-inshot-app/"><u>[Updated] How to Import Music to Inshot App?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-how-to-use-luts-in-after-effect-for-2024/"><u>[Updated] How to Use LUTs in After Effect for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-perfect-classic-vacation-flicks-top-10-for-summer-fun/"><u>[Updated] In 2024, Perfect Classic Vacation Flicks Top 10 for Summer Fun</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-snapchat-voice-overhaul-two-efficient-ways-revealed/"><u>[Updated] Snapchat Voice Overhaul Two Efficient Ways Revealed</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-the-hidden-power-of-windows-11/"><u>2024 Approved Unveiling the Hidden Power of Windows 11</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-nubia-red-magic-9-pro-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Nubia Red Magic 9 Pro Without Power Button | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/affordable-iphone-14-max-enduring-all-day-performance-and-more-features-youll-adore-insights/"><u>Affordable iPhone 14 Max: Enduring All-Day Performance & More Features You'll Adore - Insights</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/elevate-your-online-presence-using-cookiebot-tools/"><u>Elevate Your Online Presence Using Cookiebot Tools</u></a></li>
-<li><a href="https://article-posts.techidaily.com/enhance-mobile-cinematography-must-have-iphone-accessories-for-2024/"><u>Enhance Mobile Cinematography Must-Have iPhone Accessories for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-maximizing-creativity-find-your-next-project-on-these-top-12-photo-websites/"><u>[New] 2024 Approved Maximizing Creativity - Find Your Next Project on These Top 12 Photo Websites</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-master-the-digital-landscape-with-these-7-indispentic-devices/"><u>[New] Master the Digital Landscape with These 7 Indispentic Devices</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-unbeatable-method-for-permanent-bio-link-integration-in-tiktok/"><u>[Updated] 2024 Approved Unbeatable Method for Permanent Bio-Link Integration in TikTok</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-visual-identity-simplified-personalized-branding-using-no-cost-templates/"><u>[Updated] 2024 Approved Visual Identity Simplified Personalized Branding Using No-Cost Templates</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-go-incognito-with-instagram-live-a-comprehensive-guide-to-anonymity/"><u>[Updated] Go Incognito with Instagram Live A Comprehensive Guide to Anonymity</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-comprehensive-examination-editrite-pro-suite-the-final-word-2023/"><u>[Updated] In 2024, Comprehensive Examination EditRite Pro Suite – The Final Word, 2023</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-creating-masterpiece-canon-chrono-films/"><u>[Updated] In 2024, Creating Masterpiece Canon Chrono Films</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-innovative-tactics-for-spotify-ad-mastery/"><u>[Updated] Innovative Tactics for Spotify Ad Mastery</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-gameplay-streaming-tools-revealed-obs-or-fraps/"><u>2024 Approved Gameplay Streaming Tools Revealed OBS or Fraps?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/aol-email-service-disruption-how-to-tell-if-the-problems-real/"><u>AOL Email Service Disruption: How To Tell If The Problem's Real</u></a></li>
+<li><a href="https://win11.techidaily.com/expert-guide-to-resolving-windows-error-code-c0000022/"><u>Expert Guide to Resolving Windows Error Code C0000022</u></a></li>
+<li><a href="https://article-posts.techidaily.com/game-on-mastering-the-art-of-play-with-kinemaster-on-android/"><u>Game On! Mastering the Art of Play with KineMaster on Android</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-optimized-titling-techniques-for-youtube-success/"><u>In 2024, Optimized Titling Techniques for YouTube Success</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721461392889-what-to-do-when-your-iphone-displays-error-message-14-heres-how-to-fix-it/"><u>What to Do When Your iPhone Displays Error Message 14? Here's How to Fix It</u></a></li>
 </ul></div>
 

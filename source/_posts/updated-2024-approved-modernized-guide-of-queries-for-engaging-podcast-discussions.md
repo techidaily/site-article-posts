@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Modernized Guide of Queries for Engaging Podcast Discussions\""
-date: 2024-11-28T02:17:02.574Z
-updated: 2024-12-03T19:40:18.340Z
+date: 2024-12-03T18:09:24.188Z
+updated: 2024-12-10T19:19:10.268Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ The best podcast questions to ask guests differ according to your niche and the 
 ![podcast questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The best way is to divide your questions into different categories.
@@ -88,10 +88,6 @@ In an interview, a comparison question is one where you ask a person what he pre
 
 ![comparison questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can ask questions from the comparison questions given below.
 
 1. Can you compare and contrast standard costing and actual costing?
@@ -111,7 +107,7 @@ You can ask questions from the comparison questions given below.
 15. What do you prefer to eat, pizza or a burger?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Great Closing Questions
@@ -130,7 +126,7 @@ When we move on to this type of question, typically, it's time to end the show. 
 10. How can listeners contact you online?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. What's a Good Podcast Interview Question?
@@ -148,15 +144,15 @@ Asking better questions on a podcast requires preparation beforehand. Here are s
 
 You can get the best information from the person you are interviewing if you do the following:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Ask WHY?
 
 ![ask why](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-5.jpg)
 
 As an interviewer, "why" is your most powerful tool. Guests usually provide surface-level information or opinions. The follow-up question of "why" makes them go further and give deeper details. It will also help your audience understand correctly what the guest wants to say.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What happened next?
 
@@ -165,6 +161,10 @@ If your guest is overwhelmed by the emotions and has stopped before completing h
 ### What were your feelings when this happened?
 
 Sometimes you want the guest to answer your questions with feelings and emotions. Making your guest answer your questions while drenched in emotions can take your podcast to the next level. Questions like "What were your feelings when this happened?" can take the guest back to the past and make him answer your question with full emotions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Mirror your guest
 
@@ -183,10 +183,6 @@ So you see how this can continue to move forward by simply mirroring your guest.
 
 The best thing you can extract from someone in a podcast is their story. If you want to pull out a story from someone, phrase it like this, "Tell me about a time when..." After this question, your job is to sit back, listen, and not interrupt the guest.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4\. Podcast Questions to Avoid Asking
 
 Avoiding asking wrong questions is as important as asking good questions. Some questions will negatively impact your podcast's quality, so avoid asking such questions. Here are some questions that you should not ask.
@@ -197,12 +193,16 @@ Avoiding asking wrong questions is as important as asking good questions. Some q
 * Similarly, avoid asking questions to which you can predict the answer will be a "no."
 * Avoid questions that might offend your guest.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5\. Should I Send an Advance Interview Questions Podcast?
 
 Yes, you can send interview questions to guests. Therefore, they get time to prepare interesting responses. Also, they may think about their answers or type out lengthy responses. Either way, they'll feel more comfortable and help you make better content.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Take Your Content to the Next Level and Gets Shared
@@ -241,16 +241,24 @@ Consider the following when picking which of the above questions to use on your 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-discovering-non-gopro-action-cam-options-top-15-picks/"><u>[New] 2024 Approved Discovering Non-GoPro Action Cam Options Top 15 Picks</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-navigating-the-world-of-zoom-calls-on-an-android-device/"><u>[New] 2024 Approved Navigating the World of Zoom Calls on an Android Device</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-crafting-compelling-narratives-with-wmm-and-animation-techniques/"><u>[New] Crafting Compelling Narratives with WMM and Animation Techniques</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-spectral-revelations-drone-cams-overview/"><u>[New] In 2024, Spectral Revelations Drone Cams Overview</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-swift-screen-preserve-audio-accompanying/"><u>[New] Swift Screen Preserve Audio Accompanying</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-comparative-study-of-toolwizs-photography-tools-for-2024/"><u>[Updated] Comparative Study of Toolwiz's Photography Tools for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevate-your-channels-a-guide-to-youtube-metrics/"><u>[Updated] In 2024, Elevate Your Channels A Guide to YouTube Metrics</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-capture-coastlines-best-surfer-cams/"><u>2024 Approved Capture Coastlines Best Surfer Cams</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ideal-iphone-picks-to-level-up-your-gaming-sessions/"><u>Ideal iPhone Picks to Level Up Your Gaming Sessions</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-art-of-engaging-with-the-online-gaming-community/"><u>The Art of Engaging with the Online Gaming Community</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/updated-guide-to-discovering-the-voice-generatorschangers-with-the-most-anime/"><u>Updated Guide to Discovering the Voice Generators/Changers with the Most Anime</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-cutting-edge-3d-cinema-at-your-fingertits-decks-reviewed/"><u>[New] 2024 Approved Cutting-Edge 3D Cinema at Your Fingertits Decks Reviewed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-efficient-strategies-for-saving-youtube-thumbnails-on-any-os/"><u>[New] 2024 Approved Efficient Strategies for Saving Youtube Thumbnails on Any OS</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-essential-strategies-for-webp-to-jpeg-conversion/"><u>[New] Essential Strategies for WebP to JPEG Conversion</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-a-quest-for-collective-ownership-art-without-boundaries/"><u>[New] In 2024, A Quest for Collective Ownership Art Without Boundaries</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-the-undercover-upscalers-guide-to-clear-visuals/"><u>[Updated] 2024 Approved The Undercover Upscaler's Guide to Clear Visuals</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-magic-box-inside-a-top-tier-vr-device/"><u>[Updated] In 2024, The Magic Box Inside a Top-Tier VR Device</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-maximizing-video-quality-with-gopro-max-or-hero-11-in-2024/"><u>[Updated] Maximizing Video Quality with GoPro Max or Hero 11, In 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-next-gen-media-masters-5-top-mac-videography-apps-for-2024/"><u>[Updated] Next-Gen Media Masters 5 Top Mac Videography Apps for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-step-by-step-build-your-own-google-cardboard-vr-setup-for-2024/"><u>[Updated] Step-by-Step Build Your Own Google Cardboard VR Setup for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/drone-frontier-deconstructing-djis-mavic-pro-masterpiece-for-2024/"><u>Drone Frontier - Deconstructing DJI's Mavic Pro Masterpiece for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-unbrick-a-dead-xiaomi-redmi-13c-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Xiaomi Redmi 13C | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-15-plus-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone 15 Plus Without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-use-an-additional-monitor-without-gui-chipset/"><u>How to Use an Additional Monitor Without GUI Chipset</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-de-vibratory-techniques-for-drone-video-clarity/"><u>In 2024, De-Vibratory Techniques for Drone Video Clarity</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-exclusive-reveal-top-downloading-tools-for-fans-of-apples-ios-and-facebook/"><u>In 2024, Exclusive Reveal Top Downloading Tools for Fans of Apple's iOS and Facebook</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-hacking-the-process-instant-deletion-on-youtube/"><u>In 2024, Hacking the Process Instant Deletion on Youtube</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/prelude-playlists-navigating-auditory-sources-for-podcasts/"><u>Prelude Playlists Navigating Auditory Sources for Podcasts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/strategies-for-secure-unmarked-photography-procurement/"><u>Strategies for Secure, Unmarked Photography Procurement</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/sync-systems-swiftly-fastest-file-methods/"><u>Sync Systems Swiftly Fastest File Methods</u></a></li>
 </ul></div>
 

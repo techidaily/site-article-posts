@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Tips for Smoothing Out Quake in Captured Movement\""
-date: 2024-12-01T23:29:07.928Z
-updated: 2024-12-03T20:50:59.338Z
+date: 2024-12-05T17:13:58.452Z
+updated: 2024-12-10T21:54:01.921Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ When we talk about flight FPV quadcopters then Jello Effect appears like biggest
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What is Rolling Shutter
@@ -42,7 +42,7 @@ When we talk about flight FPV quadcopters then Jello Effect appears like biggest
 First of all we need to discus about the major terms like rolling shutter effect etc. You might be aware of the fact that sensors can be designed with rolling shutter as well as with a global shutter. This rolling shutter is able to capture footage with better scanning on every part of image due to installed CMOS sensor. Generally, the global shutters are capable enough to manage entire frame at the same time but rolling shutters start scanning from top to bottom and hence they leave various visual artefacts in between. In simple words, it is not able to capture top and bottom portion of shot at same moment hence images appear skewed.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What is Jello Effect
@@ -92,7 +92,7 @@ Check this video tutorial to see how to remove jello effect with Adobe Premiere
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -120,14 +120,17 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-the-insiders-look-at-mac-preview-software/"><u>[New] 2024 Approved The Insider's Look at Mac Preview Software</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-leveraging-pip-for-multitasking-in-edge-browser/"><u>[New] In 2024, Leveraging PIP for Multitasking in Edge Browser</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-mastering-the-art-of-iphones-detailed-photography/"><u>[New] In 2024, Mastering the Art of iPhone's Detailed Photography</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-review-the-t5-eye-unleashing-potential/"><u>[New] In 2024, Review The T5 Eye, Unleashing Potential</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-sync-up-to-share-live-moments-on-tiktok/"><u>[Updated] In 2024, Sync Up to Share Live Moments on TikTok</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/bypassing-system-error-5-on-your-pc-effective-strategies-for-all-generations-of-windows-operating-systems/"><u>Bypassing System Error 5 on Your PC: Effective Strategies for All Generations of Windows Operating Systems</u></a></li>
-<li><a href="https://win-blog.techidaily.com/elevate-your-warzone-experience-expert-fixes-for-increasing-fps-and-reducing-stutters/"><u>Elevate Your Warzone Experience - Expert Fixes for Increasing FPS and Reducing Stutters!</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-7-top-ways-to-resolve-apple-id-not-active-issue-for-apple-iphone-x-by-drfone-ios/"><u>In 2024, 7 Top Ways To Resolve Apple ID Not Active Issue For Apple iPhone X</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-decoding-firefox-picture-in-picture-a-comprehensive-guide/"><u>In 2024, Decoding Firefox Picture-in-Picture A Comprehensive Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-ipads-drawing-dynasty-top-8-sketch-apps/"><u>[New] 2024 Approved IPad's Drawing Dynasty Top 8 Sketch Apps</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-precision-editing-picarts-techniques-for-background-subtraction/"><u>[New] 2024 Approved Precision Editing PicArt's Techniques for Background Subtraction</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-5-ways-to-rewind-a-twitch-live-stream/"><u>[New] In 2024, 5 Ways to Rewind A Twitch Live Stream</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-ultimate-tips-for-erasing-backgrounds-in-figma-design/"><u>[Updated] In 2024, Ultimate Tips for Erasing Backgrounds in Figma Design</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-melodic-memories-in-mobile-formats-for-2024/"><u>[Updated] Melodic Memories in Mobile Formats for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-adobe-memefixer-a-humorous-journey/"><u>2024 Approved Adobe Memefixer A Humorous Journey</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-cameraphone-gimbal-optimal-pan-and-tilt-stability/"><u>2024 Approved Top Camera/Phone Gimbal – Optimal Pan & Tilt Stability</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210545386-9781399704625-astrology-self-care-taurus/"><u>Astrology Self-Care: Taurus | Free Book</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Apple iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-ultimate-guide-from-iphone-7-plus-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Ultimate Guide from iPhone 7 Plus iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/optimized-titling-techniques-for-youtube-success-for-2024/"><u>Optimized Titling Techniques for YouTube Success for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-your-vivo-s18-pro-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Vivo S18 Pro Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
 </ul></div>
 
