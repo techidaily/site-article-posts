@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Top 15 Best Cameras for Vlogging for 2024"
-date: 2024-12-05T21:56:57.486Z
-updated: 2024-12-10T19:20:30.370Z
+date: 2024-12-13T19:40:51.801Z
+updated: 2024-12-17T02:13:15.363Z
 tags: 
   - screen-recording
   - ai video
@@ -50,7 +50,7 @@ Check this video to know more tips:
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Top 15 Best Cameras for Vlogging 2021
@@ -83,10 +83,6 @@ Based on the camera’s performance and image and video qualities, we have liste
 * [Cameras for pro vloggers](#part5)
 * [Recommended best Video Editing software for all vloggers](#part6)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Cameras for "Selfie" inspired video bloggers
 
 There is no harm in using your Smartphones and iPods for vlogging. In fact, modern day Smartphones, iPods and similar devices can help to capture amazing videos and compete with most traditional cameras in terms of performance.
@@ -118,7 +114,7 @@ You can't deny that Huawei usually provide you high-quality products with a reas
 * No wireless charging.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### [#2 Google Pixel 2](https://www.amazon.com/gp/product/B0787V183F/ref=as%5Fli%5Ftl?ie=UTF8&tag=mobilead02c70-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B0787V183F&linkId=a895ed9269c49dd3ec665395397695cd)
@@ -171,21 +167,17 @@ iPhone X is well known for camera upgrades like dual 12MP cameras, 2x optical zo
 
 * Expensive device.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Cameras for video bloggers on a budget
 
 You don't really need to spend thousands of dollars to get a decent camera that does the job. There are several options that cost less than $200 and do the job quite well.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### [#1 Canon Powershot ELPH 350 HS](https://www.amazon.com/gp/product/B01AA093UW/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01AA093UW&linkId=3921260d3841d319c018f27c52ac8f6d)
 
 [![Canon elph 350](https://images.wondershare.com/filmora/article-images/Best-vlogging-camera-cannonelph350hs.jpg) ](https://www.amazon.com/gp/product/B01AA093UW/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01AA093UW&linkId=3921260d3841d319c018f27c52ac8f6d)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 [Check price at Amazon](https://www.amazon.com/gp/product/B01AA093UW/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01AA093UW&linkId=3921260d3841d319c018f27c52ac8f6d)
 
@@ -265,6 +257,10 @@ Here is an amazing 4K budget friendly camera unit for vloggers with so many incr
 
 If you're the simple to use, compact and easy to carry around vlogging camera, this just might be the ideal section for you to check out.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### [#1 Zoom Q8 Handy Video Recorder](https://www.amazon.com/gp/product/B00S9W1XVQ/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00S9W1XVQ&linkId=9d70f4ddf8c561e3ffab1c64ea528682)
 
 [Zoom Q8](https://images.wondershare.com/filmora/article-images/Best-vlogging-camera-zoom%20q8.jpg)](https://www.amazon.com/gp/product/B00S9W1XVQ/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00S9W1XVQ&linkId=9d70f4ddf8c561e3ffab1c64ea528682)
@@ -341,6 +337,10 @@ It supports 1080p recording ability with frame rate switching options ranging be
 
 * External mic port is not available.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: Cameras for passionate video bloggers
 
 If you're really passionate about vlogging and your blog is much more than a hobby or a fleeting interest, you might want to consider using something more "permanent" for your video blogging needs.
@@ -399,6 +399,10 @@ Osmo offers great picture quality even at low light condition. Users can operate
 * Second battery cannot be kept inside case.
 * Limited battery life.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### [#3 Canon Vixia Mini X](https://www.amazon.com/gp/product/B00HLDFUM2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00HLDFUM2&linkId=e825ae68550d20011431c5c40d923aff)
 
 [Canon Vixia Mini X](https://images.wondershare.com/filmora/article-images/Best-vlogging-camera-cannon%20vixia%20mini%20x.jpg)](https://www.amazon.com/gp/product/B00HLDFUM2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00HLDFUM2&linkId=e825ae68550d20011431c5c40d923aff)
@@ -425,13 +429,13 @@ If you love vlogging then Canon Vixia can give you lots of opportunities to deve
 * It does not possess manual mode so you cannot make adjustments for shutter speed or aperture etc.
 * Distortion is observed with fish eye recording.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### [#4 Panasonic Lumix GH4](https://www.amazon.com/gp/product/B00L8YWT5G/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00L8YWT5G&linkId=6f8611180dccf99f714ff6486bc087ec)
 
 [![Panasonic Lumix GH4](https://images.wondershare.com/filmora/article-images/Best-vlogging-camera-Panasonic%20Lumix%20GH4.jpg) ](https://www.amazon.com/gp/product/B00L8YWT5G/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00L8YWT5G&linkId=6f8611180dccf99f714ff6486bc087ec)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Check price at Amazon](https://www.amazon.com/gp/product/B00L8YWT5G/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00L8YWT5G&linkId=6f8611180dccf99f714ff6486bc087ec)
 
@@ -455,13 +459,13 @@ It will be a great choice for your professional vlogging video needs and if you 
 * Not meant for landscape photography needs.
 * Low light performance is not so good.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 5: Cameras for pro vloggers
 
 Let's get into the more serious stuff. If you're a pro at what you do and need a piece of equipment to maintain your existing image and market value, you really do need the best video cameras available. And as you already know, it doesn't get better than DSLRs in the world of cameras.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### [#1 Canon EOS 80D](https://www.amazon.com/gp/product/B01BUYK04A/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01BUYK04A&linkId=604b356f476ccb21fcb4b18ec5bcc2c8)
 
@@ -514,10 +518,6 @@ If vlogging is your hobby as well as profession then Sony a7R II is specially de
 
 * Battery life lacks.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### [#2 Sony PXW-X70](https://www.amazon.com/gp/product/B00NPAJH8I/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00NPAJH8I&linkId=5357590c7b3eb961bf792f8473ff551f)
 
 [Sony PXW-X70](https://images.wondershare.com/filmora/article-images/Best-vlogging-camera-Sony%20PXW-X70.jpeg)](https://www.amazon.com/gp/product/B00NPAJH8I/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00NPAJH8I&linkId=5357590c7b3eb961bf792f8473ff551f)
@@ -548,11 +548,11 @@ Above are some of the best cameras for vlogging this year, before you choose a p
 
 Watch this! Help you know camera better!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### What Gear Do Creators Actually Use | Vidcon 2023 | Sony vs Canon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 6: Recommended best Video Editing software for all vloggers
 
@@ -562,11 +562,11 @@ What's more, it has all the features you will need to make you feel like a pro. 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
 
@@ -593,19 +593,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-in-depth-look-lg-bp350-screen-resolution-and-aspect-ratio/"><u>[New] 2024 Approved In-Depth Look LG BP350 Screen Resolution and Aspect Ratio</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-best-zero-cost-enhancer-for-digital-photography-for-2024/"><u>[New] Best Zero-Cost Enhancer for Digital Photography for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-daily-digest-guidelines-tips-for-successful-vlogs/"><u>[New] In 2024, Daily Digest Guidelines Tips for Successful Vlogs</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-premium-picklist-of-digital-vault-services/"><u>[New] In 2024, Premium Picklist of Digital Vault Services</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-inside-look-how-does-vr-headgear-work-in-2024/"><u>[Updated] Inside Look How Does VR Headgear Work, In 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-phantoms-view-droning-action-highlights/"><u>[Updated] Phantom's View Droning Action Highlights</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-unveiling-the-top-free-accurate-online-srt-translators/"><u>[Updated] Unveiling the Top Free, Accurate Online SRT Translators</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-t-view-hevc-h-265-content-on-samsung-galaxy-xcover-6-pro-tactical-edition-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Can’t view HEVC H.265 content on Samsung Galaxy XCover 6 Pro Tactical Edition</u></a></li>
-<li><a href="https://article-posts.techidaily.com/digital-content-incorporation-for-todays-educator-for-2024/"><u>Digital Content Incorporation For Today's Educator for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/eliminate-microsoft-store-win11-edition-guide/"><u>Eliminate Microsoft Store: Win11 Edition Guide</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/how-to-recover-my-eyes-only-pictures-on-snapchat-for-2024/"><u>How To Recover My Eyes Only Pictures On Snapchat for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-oppo-reno-8t-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Oppo Reno 8T Fingerprint Lock</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/leading-8-digital-image-composition-tool-for-2024/"><u>Leading 8 Digital Image Composition Tool for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/solving-inactive-devices-issue-in-win11-sleep/"><u>Solving Inactive Devices Issue in Win11 Sleep</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-djis-legacy-two-newest-drones-complimentary-luts-await/"><u>[New] 2024 Approved DJI's Legacy - Two Newest Drones Complimentary LUTS Await</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-elevate-your-social-presence-the-ultimate-twitter-video-toolkit/"><u>[New] 2024 Approved Elevate Your Social Presence The Ultimate Twitter Video Toolkit</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-utilizing-picture-in-picture-on-chrome-everywhere/"><u>[New] 2024 Approved Utilizing Picture In Picture on Chrome Everywhere</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-ideal-5k-tactile-gaming-sets-8-for-2024/"><u>[New] Ideal 5K Tactile Gaming Sets (#8) for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-convert-slideshow-elements-to-visual-medium/"><u>[Updated] Convert Slideshow Elements to Visual Medium</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-path-to-perfect-podcast-scripts-writing-techniques-and-free-example-guides-for-2024/"><u>[Updated] The Path to Perfect Podcast Scripts Writing Techniques & Free Example Guides for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/comprehensive-list-of-narrator-commands-and-keys/"><u>Comprehensive List of Narrator Commands and Keys</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/enhancing-gamers-experience-recording-console-titles-for-pc/"><u>Enhancing Gamers' Experience Recording Console Titles for PC</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-iphone-7-plus-without-passcode-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock iPhone 7 Plus without passcode</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-tecno-spark-10c-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Tecno Spark 10C Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-integrating-mixer-with-macos-for-smooth-streaming/"><u>In 2024, Integrating Mixer with macOS for Smooth Streaming</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/shrink-your-videos-10-best-free-online-compression-services-for-2024/"><u>Shrink Your Videos 10 Best Free Online Compression Services for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/strategic-placement-sites-for-video-marketing-for-2024/"><u>Strategic Placement Sites for Video Marketing for 2024</u></a></li>
 </ul></div>
 

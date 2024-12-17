@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Troubleshooting Tips for Win 11'S Stubborn Photos App for 2024"
-date: 2024-12-08T16:36:46.913Z
-updated: 2024-12-10T18:52:21.112Z
+date: 2024-12-14T02:29:50.097Z
+updated: 2024-12-16T20:00:57.847Z
 tags: 
   - screen-recording
   - ai video
@@ -45,11 +45,11 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-## How to fix Windows 10 Photos app crashes
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## How to fix Windows 10 Photos app crashes
 
 ### Solution 1: Use the Troubleshooter
 
@@ -61,6 +61,10 @@ Here is how to troubleshoot –
    2. Pick ‘Troubleshooting’ and hit it. Tap on ‘View All’ from the top-left panel of the screen.
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
@@ -77,14 +81,10 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -119,7 +119,7 @@ Here is how to reinstall the Windows 10 Photos App –
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -128,11 +128,11 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -159,15 +159,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-thorough-examination-straightforward-dynamic-range-methods/"><u>[New] 2024 Approved Thorough Examination Straightforward Dynamic Range Methods</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-elevate-your-window-experience-with-these-undiscovered-tricks/"><u>[New] Elevate Your Window Experience with These Undiscovered Tricks</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-flashstoppage-instant-video-quit-guide/"><u>[New] FlashStoppage Instant Video Quit Guide</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-deconstructing-wirecast-alternatives-uncovered-for-2024/"><u>[Updated] Deconstructing WireCast Alternatives Uncovered for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-elevating-your-instagram-presence-with-watermarks/"><u>2024 Approved Elevating Your Instagram Presence with Watermarks</u></a></li>
-<li><a href="https://article-posts.techidaily.com/exploring-the-depths-of-ifunnys-meme-experience/"><u>Exploring the Depths of iFunny's Meme Experience</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-messages-after-samsung-galaxy-a05-has-been-deleted-by-fonelab-android-recover-messages/"><u>Recover your messages after Samsung Galaxy A05 has been deleted</u></a></li>
-<li><a href="https://article-posts.techidaily.com/the-4-ultimate-strategies-for-creating-softened-iphone-pics/"><u>The 4 Ultimate Strategies for Creating Softened iPhone Pics</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/inancial-frontier-of-video-monetization-2024-edition/"><u>The Financial Frontier of Video Monetization 2024 Edition</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/top-rated-mac-avchd-transcoder-mastering-video-format-changes-with-the-ultimate-tool/"><u>Top-Rated Mac AVCHD Transcoder: Mastering Video Format Changes with the Ultimate Tool</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-schematic-gamers-graphs/"><u>[New] 2024 Approved SCHEMATIC GAMER'S GRAPHS</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-step-by-step-turning-on-windows-11s-high-dynamic-range-mode/"><u>[New] In 2024, Step-by-Step Turning On Windows 11'S High Dynamic Range Mode</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-the-best-gopro-for-action-compare-max-and-hero-11/"><u>[New] In 2024, The Best GoPro for Action Compare Max and Hero 11</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-gamers-guide-to-boosting-pc-speed-controls/"><u>[New] The Gamer's Guide to Boosting PC Speed Controls</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-curated-queries-to-spark-interest-in-audio-stories-for-2024/"><u>[Updated] Curated Queries to Spark Interest in Audio Stories for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-making-movies-magical-the-use-of-youtube-music-in-videos/"><u>[Updated] In 2024, Making Movies Magical The Use of YouTube Music in Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-vector-journey-start-categories-tools-and-initial-steps/"><u>[Updated] Vector Journey Start Categories, Tools, & Initial Steps</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211426497-9781631528415-a-delightful-little-book-on-aging/"><u>A Delightful Little Book On Aging | Free Book</u></a></li>
+<li><a href="https://article-tips.techidaily.com/exclusive-streaming-access-12-top-video-content-hours-for-2024/"><u>Exclusive Streaming Access 12 Top Video Content Hours for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-elevate-your-images-in-depth-guide-to-smooth-shutter-effect-in-ps/"><u>In 2024, Elevate Your Images In-Depth Guide to Smooth Shutter Effect in PS</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/merriment-joining-and-leaving-rituals-for-2024/"><u>Merriment Joining & Leaving Rituals for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/outro-aesthetics-selecting-templates-any-budget/"><u>Outro Aesthetics Selecting Templates, Any Budget</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-intersection-of-business-and-immersive-vr-technology-for-2024/"><u>The Intersection of Business and Immersive VR Technology for 2024</u></a></li>
 </ul></div>
 

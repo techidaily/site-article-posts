@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mastering WhatsApp  Key Tricks & Invisible Functions\""
-date: 2024-12-08T23:28:05.430Z
-updated: 2024-12-10T19:56:07.386Z
+date: 2024-12-11T20:25:46.249Z
+updated: 2024-12-17T01:28:18.332Z
 tags: 
   - screen-recording
   - ai video
@@ -47,10 +47,6 @@ Yes, you can bold your text. Just add a star (\*) symbol before and after your t
 
 ![Whatsapp Text Tricks Bold](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-bold.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 2.Italic
 
 Just like the bold, you can also italicize your fonts by simply inserting Underscore Symbol ( \_text\_ ) at the starting and end of your sentence.
@@ -58,7 +54,7 @@ Just like the bold, you can also italicize your fonts by simply inserting Unders
 ![Whatsapp Text Tricks Italic](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-italic.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 3.Strikethrough
@@ -66,6 +62,10 @@ Just like the bold, you can also italicize your fonts by simply inserting Unders
 Strikethrough is largely used to intend puns in WhatsApp, but sometimes it is also a functional tool for text corrections, used at large for online tutorials, editorials, or brainstorming. For adding Strikethrough use the Tilde Symbol (\~text\~) at the starting and end of your text.
 
 ![Whatsapp Text Tricks Strikethrough](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-strikethrough.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4.Monospace
 
@@ -79,19 +79,11 @@ WhatsApp introduced the Blue Tick feature to notify users when their messages ar
 
 ![Whatsapp Disable Read Recipients](https://images.wondershare.com/filmora/article-images/whatsapp-disable-read-recipients.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 6.Pin Prioritized Contacts
 
 Many times, we have just one or a few people whose texts matter the most. So, avoid letting those important message threads from getting pushed down below by message floods. You can pin priority contacts by opening WhatsApp, then tapping and holding the chat thread of the contact without opening it. This will show a new toolbar on the green border at the top of the window. Use the first icon of a pin to freeze the chat thread in the top position.
 
 ![Whatsapp Pin Prioritized Contacts](https://images.wondershare.com/filmora/article-images/whatsapp-pin-prioritized-contacts.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Source: techmesto.com
 
@@ -120,7 +112,7 @@ While typing a WhatsApp message if you need to cross-check certain areas with so
 ![Whatsapp Typing Trick](https://images.wondershare.com/filmora/article-images/whatsapp-typing-trick.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What are the Hidden Features of WhatsApp?
@@ -137,6 +129,10 @@ There are many ways how you can save mobile data consumed by WhatsApp. First, yo
 
 ![Whatsapp Save More Data](https://images.wondershare.com/filmora/article-images/whatsapp-save-more-data.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Source: androidauthority.com
 
 #### 3.Share Your Location Without Ado
@@ -149,6 +145,10 @@ As long as you have the chat history intact you can search specific words to tra
 
 ![Whatsapp Search Old Chat](https://images.wondershare.com/filmora/article-images/whatsapp-search-old-chat.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5.Restore Your Chat History, and Deleted Chats
 
 Sometimes you can restore deleted chat history if you have switched sims or mistakenly deleted a special conversation thread. Doesn’t take too much, just uninstall and reinstall your app. On opening it, you will get the prompt to restore your chats and media. The restoration process takes about a minute depending on internet speed. Then tap NEXT when the prompt appears. Remember this trick only works on messages that are run under backup when you are using a new phone. WhatsApp runs a backup every day at 2 am.
@@ -159,11 +159,19 @@ Sometimes you just need to hush your WhatsApp for just a while. Perhaps you have
 
 ![Whatsapp Hidden Feature Snooze Whatsapp](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-snooze-whatsapp.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 7.Automatically Delete Messages After 7 Days
 
 Not every message thread is important, and many people have the habit of deleting messages just to feel organized. WhatsApp brings some zero-effort minimalism for you with this new feature available for Android users. Update your app and visit the contact’s page in WhatsApp and you will be able to see the “Disappearing Messages” option. If you enable this, your chats with the particular contact will be deleted automatically on their own.
 
 ![Whatsapp Auto Delete Messages](https://images.wondershare.com/filmora/article-images/whatsapp-auto-delete-messages.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 8.Mute Stories that You Don’t Want to See
 
@@ -194,7 +202,7 @@ There are no download options for photos and videos for WhatsApp Statuses, yet y
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2.Record Video Calls from PC and Improve Its Quality
@@ -205,10 +213,6 @@ For this WhatsApp Video Editing Trick, you would need to have a third-party scre
 
 You can create an instant GIF out of the video file within WhatsApp. Do this, let the video download, and then freshly share it from Attach >> Gallery >> Videos. Before sending, the video editing panel would open, there, you can see the GIF option at the top right. It will shorten your video to 6 seconds, adjust the cursor to the portion you wish to use.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Conclusion
 
 When it comes to WhatsApp Tricks and Trades, you always have to look forward to every update. Keep a tab on the updates and find a new WhatsApp Hidden Feature now and then.
@@ -216,10 +220,6 @@ When it comes to WhatsApp Tricks and Trades, you always have to look forward to 
 **You may also like:**[Best Bio for Whatsapp](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -246,24 +246,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-mastering-vocal-alteration-in-free-fire-complimentary-tips/"><u>[New] 2024 Approved Mastering Vocal Alteration in Free Fire Complimentary Tips</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-video-valedictions-sign-off-strategies-for-online-platforms/"><u>[New] 2024 Approved Video Valedictions Sign-Off Strategies for Online Platforms</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-how-to-get-gratis-safe-vlc-media-player-on-mac-os-x-devices/"><u>[New] In 2024, How to Get Gratis, Safe VLC Media Player on Mac OS X Devices</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-phones-at-odds-dissecting-iphone-x-vs-galaxy-face-recognition/"><u>[New] In 2024, Phones at Odds Dissecting iPhone X Vs. Galaxy Face Recognition</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-step-by-step-to-snapchat-stardom-become-a-gif-virtuoso/"><u>[New] In 2024, Step-by-Step to Snapchat Stardom Become a GIF Virtuoso</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-your-path-to-perfect-iphone-hdr-photos/"><u>[New] Your Path to Perfect iPhone HDR Photos</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-blithe-clip-recorder-appraisal/"><u>[Updated] 2024 Approved Blithe Clip Recorder Appraisal</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-from-zero-to-trendsetter-solo-podcast-success-story/"><u>[Updated] From Zero to Trendsetter Solo Podcast Success Story</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/elevate-your-digital-presence-with-this-top-7-gear-list/"><u>Elevate Your Digital Presence with This Top 7 Gear List</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/fixing-paramountplus-connection-errors-on-an-amazon-firestick-device/"><u>Fixing Paramount+ Connection Errors on an Amazon Firestick Device</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-oneplus-ace-3-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your OnePlus Ace 3 Device SIM</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ating-the-maze-of-personal-style-and-business-identity-for-2024/"><u>Navigating the Maze of Personal Style & Business Identity for 2024</u></a></li>
-<li><a href="https://techidaily.com/overcoming-sleep-failure-on-windows-10-an-effective-guide/"><u>Overcoming 'Sleep Failure on Windows 10': An Effective Guide</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/revive-and-refine-stellars-phoenix-software-unleashes-its-power-on-macos/"><u>Revive and Refine: Stellar’s Phoenix Software Unleashes Its Power on macOS</u></a></li>
-<li><a href="https://article-posts.techidaily.com/streamlining-text-workflow-in-after-effects/"><u>Streamlining Text Workflow in After Effects</u></a></li>
-<li><a href="https://article-posts.techidaily.com/the-diverse-world-of-uavs/"><u>The Diverse World of UAVs</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/understanding-and-correcting-security-compromise-in-gaming-notifications/"><u>Understanding and Correcting 'Security Compromise in Gaming' Notifications</u></a></li>
-<li><a href="https://article-posts.techidaily.com/unpacking-the-features-of-the-pioneer-bdr-xd05b-blu-ray-burner-and-its-design-challenges/"><u>Unpacking the Features of the Pioneer BDR-XD05B Blu-Ray Burner and Its Design Challenges</u></a></li>
-<li><a href="https://article-posts.techidaily.com/winter-showcase-peak-performances-from-beijing-2022-for-2024/"><u>Winter Showcase Peak Performances From Beijing 2022 for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-best-start-up-cameras-from-35mm-to-point-shot-for-2024/"><u>[New] Best Start-Up Cameras From 35Mm to Point-Shot for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-a-complete-strategy-for-superior-animoji-use-on-iphone-x/"><u>[New] In 2024, A Complete Strategy for Superior Animoji Use on iPhone X</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-maximize-moments-with-engaging-tasks-while-embracing-your-favorite-talk-shows/"><u>[New] In 2024, Maximize Moments with Engaging Tasks While Embracing Your Favorite Talk Shows</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-unearthed-30-window-11-insider-strategies-to-boost-performance/"><u>[Updated] 2024 Approved Unearthed 30 Window 11 Insider Strategies to Boost Performance</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-enhancing-your-audacity-sessions-for-excellence/"><u>[Updated] In 2024, Enhancing Your Audacity Sessions for Excellence</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-spark-interest-on-instagram-with-top-unboxing-video-techniques/"><u>[Updated] In 2024, Spark Interest on Instagram with Top Unboxing Video Techniques</u></a></li>
+<li><a href="https://win-web.techidaily.com/exploring-the-synergy-of-bitmain-and-yl-companies-in-bch-address-management-solutions/"><u>Exploring the Synergy of Bitmain and YL Companies in BCH Address Management Solutions</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-apple-id-from-apple-iphone-12-pro-without-password-by-drfone-ios/"><u>How to Remove Apple ID from Apple iPhone 12 Pro without Password?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-3-ways-to-erase-iphone-11-pro-max-when-its-locked-within-seconds-by-drfone-ios/"><u>In 2024, 3 Ways to Erase iPhone 11 Pro Max When Its Locked Within Seconds</u></a></li>
+<li><a href="https://extra-information.techidaily.com/microdrama-writers-guide/"><u>Microdrama Writers Guide</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211218273-9781803413228-pagan-portals-artemis/"><u>Pagan Portals: Artemis | Free Book</u></a></li>
+<li><a href="https://win-dash.techidaily.com/troubleshooting-and-solution-guide-asus-pce-ac56-driver-woes-on-windows-11-8-and-7-now-fixed/"><u>Troubleshooting and Solution Guide: ASUS PCE-AC56 Driver Woes on Windows 11, 8 & 7 - Now Fixed</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/unleash-your-creativity-free-game-video-editing-software/"><u>Unleash Your Creativity Free Game Video Editing Software</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlock-the-potential-of-auto-gpt-with-these-8-strategic-applications/"><u>Unlock the Potential of Auto-GPT with These 8 Strategic Applications</u></a></li>
+<li><a href="https://article-posts.techidaily.com/unlocking-the-secrets-to-reddit-success-in-business-promotions/"><u>Unlocking the Secrets to Reddit Success in Business Promotions</u></a></li>
 </ul></div>
 

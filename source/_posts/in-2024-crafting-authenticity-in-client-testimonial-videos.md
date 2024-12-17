@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Crafting Authenticity in Client Testimonial Videos"
-date: 2024-12-07T23:05:59.189Z
-updated: 2024-12-10T20:11:47.148Z
+date: 2024-12-11T01:17:27.474Z
+updated: 2024-12-16T21:52:54.466Z
 tags: 
   - screen-recording
   - ai video
@@ -30,7 +30,7 @@ If you want to learn how to create video testimonials that convert, then this po
 ![identify your perfect customer](https://images.wondershare.com/filmora/article-images/2022/07/identify-your-perfect-customer.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The first key tactic to creating a perfect testimonial video is identifying your perfect customer. The more you know about the type of person who will benefit the most from using your product or service, the better you can tailor your video content to speak directly to them.
@@ -40,30 +40,22 @@ It may seem like a daunting task, but there are several ways you can go about de
 * If possible, talk with current customers and ask them what they love about their experience with your business.
 * If that's not an option for some reason (maybe there aren't any current customers), consider hiring a research firm or marketing agency that specializes in surveying potential customers and asking questions like "What would encourage you to buy from us?" or "How could we improve our service?" With this information in hand, it should be easier than ever before!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Ask Authentic Questions
 
 ![ask authentic questions](https://images.wondershare.com/filmora/article-images/2022/07/ask-authentic-questions.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Open-ended questions are the best way to engage customers and get them to speak naturally.
 * Make your question relevant to the customer and your product or service.
 * The more specific you can be with these questions, the better. For example, if you're selling pet products online, ask about their pets' names, breed, and color (if applicable).
 * If there's no good reason for asking a question then don't! For example: "How was your experience with our website?"
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Include Strong Opinions
 
 ![include strong opinion](https://images.wondershare.com/filmora/article-images/2022/07/include-strong-opinion.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Use the word “I”.
 * Use the word “we”.
@@ -75,6 +67,10 @@ It may seem like a daunting task, but there are several ways you can go about de
 
 ![keep video short and sweet](https://images.wondershare.com/filmora/article-images/2022/07/keep-video-short-and-sweet.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When creating your video testimonial, you want to keep it short and sweet. After all, that's the point of using video testimonials in the first place! Make sure you have a tight script with a few specific questions written down. You should also plan out how you're going to arrange these questions into a flow.
 
 When asking someone for their thoughts on a topic or issue, there's always going to be some variation in how people respond. Some will talk about personal experiences; others will talk about what they've learned from others' experiences; still, others might share some advice for future generations who might encounter similar problems. The key here is that your main objective is not necessarily the information itself (though this can help), but rather the emotion behind it—what effect does this experience have on your audience?
@@ -85,6 +81,10 @@ Asking open-ended questions allows people greater freedom when responding—and 
 
 ![lighting sound video quality](https://images.wondershare.com/filmora/article-images/2022/07/lighting-sound-video-quality.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lighting, sound, and video quality matter.
 
 This is a given. If you want your testimonial videos to be effective and believable, they need to be properly lit, recorded with good audio quality, and captured in high resolution. While these may seem like obvious must-haves for any video production project—and they are—it's important to remember that there are many factors at play when it comes to how your audience will perceive the final product.
@@ -93,13 +93,13 @@ This is a given. If you want your testimonial videos to be effective and believa
 
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When you're listening to your customers, don't just take notes on what they say. Also, look at their body language and eye movement. This can tell you a lot about whether they are telling the truth or not, and it will give you an idea of what may be going on in their head.
 
 If someone says "I love this product," but then shows their eyes darting around nervously, that could mean that they're worried about saying something nice about the product because it's not really meeting their needs. If someone says "It's okay," but he or she is nodding along with enthusiasm when talking about it, that probably means he or she really does like it!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Beware of Skeptics and Negative Nellies
 
@@ -143,19 +143,17 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-boosting-engagement-interactive-features-of-zoom-on-win11-pcs/"><u>[New] 2024 Approved Boosting Engagement Interactive Features of Zoom on Win11 PCs</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-chart-your-course-in-crypto-selecting-the-best-7-art-converters/"><u>[New] 2024 Approved Chart Your Course in Crypto - Selecting the Best 7 Art Converters</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-the-ultimate-look-at-samsung-galaxy-s8-in-4k/"><u>[New] 2024 Approved The Ultimate Look at Samsung Galaxy S8 in 4K</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-magix-acid-pro-evaluation-with-equivalent-software/"><u>[New] Magix ACID Pro Evaluation with Equivalent Software</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-digital-choices-for-content-creators-sound-or-sight-focus/"><u>[Updated] 2024 Approved Digital Choices for Content Creators Sound or Sight Focus</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-social-snapshot-saver-tool/"><u>[Updated] 2024 Approved Social Snapshot Saver Tool</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-3-simple-ways-to-color-grading-in-photoshop/"><u>[Updated] 3 Simple Ways to Color Grading in Photoshop</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-the-finest-free-iphone-composition-and-photo-editing-tools-reviewed/"><u>[Updated] The Finest FREE iPhone Composition and Photo Editing Tools Reviewed</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-elite-7-cameras-elevating-interactive-learning-vlogs-and-tutorials/"><u>2024 Approved Elite 7 Cameras Elevating Interactive Learning Vlogs & Tutorials</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-the-vloggers-guide-to-optimal-lens-performance/"><u>In 2024, The Vlogger's Guide to Optimal Lens Performance</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/premier-2024-selection-cloud-saving-apps-for-android-users/"><u>Premier 2024 Selection Cloud Saving Apps for Android Users</u></a></li>
-<li><a href="https://os-tips.techidaily.com/ultimate-guide-restoring-a-locked-iphone-via-hardware-key-or-itunes-backup/"><u>Ultimate Guide: Restoring a Locked iPhone via Hardware Key or iTunes Backup</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/unbeatable-memorial-day-deal-2024-asus-tuf-gaming-laptop-with-amd-ryzen-7-just-658/"><u>Unbeatable Memorial Day Deal: 2024 ASUS TUF Gaming Laptop with AMD Ryzen 7, Just $658</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/unlock-affordable-digital-delights-with-the-2020-lenovo-tab-m10-hd-a-review-for-budget-tech-enthusiasts/"><u>Unlock Affordable Digital Delights with The 2020 Lenovo Tab M10 HD: A Review for Budget Tech Enthusiasts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-apple-m1-pro-vs-m1-max-whats-the-difference-for-2024/"><u>[New] Apple M1 Pro Vs. M1 Max What's the Difference for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-top-hd-cameras-for-wildlife-enthusiasts/"><u>[New] In 2024, Top HD Cameras For Wildlife Enthusiasts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-remote-smile-engineer-for-2024/"><u>[New] Remote Smile Engineer for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-10-ultimate-editing-strategies-for-viral-tiktoks/"><u>[Updated] 2024 Approved 10 Ultimate Editing Strategies for Viral TikToks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-pro-tips-navigating-without-watching-edgenuity-content/"><u>[Updated] 2024 Approved Pro Tips Navigating Without Watching Edgenuity Content</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-top-10-iphone-and-android-video-editing-apps-for-gopro-for-2024/"><u>[Updated] Top 10 iPhone & Android Video Editing Apps for GoPro for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/disc-revolution-the-top-rated-cd-players-changers-of-24/"><u>Disc Revolution: The Top-Rated CD Players, Changers of '24</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/get-lenovos-unresponsive-mouse-pad-up-and-running-in-windows-os-windows-7-8-and-11/"><u>Get Lenovo's Unresponsive Mouse Pad Up and Running in Windows OS (Windows 7, 8 & 11)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-join-the-jocular-joy-the-greatest-instagram-meme-gatherings/"><u>In 2024, Join the Jocular Joy The Greatest Instagram Meme Gatherings</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-leverage-social-blades-platform-for-in-depth-video-analytics/"><u>In 2024, Leverage Social Blade's Platform for In-Depth Video Analytics</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-chapter-facebook-endorses-rust-language/"><u>New Chapter: Facebook Endorses Rust Language</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-13-webcam-software-solutions-for-windows-10-users-discover-the-ideal-choice/"><u>Top 13 Webcam Software Solutions for Windows 10 Users - Discover the Ideal Choice</u></a></li>
 </ul></div>
 

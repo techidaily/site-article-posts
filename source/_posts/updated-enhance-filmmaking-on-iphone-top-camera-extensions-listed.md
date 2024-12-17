@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Enhance Filmmaking on iPhone  Top Camera Extensions Listed\""
-date: 2024-08-27T09:27:29.346Z
-updated: 2024-08-28T09:27:29.346Z
+date: 2024-12-11T20:52:22.697Z
+updated: 2024-12-16T20:30:17.959Z
 tags: 
   - screen-recording
   - ai video
@@ -45,9 +45,9 @@ How to press the record button without ever touching your phone? The answer is s
 ![remote-shutter-release ](https://images.wondershare.com/filmora/article-images/remote-shutter-release.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## External Lenses
 
 Nothing influences the quality of your pictures more than the optics you use to capture them. A lens is probably the most important part of any camera and since most built-in lenses on iPhones have limitations an external lens is a perfect solution to those limitations. Using external lenses such as [Moment Lenses](https://www.shopmoment.com/) will ensure that the images you create with your iPhone live up to the standards of professional photographers. You can choose between Fisheye, Wide-angle, or Telelenses since each of them provides you with a new set of possibilities. Moment lenses are light and easy to mount on your iPhone, which is why carrying them on your road trips and adventures requires minimum effort. Using an external lens is a great way to improve the quality of images you take with your iPhone.
@@ -55,8 +55,9 @@ Nothing influences the quality of your pictures more than the optics you use to 
 ![ iphone-lense](https://images.wondershare.com/filmora/article-images/iphone-lense.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## External Light Source
 
 To photograph or to film something simply means to capture the light at the certain place in a certain moment. Due to the lack of light that is not always possible and an additional source of light is often necessary to ensure that camera receives enough light. Using a camera flash can be a quick solution for this problem, but the light the flash produces can be too hard and it always comes from the same direction. [Photojojo's pocket spotlight](https://photojojo.com/awesomeness/pocket-spotlight) is an external light source that allows you to get creative with light in your videos or photos. You can adjust the brightness settings and choose between full strength, half strength, and strobe modes. Photojojo's pocket spotlight is one of many external light sources that can be used with iPhones and other Apple's devices and it will enable you to unleash your creativity.
@@ -75,9 +76,6 @@ The era of silent movies is long gone and today the quality of the video's sound
 
 ![mic-iphone ](https://images.wondershare.com/filmora/article-images/mic-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stabilization Gadgets
 
 Besides tripods, you can use gimbals like [DJI Osmo Mobile](http://store.dji.com/product/osmo-mobile?gclid=CjwKEAjwgZrJBRDS38GH1Kv%5FvGYSJAD8j4Dfjx4uY6dtl4LycNBeOvkn5lBd-062PP5K%5F714fRidQxoCe8nw%5FwcB) to keep your iPhone or any other Smartphone still while recording or taking a photo. Options like ActiveTrack that is built-into the DJI GO app enable Osmo Mobile to track your movements. The handle of the device is equipped with camera controls on the handle which means that you don't even need to touch the display of your iPhone while you are using the Osmo Mobile. To make things even better, you can share videos live, create panorama photos composed out of 9 different pictures or create time-lapse videos by adjusting a few simple settings. DJI Osmo Mobile can be placed almost everywhere, which gives you the confidence to experiment without ever having to worry about the stability of the shot you are about to take.
@@ -85,11 +83,9 @@ Besides tripods, you can use gimbals like [DJI Osmo Mobile](http://store.dji.com
 ![iphone-stabilizer ](https://images.wondershare.com/filmora/article-images/iphone-stabilizer.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
+
 ## The Camera Dollies
 
 Did you ever dream of taking a perfect tracking shot with your iPhone? Anyone who has ever tried to take that kind of a shot knows how difficult it is to make it perfectly paced and still. With [iStabilizer Dolly](https://istabilizer.com/products/istabilizer-dolly/) you will be able to create shots that will seem that walked straight out of Martin Scorsese's movie with your iPhone. iStabilizer Dolly can be used with almost all Smartphones and it can even hold smaller DSLR cameras. It needs a perfectly flat surface in order to create the uninterrupted camera movement and it might be tricky to maintain the consistent speed during the shot. Despite the fact that you'll need some time to master camera dollies they are useful accessories for any aspiring filmmaker who is learning the ropes of the film industry.
@@ -97,9 +93,9 @@ Did you ever dream of taking a perfect tracking shot with your iPhone? Anyone wh
 ![ iphone-stabilizer-dolly](https://images.wondershare.com/filmora/article-images/iphone-stabilizer-dolly.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Camera apps
 
 There is no doubt that iPhone's cameras are capable of stunning performances, but if you'd like to give the videos you create with your iPhone a more cinematic look, camera apps might be the thing that you are looking for. Apps like [FiLMiC Pro](http://www.filmicpro.com/apps/apple/filmic-pro/) turn iOS camera into a high definition camera that can stand shoulder to shoulder with some of the best professional cameras today. This two-time video camera app of the year enables you to fully control settings like ISO, Shutter Speed or Exposure bias which results in the footage that is worthy of industry's best cameras. The app allows you to shoot 4K video in resolutions at up to 100Mbps and the latest update added the digital cinema 17:9 aspect ratio.
@@ -107,28 +103,35 @@ There is no doubt that iPhone's cameras are capable of stunning performances, bu
 ![filmic-pro-iphone ](https://images.wondershare.com/filmora/article-images/filmic-pro-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Selfie Stick
 
 Taking a selfie isn't always easy, especially if you want to capture some of the ambiance and the atmosphere that surrounds you. Holding an iPhone in your hand while taking a selfie isn't always the best choice. Selfie-sticks like [MPow Selfie Stick](https://www.amazon.com/Mpow-Extendable-Monopod-Bluetooth-Compatible/dp/B07JQFSVX2) offer a handy solution in these situations. MPow is incredibly light and easy to use. It is 7.1-inches long when collapsed and it can be expanded to 31.5 inches. The head of the stick can be rotated and angled up to 270 degrees so your iPhone 7 can be set in any way you want. The stick has a long-life battery which is great news for users who want to use the MPow Selfie Stick during the long sightseeing walks.
 
 ![selfie-stick-iphone ](https://images.wondershare.com/filmora/article-images/selfie-stick-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Underwater Housing
 
 In the summertime, many people like to document their underwater adventures. But most underwater cameras are disposable and the image quality they produce is questionable at best. Underwater housings for iPhones might be a little pricey, but they enable you to capture the magnificence of the sea life in high definition. The [LenzO for iPhone 7 Plus](https://www.valstech.com/products/lenzo-for-iphone-7-plus) is designed and built using the same technologies that created the success of Lenzo's housings for iPhone 6/6s and iPhone 7\. The housing is composed out of aluminum and can be used at depths up to a hundred meters below the surface. You can access all of the phone's camera functions including the 4K or time-lapse modes. Underwater housings protect your iPhone and enable you to have a lot of fun while exploring the underwater world.
 
 ![underwater-iphone ](https://images.wondershare.com/filmora/article-images/underwater-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -152,4 +155,16 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-snapchat-commerce-masterclass-essentials-unveiled/"><u>[New] 2024 Approved SnapChat Commerce Masterclass Essentials Unveiled</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-expertise-essentials-removing-unwanted-backdrops-with-canva-for-2024/"><u>[New] Expertise Essentials Removing Unwanted Backdrops with Canva for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-reimagining-editing-processes-the-revolutionary-world-of-magix-video-pro-x/"><u>[New] In 2024, Reimagining Editing Processes The Revolutionary World of Magix Video Pro X</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-streamlining-your-movie-file-processing-on-windows-11-pcs-for-2024/"><u>[New] Streamlining Your Movie File Processing on Windows 11 PCs for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-summit-series-of-ultimate-4k-touch-screens-for-2024/"><u>[New] Summit Series of Ultimate 4K Touch Screens for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-how-to-safely-dissolve-an-inactive-linkedin-account/"><u>2024 Approved How to Safely Dissolve an Inactive LinkedIn Account</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-comparing-aurora-and-competitors-dynamic-range-effects/"><u>In 2024, Comparing Aurora and Competitors' Dynamic Range Effects</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-financial-flip-understanding-1-million-views-payoff/"><u>In 2024, The Financial Flip Understanding 1 Million Views Payoff</u></a></li>
+<li><a href="https://change-location.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Samsung Galaxy M34 | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Color Keying 101  The Easy Guide to Digital Backdrops and Filming\""
-date: 2024-12-06T18:02:17.347Z
-updated: 2024-12-10T20:28:50.554Z
+date: 2024-12-13T18:36:42.292Z
+updated: 2024-12-16T19:17:33.192Z
 tags: 
   - screen-recording
   - ai video
@@ -49,7 +49,7 @@ For the most part, the process is fairly simple. It only becomes difficult when 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is a Green Screen?
@@ -70,10 +70,6 @@ This is especially where the premise is not supposed to be taken seriously. In f
 
 ![why use green screens](https://images.wondershare.com/filmora/article-images/why-use-green-screen.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Green screen is more commonly used no mainstream TV, and to a lesser extent in movies, to fill out a scene. For example, the production company may have quickly built a seaside party set for a five-second scene.
 
 Most props will cover the green screen, but the green screen is still present in the background to show things like clouds moving in the sky or boats moving on the ocean. It fills out a scene and makes a studio set look at little more realistic.
@@ -86,10 +82,6 @@ You can discard the background and all the unwanted people. What is left over is
 
 ![how do green screens work](https://images.wondershare.com/filmora/article-images/how-do-green-screens-work.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Green Screening Does Not Have to Include the Color Green
 
 You can green screen by adding a certain color into the scene. Make it a color that is not seen elsewhere in the scene. Typically, this color is added as a canvas behind the screen, but it doesn't have to work that way.
@@ -101,10 +93,6 @@ For example, you could use the color on somebody’s boots, and then edit out an
 Once you have added your color to the scene, you must record the scene as normal. Then, in the editing phase, you isolate a single color. The color you isolate is the green screen color, (whichever you chose). In the scene, you make that color transparent. This means that there are frames with transparent elements in them. This process is called chromakeying.
 
 Once you have used chromakeying make a certain part of the frame transparent, you can replace that transparency with another image. When building a background, the image is sometimes a piece of video footage or a still image. Other times a visual effect is used such as CGI to make something appear to be in the scene, but is actually not.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Set Up Your Green Screen Scene in 5 Steps?
 
@@ -148,9 +136,17 @@ You also need to think about individual lighting and how it creates shadows. The
 
 ![how do green screens work](https://images.wondershare.com/filmora/article-images/green-screen-ideas-movie.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 5: Post-editing
 
 Step five is the editing process, and a large part involves thinking about how the green screen would interact with the other elements in the scene. Commonly forgotten elements in an indoor setting are shadows from clouds, the wind, and background noises like cars passing or dogs barking.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5 Green Screen Ideas for Each Video-Making Scenario
 
@@ -197,12 +193,16 @@ The best green screen ideas are ones that occur as natural solutions to your pro
 ![how do green screens work](https://images.wondershare.com/filmora/article-images/green-screen-ideas-animated.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In fact, in real life, there are plenty of people who are faking their Instagram images to great success. Notice the blank colors in the background, and the green seat in the image below. Using chromakeying, it is possible to make the Instagram user look as if she is living a luxurious lifestyle.
 
 ![how do green screens work](https://images.wondershare.com/filmora/article-images/green-screen-ideas-by-tbhbyron.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Best Green Screen Video Editing Tools for Beginners and Pros
 
@@ -211,6 +211,10 @@ The truth is that many different tools can be used to edit frames and replace el
 The tools that make green screening easy are often very expensive, but many of them come with a free trial that you can use prior to buying. For example, [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes with a free trial for both Microsoft and Apple desktop products. There are also tools like the VSDC Video Editor, iMovie, Virtual Dub and so forth.
 
 Do not be fooled by article that claim they list free Chroma key or green screening tools. Firstly, the genuinely free tools, such as the open source tools like Blender, are very labor intensive. Secondly, such articles are claiming the green-screening tools are free, but they only have free trials, you will be required to pay if you want to use the tools over the long term.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The 3 Best Green Screen Video Editors
 
@@ -249,10 +253,6 @@ It's free to download. Have a try now.
 #### 2. [iMovie](https://www.apple.com/uk/imovie/)
 
 ![how do green screens work](https://images.wondershare.com/filmora/article-images/iMovie-Interface.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The iMovie program is the cheap and tacky entry in the video editing world. It is only available on the iOS and Mac, and is mostly suited for people who do not want to spend a lot of money on their video editing software.
 
@@ -317,7 +317,7 @@ Another common trick is to offer you a free trial and then load your computer up
 In addition, if an editing tool asks you to sign in to your other accounts, such as your YouTube account or Google account, then perhaps uninstall the program. You need to do this because there is no guarantee of security with these programs, which means you cannot be sure of the safety of your passwords when you enter them into video editing tools, (especially free ones).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion - Getting it Right is the Hard Part
@@ -355,22 +355,20 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-gentle-volume-easing-methods-for-mixers/"><u>[New] 2024 Approved Gentle Volume Easing Methods for Mixers</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-steps-for-efficiently-storing-whatsapp-audio-transcripts/"><u>[New] 2024 Approved Steps for Efficiently Storing WhatsApp Audio Transcripts</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-behind-the-curtain-the-hidden-costs-of-vr/"><u>[New] Behind the Curtain The Hidden Costs of VR</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-seamless-filmmaking-kinemaster-transition-techniques/"><u>[New] Seamless Filmmaking Kinemaster Transition Techniques</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-understanding-the-impact-of-aurora-hdr-on-photography-for-2024/"><u>[New] Understanding the Impact of Aurora HDR on Photography for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-90s-chuckles-dissecting-the-vhs-of-the-goofies/"><u>[Updated] '90S Chuckles Dissecting the VHS of The Goofies</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-tweet-titans-social-networks-10-most-shared-posts/"><u>[Updated] 2024 Approved Tweet Titans Social Network’s 10 Most Shared Posts</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-enhancing-historical-value-incorporating-dates-into-images/"><u>[Updated] In 2024, Enhancing Historical Value Incorporating Dates Into Images</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-accelerate-your-iphone-and-android-videos-with-top-free-slo-motion-apps/"><u>2024 Approved Accelerate Your iPhone and Android Videos with Top Free Slo-Motion Apps</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/addressing-windows-requires-ancient-login-details/"><u>Addressing Windows Requires Ancient Login Details</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/breaking-down-the-new-2023-samsung-bd-j5900-model-for-2024/"><u>Breaking Down the New 2023 Samsung BD-J5900 Model for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/expert-windows-and-macos-screen-capture-tools-for-2024/"><u>Expert Windows & macOS Screen Capture Tools for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-androids-ultimate-sky-archive-sentries-2-written-by-a-user-not-an-ai-model/"><u>In 2024, Android's Ultimate Sky Archive Sentries (2 Written by a User, Not an AI Model</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-investment-in-top-tier-hdr-cameras-a-buyers-guide/"><u>In 2024, Investment in Top-Tier HDR Cameras A Buyer's Guide</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-serene-soundtracks-copyright-free-legal-meditation-music/"><u>In 2024, Serene Soundtracks – Copyright-Free, Legal Meditation Music</u></a></li>
-<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-realme-narzo-n53-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Realme Narzo N53 ? Fix It Easily | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-recover-deleted-photos-on-realme-gt-5-240w-without-backup-by-fonelab-android-recover-photos/"><u>The way to recover deleted photos on Realme GT 5 (240W) without backup.</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-deciding-on-a-vr-setup-going-wireless-mobile-or-connected-tethered/"><u>[New] 2024 Approved Deciding on a VR Setup Going Wireless (Mobile) or Connected (Tethered)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-epicurean-expression-filming-with-style-and-savory-substance/"><u>[New] 2024 Approved Epicurean Expression Filming with Style and Savory Substance</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-facebook-fb-upload-strategies-for-mobile-and-desktop/"><u>[New] Facebook FB Upload Strategies for Mobile & Desktop</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-legal-harmonies-unpacking-music-policy-on-instagram/"><u>[Updated] In 2024, Legal Harmonies Unpacking Music Policy on Instagram</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-maximize-your-zoom-experience-with-top-three-strategies/"><u>[Updated] In 2024, Maximize Your Zoom Experience with Top Three Strategies</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-opening-and-playing-srt-files-in-different-oses/"><u>[Updated] In 2024, Opening and Playing SRT Files in Different OSes</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-prime-10-video-edits-boost-your-webcam-experience/"><u>[Updated] In 2024, Prime 10 Video Edits Boost Your Webcam Experience</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-unboxing-opportunities-the-marketing-planning-journey/"><u>[Updated] In 2024, Unboxing Opportunities The Marketing Planning Journey</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-mastering-tunes-with-mac-studios-for-2024/"><u>[Updated] Mastering Tunes with Mac Studios for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-srgb-vs-rgb-decoding-color-standards-for-devices/"><u>[Updated] Srgb vs Rgb Decoding Color Standards for Devices</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-reimagining-pc-life-with-windows-11-setup/"><u>2024 Approved Reimagining PC Life with Windows 11 Setup</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/bitgo-the-american-digital-asset-safekeeper-gains-licensing-green-light-by-bafin-in-germany-detailed-analysis-by-yl-computing-and-yl-software/"><u>BitGo, the American Digital Asset Safekeeper, Gains Licensing Green Light by BaFin in Germany - Detailed Analysis by YL Computing & YL Software</u></a></li>
+<li><a href="https://article-posts.techidaily.com/discovering-the-heart-of-editing-filmoras-top-choices/"><u>Discovering the Heart of Editing - Filmora’s Top Choices</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-unveiling-your-design-how-to-eliminate-backgrounds-in-figma/"><u>In 2024, Unveiling Your Design How To Eliminate Backgrounds in Figma</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/is-the-smoothing-effect-in-photoshop-a-game-changer-or-not-in-2024/"><u>Is the Smoothing Effect in Photoshop a Game Changer or Not, In 2024</u></a></li>
 </ul></div>
 

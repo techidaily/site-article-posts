@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Unveiling Your Design  How To Eliminate Backgrounds in Figma\""
-date: 2024-12-05T16:23:03.545Z
-updated: 2024-12-10T17:27:12.959Z
+date: 2024-12-10T16:19:48.915Z
+updated: 2024-12-17T00:47:20.145Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ As aforementioned, **Figma** does not offer a **Background Remover** tool but co
 
 Since you want to remove the image's background, there is no better plugin than [Wondershare PixCut](https://pixcut.wondershare.com/), a free tool that helps you erase your picture's BG instantly. With this plugin, you can edit up to files per day, and that too in high-quality resolution.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Why Use The PixCut Tool?
 
 Here's how the PixCut tool stands out from the rest of the image editing tools available in the digital market:
@@ -65,10 +69,6 @@ Step1 First, open a browser, visit the [Figma website](https://www.figma.com), a
 
 ![importing image to figma to remove background](https://images.wondershare.com/filmora/article-images/2023/03/importing-image-to-figma-to-remove-background.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Once the import process is complete, click **"Done"** in the pop-up window and open your image. Now, click the "**Main Menu"** icon and choose **"Plugins" > "Find More Plugins"** from the drop-down menu.
 
 Step2 Next, search for **"**[**PixCut Background Remover**](https://www.figma.com/community/plugin/990188175789012011)**"** using the search option and select it from the result. Click **"Run,"** choose the **"Select App key"** option from the drop-down menu, and you will be asked for your **"Appkey."**
@@ -79,19 +79,15 @@ Step3 Paste the Appkey in the pop-up window in Figma and click **"Save."** Now, 
 
 ![running the pixcut plugin in figma](https://images.wondershare.com/filmora/article-images/2023/03/running-the-pixcut-plugin-in-figma.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The program will start running the plugin, and the background of your image will disappear. Click the **"Export"** option and save your file on your system.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Other Options To Remove Image's Background In Figma
 
 Apart from using PixCut Plugin in Figma, there are some alternatives that you can use to remove the image's background in Figma:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### (1) When Images Are With Transparent or Solid Colour Backgrounds
 
@@ -123,11 +119,7 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### (3) Using Online Removers
@@ -136,12 +128,16 @@ Another alternative is to use any tool that **removes the image background onlin
 
 To use the Remove BG tool, visit its website, drop your image file, or click the **"Upload"** option to import your file. Now, wait for the program to process your image and then click **"Download"** to save your picture. Afterward, you can import it to Figma for further editing.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -173,6 +169,10 @@ To use the Remove BG tool, visit its website, drop your image file, or click the
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -206,24 +206,19 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-accurate-ranking-top-10-gratuitous-srt-file-tools/"><u>[New] In 2024, Accurate Ranking Top 10 Gratuitous Srt File Tools</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-delving-into-the-pros-and-cons-of-using-itop/"><u>[New] In 2024, Delving Into the Pros and Cons of Using ITop</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-elevate-video-visibility-with-expert-titles/"><u>[New] In 2024, Elevate Video Visibility with Expert Titles</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-number-1-in-the-elite-8-virtual-composite-maker-for-2024/"><u>[New] Number 1 in the Elite 8 Virtual Composite Maker for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-overcoming-delayed-or-non-sending-videos-in-facebooks-popular-chat-application-for-mobile-users/"><u>[New] Overcoming Delayed or Non-Sending Videos in Facebook's Popular Chat Application for Mobile Users</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-complete-assessment-of-macos-and-screenflow-v4/"><u>[Updated] In 2024, Complete Assessment of macOS and ScreenFlow V4</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-cutting-edge-final-cut-pros-best-10-plugins/"><u>[Updated] In 2024, Cutting Edge Final Cut Pro's Best 10 Plugins</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-optimal-free-tools-5-gif-to-video-conversion-websites-without-downloads/"><u>[Updated] In 2024, Optimal Free Tools 5 GIF-to-Video Conversion Websites Without Downloads</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-top-7-cost-effective-user-friendly-movie-software/"><u>[Updated] Top 7 Cost-Effective, User-Friendly Movie Software</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-how-to-use-screenrec/"><u>2024 Approved How to Use ScreenRec</u></a></li>
-<li><a href="https://article-helps.techidaily.com/a-compreenas-guide-to-leveraging-ps-background-erasure-for-professional-results/"><u>A Compreenas Guide to Leveraging PS Background Erasure for Professional Results</u></a></li>
-<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Lenovo ThinkPhone | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-any-infinix-smart-8-plus-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Infinix Smart 8 Plus Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/in-depth-btoes-review-a-comprehensive-overview-of-international-operational-mastery/"><u>In-Depth BTOES Review: A Comprehensive Overview of International Operational Mastery</u></a></li>
-<li><a href="https://article-posts.techidaily.com/making-your-voice-heard-in-the-podcast-realm-for-2024/"><u>Making Your Voice Heard in the Podcast Realm for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/optimizing-your-browsing-mastering-firefoxs-pip-for-2024/"><u>Optimizing Your Browsing Mastering Firefox's PIP for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/unveiling-iphone-features-podcast-audiophiles-guide/"><u>Unveiling iPhone Features - Podcast Audiophiles Guide</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-what-makes-the-best-lower-thirds-in-final-cut-pro-x/"><u>Updated What Makes the Best Lower Thirds in Final Cut Pro X</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-your-tecno-spark-10-4g-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Tecno Spark 10 4G Auto Does Not Work | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-innovative-pathways-select-7-tools-for-artwork-conversion-to-nfts/"><u>[New] In 2024, Innovative Pathways Select 7 Tools for Artwork Conversion to NFTs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-pc-speeds-choosing-the-right-extension-software/"><u>[New] Top PC Speeds Choosing the Right Extension Software</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-a-step-by-step-guide-how-to-record-save-and-share-youtube-video-for-no-cost/"><u>[Updated] 2024 Approved A Step-by-Step Guide How To Record, Save & Share YouTube Video for No Cost</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-crafting-compelling-slug-lines-a-step-by-step-approach-for-2024/"><u>[Updated] Crafting Compelling Slug Lines A Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-distinguishing-between-youtube-content-control-and-creative-commons-flexibility-for-2024/"><u>[Updated] Distinguishing Between YouTube Content Control and Creative Commons Flexibility for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-art-of-audio-integration-tunes-for-your-microsoft-slides-for-2024/"><u>[Updated] The Art of Audio Integration Tunes for Your Microsoft Slides for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/complete-tutorial-on-how-to-take-off-and-switch-phone-screen-guard/"><u>Complete Tutorial on How to Take Off and Switch Phone Screen Guard</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-note-30-vip-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Note 30 VIP?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-oneplus-nord-ce-3-lite-5g-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On OnePlus Nord CE 3 Lite 5G for Parents | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/macs-finest-choices-for-mkv-file-handling/"><u>Mac's Finest Choices for MKV File Handling</u></a></li>
+<li><a href="https://article-posts.techidaily.com/stock-photos-without-watermarks-a-guide/"><u>Stock Photos Without Watermarks – A Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/toolwiz-photosapp-overview-a-complete-analysis-and-future-prospects/"><u>Toolwiz PhotosApp Overview - A Complete Analysis and Future Prospects</u></a></li>
+<li><a href="https://article-posts.techidaily.com/transforming-audiencier-names-with-top-ai-tools-for-2024/"><u>Transforming Audiencier Names with Top AI Tools for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-lenovo-thinkpad-x1-titanium-yoga-a-revolutionary-2-in-1-laptop-that-captivates-longtime-thinkpad-connoisseurs/"><u>Unveiling the Lenovo ThinkPad X1 Titanium Yoga: A Revolutionary 2-in-1 Laptop That Captivates Longtime ThinkPad Connoisseurs</u></a></li>
 </ul></div>
 

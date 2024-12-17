@@ -1,7 +1,7 @@
 ---
 title: "[New] Crafting Excellent Micro Photography Videos Step by Step"
-date: 2024-12-04T21:59:29.032Z
-updated: 2024-12-10T20:10:18.557Z
+date: 2024-12-09T22:28:29.572Z
+updated: 2024-12-16T21:47:06.371Z
 tags: 
   - screen-recording
   - ai video
@@ -70,7 +70,7 @@ Try to get great visual perspectives or angles by bracing the camera on the tree
 ![Tripod](https://images.wondershare.com/filmora/article-images/oconnor-ultimate-1030d-fluid-head-30l-cf-tripod.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 3\. Background
@@ -90,7 +90,7 @@ You may also add an extension tube which basically splits the focal distance in 
 ![dslr camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 5\. Depth of Field
@@ -104,7 +104,7 @@ But, you must remember that when the opening of the lens is small, the light req
 ![depth of field](https://images.wondershare.com/filmora/article-images/depth-of-field.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 6\. Composition
@@ -116,7 +116,7 @@ For instance, in order to keep a snail always in focus, you may choose to shoot 
 ![composition](https://images.wondershare.com/filmora/article-images/composition.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -126,7 +126,7 @@ Once you can master the above tips for making the macro video, you can easily sh
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -154,22 +154,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-step-by-step-techniques-for-perfect-hdr-photos-in-adobe-lightroom/"><u>[New] Step-by-Step Techniques for Perfect HDR Photos in Adobe Lightroom</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-the-skys-limit-broken-by-djis-pro-drone-review-for-2024/"><u>[New] The Sky's Limit Broken by DJI’s Pro Drone Review for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-unlocking-the-upside-exploring-asmrs-advantages/"><u>[New] Unlocking the Upside Exploring ASMR's Advantages</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-inside-the-scoring-of-toolwizs-photography-software/"><u>[Updated] 2024 Approved Inside the Scoring of Toolwiz's Photography Software</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-smoothly-lowering-sound-levels-using-garageband/"><u>[Updated] 2024 Approved Smoothly Lowering Sound Levels Using Garageband</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-inside-the-studio-magix-vpx-leading-media-production/"><u>[Updated] In 2024, Inside the Studio Magix VPX Leading Media Production</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-oculus-top-grossing-virtual-reality-titles-list/"><u>[Updated] Oculus Top Grossing Virtual Reality Titles List</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-enhancing-visual-stability-avoiding-dropouts-in-obs/"><u>2024 Approved Enhancing Visual Stability Avoiding Dropouts in OBS</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-golden-5-premier-macsierra-dvd-makers/"><u>2024 Approved Golden 5 Premier MacSierra Dvd Makers</u></a></li>
-<li><a href="https://fox-access.techidaily.com/essential-vlc-utility-manual-for-effective-mac-usage/"><u>Essential VLC Utility Manual for Effective Mac Usage</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-choosing-between-obs-and-fraps-for-capture/"><u>In 2024, Choosing Between OBS and Fraps for Capture</u></a></li>
-<li><a href="https://article-posts.techidaily.com/innovative-20-no-rights-pubg-visual-arrays-for-2024/"><u>Innovative 20 No-Rights PUBG Visual Arrays for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/innovative-5-mobile-photo-editing-tools-background-switcher-for-2024/"><u>Innovative 5 Mobile Photo Editing Tools Background Switcher for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/leading-desk-matting-innovations/"><u>Leading Desk Matting Innovations</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/quick-solutions-resolve-your-pcs-persistent-windows-update-at-0-dilemma/"><u>Quick Solutions: Resolve Your PC's Persistent 'Windows Update at 0%' Dilemma</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/troubleshooting-and-solutions-fixing-issues-with-thinkpads-thunderbolt-3-dock-connection/"><u>Troubleshooting and Solutions: Fixing Issues with ThinkPad's Thunderbolt 3 Dock Connection</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/unveiling-the-secrets-of-facebook-video-content-success-for-2024/"><u>Unveiling the Secrets of Facebook Video Content Success for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-the-quick-winner-guide-how-to-make-money-on-reddit-in-just-a-click/"><u>[New] 2024 Approved The Quick-Winner Guide How to Make Money on Reddit in Just a Click</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-exploring-alternatives-google-vr-vs-samsung-tech/"><u>[New] Exploring Alternatives Google VR Vs. Samsung Tech</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-free-game-themes-and-melodies-10-best-websites/"><u>[New] Free Game Themes & Melodies – 10 Best Websites</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-soundscape-adjustments-fading-volume-with-precision-in-logic-pro/"><u>[New] Soundscape Adjustments Fading Volume with Precision in Logic Pro</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-codec-battlegrounds-assessing-the-advantages-of-av1-and-vp9-for-2024/"><u>[Updated] Codec Battlegrounds Assessing the Advantages of Av1 and VP9 for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-mastering-whatsapp-key-tricks-and-invisible-functions/"><u>[Updated] In 2024, Mastering WhatsApp Key Tricks & Invisible Functions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-transform-your-images-with-these-8-top-tier-tablet-editors/"><u>2024 Approved Transform Your Images with These 8 Top-Tier Tablet Editors</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-nubia-red-magic-9-pro-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Nubia Red Magic 9 Pro.</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/discreet-snaps-the-secret-of-silent-photo-taking-on-snapchat/"><u>Discreet Snaps The Secret of Silent Photo-Taking on Snapchat</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/easy-steps-on-how-to-create-a-new-apple-id-account-on-iphone-6s-drfone-by-drfone-ios/"><u>Easy Steps on How To Create a New Apple ID Account On iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/gratis-trasforma-i-tuoi-dvd-in-file-divx-di-alta-definizione-con-taglio-delle-dimensioni-ma-pieno-della-tua-esperienza-visiva-originale/"><u>Gratis: Trasforma I Tuoi DVD in File DivX Di Alta Definizione, Con Taglio Delle Dimensioni Ma Pieno Della Tua Esperienza Visiva Originale</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcome-windows-11-update-obstacle-with-code-0x800f0922-fixes/"><u>Overcome Windows 11 Update Obstacle with Code 0X800F0922 Fixes</u></a></li>
+<li><a href="https://article-posts.techidaily.com/overhaul-overflow-cutting-edge-techniques-for-massive-tiktok-drafts-for-2024/"><u>Overhaul Overflow Cutting-Edge Techniques for Massive TikTok Drafts for 2024</u></a></li>
+<li><a href="https://win-popular.techidaily.com/premier-microsoft-certification-pathways-expert-level-educational-opportunities-zdnet/"><u>Premier Microsoft Certification Pathways: Expert-Level Educational Opportunities - ZDNet</u></a></li>
+<li><a href="https://article-posts.techidaily.com/slumber-screen-chronicles-evaluations/"><u>Slumber Screen Chronicles Evaluations</u></a></li>
 </ul></div>
 

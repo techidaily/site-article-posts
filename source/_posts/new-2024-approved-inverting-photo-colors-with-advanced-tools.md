@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Inverting Photo Colors with Advanced Tools\""
-date: 2024-08-27T09:28:13.975Z
-updated: 2024-08-28T09:28:13.975Z
+date: 2024-12-14T23:59:54.206Z
+updated: 2024-12-16T21:23:48.375Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,10 @@ The Invert option is commonly used to invert a scanned film negative to color, b
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/ms-paint-invert-color.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Open the photo you’d like to invert with MS Paint, and then choose the **Select All option** from the **Select Menu**. **Right-click** on the picture and click on the **Invert Color** option. The colors in the image will be automatically inverted, so you can then head over to the **Save As submenu** in the **File menu** to select the file format of the new photo.
 
 If you are using Windows XP or an earlier version of the Windows OS, you can invert colors in a photo by clicking on the **Invert Colors option** in the **Image menu**. Even though MS Paint lets you invert image colors easily, it is still better to use a more powerful image editor to edit your photos.
@@ -54,9 +58,17 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can experiment with the values you assign to each of these sliders in order to get a more visually pleasing result.
 
@@ -87,6 +99,10 @@ In addition to a rich selection of effects you can apply to images, tjshome also
 **Compatibility:** macOS, Windows
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/ps-convert-color.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After you open a photo in Adobe Photoshop, you can invert it in just a few clicks. **Expand the Image menu** and the go-to **Adjustments submenu** where you can find the **Invert option**. Alternatively, you can use the **CTRL+I** shortcut if you are a PC user or a **Command+I** if you are using a Mac computer. Moreover, Photoshop lets you **mask parts of a photo** which enables you to precisely define an area of an image you’d like to invert. Other photo editing tools like **Curves, Brightness/Contrast or Photo Filter** can make an image with inverted colors look more convincing. Keep in mind that working with multiple layers requires a lot of patience because failing to mask an object properly can produce some unwanted side issues.
 
@@ -122,6 +138,10 @@ Inverting colors in a photo is not a complicated process, but finding creative w
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -145,8 +165,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-essential-design-tools-top-10-vector-graphics-making-and-editing-apps/"><u>[New] 2024 Approved Essential Design Tools Top 10 Vector Graphics Making & Editing Apps</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-chaptered-cinema-the-essential-guide-to-vimeo-editing/"><u>[New] Chaptered Cinema The Essential Guide to Vimeo Editing</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-crafting-dynamic-collab-videos-with-content-partners-on-youtube/"><u>[New] In 2024, Crafting Dynamic Collab Videos with Content Partners on YouTube</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-preserving-the-past-in-motion-photo-to-video-transition/"><u>[New] In 2024, Preserving the Past in Motion Photo to Video Transition</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-action-cameras-face-off-gopro-hero-4-vs-ghost-s-drifting/"><u>[Updated] 2024 Approved Action Cameras Face Off GoPro Hero 4 Vs. Ghost-S Drifting</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-mastering-screenshots-a-guide-to-premium-recorders/"><u>[Updated] 2024 Approved Mastering Screenshots A Guide to Premium Recorders</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-achieving-vibrant-colors-srgb-techniques-for-2024/"><u>[Updated] Achieving Vibrant Colors Srgb Techniques for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-go-beyond-stills-with-vimeo-animations-a-gif-guide/"><u>[Updated] In 2024, Go Beyond Stills with Vimeo Animations A GIF Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-screenflow-for-mac-a-full-featured-deep-dive/"><u>[Updated] In 2024, ScreenFlow for Mac - A Full Featured Deep Dive</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-prime-vhs-illusions-to-enhance-film-projects-for-2024/"><u>[Updated] Prime VHS Illusions to Enhance Film Projects for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-essential-guide-for-diy-gif-makers-youtube-to-visual-storytelling-for-2024/"><u>[Updated] The Essential Guide for DIY GIF Makers YouTube to Visual Storytelling for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-transforming-trending-searches-into-video-concepts/"><u>[Updated] Transforming Trending Searches Into Video Concepts</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/diy-fix-how-to-get-your-turtle-beach-elite-atlas-microphone-working-again/"><u>DIY Fix: How to Get Your Turtle Beach Elite Atlas Microphone Working Again</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-from-canvas-to-ledger-the-ultimate-list-of-nft-engines-for-artists/"><u>In 2024, From Canvas to Ledger The Ultimate List of NFT Engines for Artists</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-mac-users-learn-how-to-download-and-use-kinemaster/"><u>Updated Mac Users Learn How to Download and Use KineMaster</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
