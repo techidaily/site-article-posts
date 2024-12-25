@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Inside Look  How Does VR Headgear Work?\""
-date: 2024-08-27T09:22:16.660Z
-updated: 2024-08-28T09:22:16.660Z
+date: 2024-12-21T17:16:11.093Z
+updated: 2024-12-25T17:03:17.685Z
 tags: 
   - screen-recording
   - ai video
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/5648c434c12cbf88b15506d6d23b8724252689511
 
  A [Virtual Reality](https://tools.techidaily.com/wondershare/filmora/download/) headset, commonly known as VR headset, refers to a device worn over the eyes like a pair of goggles for the purposes of watching VR content or when playing virtual reality video games. Most of the headsets have the ability to track the user’s head movements so that the wherever the user looks, the character in the virtual reality also looks. If done in the right manner, the headsets give an impression of the user being actually inside the game or the movie, hence the name “virtual reality”.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How does Virtual Reality headsets work
 
  The principle goal of the virtual reality headsets is to create life-size, 3D virtual environments with no boundaries like those associated with computer or television screens. In case of the Rift or HTC’s Vive, video is sent from the computer or the console to the headset through a HDMI cable, while for the Google Cardboard or Samsung’s Gear VR, the videos are already on the smartphone mounted on the headsets.
@@ -44,9 +48,6 @@ thumbnail: https://thmb.techidaily.com/5648c434c12cbf88b15506d6d23b8724252689511
 
  Below is a list of the various VR headsets currently available to purchase:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ### [HTC Vive]( https://www.vive.com/ )
 
 ![ghtc-vive-vr](https://images.wondershare.com/filmora/article-images/htc-vive.png)
@@ -58,34 +59,34 @@ thumbnail: https://thmb.techidaily.com/5648c434c12cbf88b15506d6d23b8724252689511
 ![gear-vr](https://images.wondershare.com/filmora/article-images/gear-vr.png)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  The Samsung Gear VR is essentially Oculus Rift lite, owing to the fact that the two companies worked on the technology together. The Gear VR uses a Samsung Galaxy smartphone for the display and as the processor. The phone slots in front of the lenses and into a Micro USB slot, and uses the super AMOLED display as the screen. With the Gear, all you have to do is to slot in the phone, put on the headset and start enjoying the virtual reality experience.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### [Oculus Rift](https://www.oculus.com/rift/  )
 
 ![oculus-rift](https://images.wondershare.com/filmora/article-images/oculus-rift.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
  Oculus Rift headset was responsible for the current hysteria in virtual reality. The Rift plugs into the computer’s USB and DVI ports and tracks the movements of the head to provide 3D displays on its stereo screens. The consumer edition of the Rift comes with a 2160 x 1200 resolution as well as a refresh rate of 90Hz. The Rift matches HTC Vive in terms of the refresh rate, but lags behind Sony’s PlayStation VR, though it is a pretty advanced VR headset in terms of the technology used.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### [Sony PlayStation VR](https://www.playstation.com/en-us/explore/playstation-vr/  )
 
 ![sony-playstation-vr](https://images.wondershare.com/filmora/article-images/sony-playstation-vr.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
  Sony has finally announced the launch date for the PlayStation VR headset and this is expected to be 13th October 2016\. A new version though, was announced way back in 2015 and it featured a 5-inch LCD display of the original prototype. For the version to be released, it is expected to have a 5.7 inch OLED to allow for low persistence which will in turn translate to less motion blur. The refresh rate for Sony’s PlayStation VR has been ramped up to 120Hz, making it possible to have 120fps gaming.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### [Google Cardboard](https://vr.google.com/cardboard/  )
 
@@ -97,9 +98,6 @@ No advertising on the website.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -123,4 +121,21 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-guide-sharing-melodies-in-facebook-narratives/"><u>[New] 2024 Approved Guide Sharing Melodies in Facebook Narratives</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-the-most-massive-lifting-machines-in-the-sky/"><u>[New] 2024 Approved The Most Massive Lifting Machines in the Sky</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-the-role-of-visual-aids-in-pedagogy/"><u>[New] 2024 Approved The Role of Visual Aids in Pedagogy</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-effective-time-management-streamlining-zoom-meetings-on-win11-systems/"><u>[New] In 2024, Effective Time Management Streamlining Zoom Meetings on Win11 Systems</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-prepping-zones-vr-setup-guide-with-oculus/"><u>[New] In 2024, Prepping Zones VR Setup Guide with Oculus</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/aximizing-youtube-clicks-with-imagery-for-2024/"><u>[New] Maximizing YouTube Clicks with Imagery for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-effortlessly-preserve-your-linkedin-content-with-the-best-6-apps-for-2024/"><u>[Updated] Effortlessly Preserve Your LinkedIn Content with The Best 6 Apps for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-photo-editing-basics-unveiled-dive-into-lunapic/"><u>[Updated] Photo Editing Basics Unveiled Dive Into LunaPic</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-milestones-of-vegaspros-2019-upgrade-for-2024/"><u>[Updated] The Milestones of VegasPro's 2019 Upgrade for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/essential-playlists-for-engaging-unboxing-videos/"><u>Essential Playlists for Engaging Unboxing Videos</u></a></li>
+<li><a href="https://win-best.techidaily.com/maximizing-sound-quality-essential-tips-for-enhanced-audio-performance-insights-by-yl-computing/"><u>Maximizing Sound Quality: Essential Tips for Enhanced Audio Performance - Insights by YL Computing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/secrets-to-finding-excellent-economic-pictures-online-for-2024/"><u>Secrets to Finding Excellent, Economic Pictures Online for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-voice-recognition-software/"><u>Top Rated Voice Recognition Software</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-walmart-bargains-in-july-2024-exclusive-saves-and-discounts-unveiled-by-zdnet/"><u>Top Walmart Bargains in July 2024: Exclusive Saves and Discounts Unveiled by ZDNet</u></a></li>
+</ul></div>
 

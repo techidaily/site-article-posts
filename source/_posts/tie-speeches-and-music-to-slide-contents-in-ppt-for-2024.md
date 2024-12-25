@@ -1,7 +1,7 @@
 ---
 title: "Tie Speeches and Music to Slide Contents in PPT for 2024"
-date: 2024-08-22T15:56:45.287Z
-updated: 2024-08-23T15:56:45.287Z
+date: 2024-12-20T20:49:19.292Z
+updated: 2024-12-25T18:59:46.867Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,10 @@ In this guide, we’ll specifically talk about the feature by which you can reco
 
 04 [How to play audio automatically in PowerPoint](#Part 4)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1 Add audio to PowerPoint
 
 Adding audio and recording audio are two different aspects yet taken synonymously. This section will explain how to add audio to PowerPoint with an easy step-by-step guide.
@@ -47,6 +51,10 @@ To your PowerPoint presentation, you can add audio, such as music, narration, or
 ##### Step1 Select Insert > Audio
 
 ![insert audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/insert-audio-ppt.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step2 Select Audio on My PC
 
@@ -74,6 +82,10 @@ NOTE: Do not include Audio under Insert and Record Audio since it doesn't synchr
 
 ![click slideshow tab ppt](https://images.wondershare.com/filmora/article-images/2022/02/click-slideshow-tab-ppt.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step3 Hit the Record Slide Show
 
 NOTE: Audio may begin getting recorded on its own if you are working on the older version of PowerPoint. It may still work, but this version offers reduced functionality.
@@ -83,6 +95,10 @@ NOTE: Audio may begin getting recorded on its own if you are working on the olde
 NOTE: You can re-record the PowerPoint slides by hitting the Record Slide Show and Selecting Record from the Current Slide.
 
 ![record from current slide ppt](https://images.wondershare.com/filmora/article-images/2022/02/record-from-current-slide-ppt.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step5 Hit the Record tab to begin recording narration
 
@@ -103,8 +119,9 @@ Select Export to confirm.
 This section will look at editing the added Audio into PowerPoint. As we've already gathered steps on adding Audio to PowerPoint and recording Audio on PowerPoint, it's time to move a step ahead into the editing panel as follows.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### I. Trim audio in PowerPoint presentation
 
 Let's suppose we've added long audio to our presentation, and we just only need it a few seconds long. So, we need to trim its audio by hitting the specific tabs.
@@ -115,54 +132,44 @@ Let's suppose we've added long audio to our presentation, and we just only need 
 
 ![trim ppt audio](https://images.wondershare.com/filmora/article-images/2022/02/trim-ppt-audio.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ##### Step3 Within the pop-up window, you need to use the red and green markers to adjust the start and endpoint of the audio
 
 ![adjust audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/adjust-audio-ppt.jpg)
 
 Hit the Play tab to preview the changes done.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### II. Fade Audio Duration in PowerPoint presentation
 
 On the same tab, you have a fade duration to adjust Fade In and Fade Out durations.
 
 ![fade audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/fade-audio-ppt.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 It wholly depends upon your preferences and requirements to fade in and fade out the audio.
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### III. Add Bookmark to the audio in PowerPoint presentation
 
 If you want to switch to a specific point in the Audio, you can add a bookmark. Step 1: Click the place you wish to the Bookmark to be in the timeline below.
 
 ![click audio timeline ppt](https://images.wondershare.com/filmora/article-images/2022/02/click-audio-timeline-ppt.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step1 Click Add Bookmark after clicking the place
 
 ![add bookmark audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/add-bookmark-audio-ppt.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4 How to play audio automatically in PowerPoint
 
 After the above modifications, you can adjust the Audio Options. Thus, you can change how the audio plays in PPT as follows.
 
 ![adjust audio options ppt](https://images.wondershare.com/filmora/article-images/2022/02/adjust-audio-options-ppt.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Then, there are options of Loop until Stopped and Rewind after Playing to adjust with.
 
 So, these were a few simple steps to Insert Audio in PowerPoint and a detailed guide on how to record a PowerPoint presentation with Audio.
@@ -176,8 +183,9 @@ Instead of doing extreme and lengthy steps, we can create a top-notch video with
 Let’s see how we can achieve this!
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Steps to add audio to PowerPoint via Wondershare Filmora
 
 #### Wondershare Filmora
@@ -188,9 +196,6 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 ![download](https://images.wondershare.com/filmora/images/filmora-box.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ##### Step1 Import audio
 
 Launch the Wondershare Filmora as the necessary primary step. Then, click the Import button below the menu bar and select Import Media Files to add the Audio.
@@ -242,8 +247,9 @@ Hit the Export button and choose the Device and Format you’d like to export it
 ![export voiceover filmora](https://images.wondershare.com/filmora/article-images/export-output.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 We feel that this way to insert Audio into PowerPoint is pretty creative than using the PowerPoint itself with the lengthy steps. After doing all the adding and recording of Audio on Wondershare Filmora, you can export the project and add its whole presentation. Thus, there's no need to add extra elements and editing tools in the PowerPoint presentation, which could be tricky for an amateur.
 
 ### Conclusion
@@ -273,4 +279,21 @@ In this guide, we’ll specifically talk about the feature by which you can reco
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-complete-guide-to-help-you-choose-the-best-hdr-cameras/"><u>[New] Complete Guide to Help You Choose the Best HDR Cameras</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-full-breakdown-dji-inspire-2-analysis/"><u>[New] Full Breakdown DJI Inspire 2 Analysis</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-handheld-gyro-stabilization-upgrade/"><u>[New] In 2024, Handheld Gyro Stabilization Upgrade</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-vector-artistry-unleashed-picks-of-the-year-for-designers/"><u>[New] Vector Artistry Unleashed Picks of the Year for Designers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-fixed-how-do-i-convert-zip-file-into-srt-file/"><u>[Updated] 2024 Approved [Fixed!] How Do I Convert Zip File Into Srt File?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-shaking-it-off-analyzing-the-efficacy-of-photostability/"><u>[Updated] 2024 Approved Shaking It Off Analyzing the Efficacy of PhotoStability</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-fundamentals-of-captivating-video-scripts/"><u>[Updated] 2024 Approved The Fundamentals of Captivating Video Scripts</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-ios-powered-streamline-for-sharing-videos-on-youtube/"><u>[Updated] IOS-Powered Streamline for Sharing Videos on YouTube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-peak-of-data-preservation-cloud-service-guide/"><u>[Updated] The Peak of Data Preservation Cloud Service Guide</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-the-art-of-film-capturing-essential-camera-movements-for-novices/"><u>2024 Approved The Art of Film Capturing Essential Camera Movements for Novices</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/from-real-to-virtual-the-science-behind-vr-for-2024/"><u>From Real to Virtual The Science Behind VR for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-do-you-remove-restricted-mode-on-apple-iphone-12-by-drfone-ios/"><u>In 2024, How Do You Remove Restricted Mode on Apple iPhone 12</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-leading-workplace-cloud-reservoirs/"><u>In 2024, Leading Workplace Cloud Reservoirs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/online-concert-for-a-click-music-and-memories/"><u>Online Concert for a Click Music and Memories</u></a></li>
+</ul></div>
 

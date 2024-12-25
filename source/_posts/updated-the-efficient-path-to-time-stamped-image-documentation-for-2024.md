@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Efficient Path to Time-Stamped Image Documentation for 2024\""
-date: 2024-12-11T01:31:46.774Z
-updated: 2024-12-16T17:10:28.786Z
+date: 2024-12-24T16:37:33.492Z
+updated: 2024-12-25T16:13:06.522Z
 tags: 
   - screen-recording
   - ai video
@@ -46,6 +46,10 @@ If you're looking for a guide to help you know how to **add dates to a photo on 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. Add Date Stamps Using Third-Party Camera Apps
 
 You can use third-party camera apps on the google play store or iOS respectively to **add dates to your photos**. To begin, head to your phone app store and search for a third-party camera app that serves this function.
@@ -55,10 +59,6 @@ One app that does this effectively is Timestamp camera free. You can **add dates
 Downloading the [Timestamp camera](https://www.timestampcameraapp.com/) is free on the google play store. Follow the steps below.
 
 ![downloading the timestamp camera](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step1Go to your phone app store: Apple Store or Play Store.
 
@@ -146,10 +146,6 @@ The Adobe Photoshop Lightroom is a cloud-based product where you can upload and 
 
 You can download the app on [android](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&gl=US)and [iPhone](https://apps.apple.com/us/app/lightroom-photo-video-editor/id878783582) for free.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **VSCO**
 
 VSCO is another editing app you can use for your photo editing. VSCO has an easy-to-use UI and many useful functions. The enormous filter library, which can be used to improve your photographs and make them shareable, is its best feature.
@@ -170,10 +166,6 @@ The app is available for [Android](https://play.google.com/store/apps/details?id
 ## Part 3\. Edit Photos and Add Date Stamps On The Computer
 
 Mac and windows have free image editing programs that allow you to copy an image from its source, paste it into the editor, crop it, resize it, and then save it. First, let's look at how to **edit a photo on a Mac.**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Use the inbuilt photo on Mac to edit the photo
 
@@ -199,6 +191,10 @@ When retouching your image in the Photos app, select the Adjust tab, then drag t
 
 ![adjust lighting and exposure](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Use inbuilt photo app on mac to add date stamps
 
 **Adding a date in a photo** can also be done on a Mac pc. Below are the steps to take to **add the date to a photo** with a Mac
@@ -208,10 +204,6 @@ Step1Click on Preview to open.
 Step2Then select Show Markup Tool.
 
 ![select show markup tool](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step3Click on the text button.
 
@@ -235,10 +227,6 @@ Step2At the top of your screen, click on Edit & Create to get.
 
 ![click on edit create to get](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-12.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3After clicking Edit, choose any option (Crop & rotate, Filters, or Adjustments)
 
 ### Add date stamps using Windows PC
@@ -252,6 +240,10 @@ Step2Select Edit & Create > Edit with Paint 3D in the upper right corner of the 
 Step3Go to the screen's top and click Text.
 
 ![click on text](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-14.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4To create a text box, click and drag.
 
@@ -286,7 +278,7 @@ Canva is a standout online photo editor where you can edit your and **add date t
 * Background image remover
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. [Fotor](https://www.fotor.com/)
@@ -358,6 +350,10 @@ But what if you miss an important date? How would you plan for this? Well, now y
 
 You can do this in two ways: With an **inbuilt photo editor** or an **external photo editor**. Let's take a look at both.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Use the inbuilt photo app on Android and iPhone to add date stamps
 
 Most phone makers do not usually have the option to superimpose a timestamp on their taken photos. However, some phones offer it.
@@ -410,6 +406,10 @@ Instasize is an app that you will find quite useful. The app was developed for i
 
 You can download the app on [Android](https://play.google.com/store/apps/details?id=com.jsdev.instasize&gl=US) and [iPhone.](https://apps.apple.com/us/app/instasize-photo-editor-video/id576649830)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Adobe Photoshop Lightroom**
 
 Another photo editing app you can find useful is Adobe Photoshop Lightroom. The app makes dozens of photo enhancement and editing products.
@@ -417,6 +417,10 @@ Another photo editing app you can find useful is Adobe Photoshop Lightroom. The 
 The Adobe Photoshop Lightroom is a cloud-based product where you can upload and edit batches of images together. Below are some of the features of Adobe Photoshop Lightroom
 
 ![adobe photoshop lightroom](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Key Features**
 
@@ -467,15 +471,15 @@ You can make your photos sharper by simply navigating to the bottom of the Modif
 
 ![sharpen your images](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step3Adjust lighting and exposure
 
 When retouching your image in the Photos app, select the Adjust tab, then drag the thumb along the Lights slider to make the necessary adjustments.
 
 ![adjust lighting and exposure](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Use inbuilt photo app on mac to add date stamps
 
@@ -494,10 +498,6 @@ Step3Click on the text button.
 Step4Proceed to add date and time into the text area manually.
 
 ![add data and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-10.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step5When ready, drag and slide the date to the area of the image where you wish to stamp it.
 
@@ -527,13 +527,13 @@ Step3Go to the screen's top and click Text.
 
 ![click on text](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-14.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4To create a text box, click and drag.
 
 ![create a text box](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-15.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step5Enter the date you want.
 
@@ -582,15 +582,15 @@ PIXLR is another great online platform that can be used to **edit pictures onlin
 
 ![pixlp](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-21.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Key features**
 
 * Photo Resizing
 * Background Remover
 * Retouching of photo
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -624,17 +624,22 @@ Hopefully, these steps will be helpful if you ever want to **add a date** or **e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-effective-method-for-personalizing-fb-page-coverage/"><u>[New] 2024 Approved Effective Method for Personalizing FB Page Coverage</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-best-slide-video-creators-for-2024/"><u>[New] Best Slide Video Creators for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-windowsmac-accessing-srt-files-for-2024/"><u>[New] Windows/Mac Accessing SRT Files for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-mastering-zoom-meetings-quickly/"><u>[Updated] 2024 Approved Mastering Zoom Meetings Quickly</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-the-art-of-testimonials-techniques-for-persuasive-video-credibility-for-2024/"><u>[Updated] The Art of Testimonials Techniques for Persuasive Video Credibility for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-unmasked-photos-simple-blur-solutions-with-piscart/"><u>[Updated] Unmasked Photos Simple Blur Solutions with PiscArt</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-master-the-art-of-converting-fb-to-mp4-720p1080p-without-paying/"><u>2024 Approved Master the Art of Converting FB to MP4, 720P/1080p, Without Paying</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-starting-with-social-giving-best-practices-for-fb-posts/"><u>2024 Approved Starting with Social Giving Best Practices for FB Posts</u></a></li>
-<li><a href="https://article-posts.techidaily.com/dynamic-games-best-flash-fueled-fun-for-phonespcs/"><u>Dynamic Games Best Flash-Fueled Fun for Phones/PCs</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-your-iphone-14-passcode-4-easy-methods-with-or-without-itunes-by-drfone-ios/"><u>In 2024, How to Unlock Your iPhone 14 Passcode 4 Easy Methods (With or Without iTunes)</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-tecno-spark-go-2023-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Tecno Spark Go (2023) Users</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/passaggi-facili-per-la-sincronizzazione-continua-di-file-e-cartelle-nas-in-windows-11/"><u>Passaggi Facili per La Sincronizzazione Continua Di File E Cartelle NAS in Windows 11</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-a-novices-vision-on-vectors-categories-explored-and-apps/"><u>[New] 2024 Approved A Novice's Vision on Vectors Categories Explored and Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-deciphering-snss-hdr-capabilities-and-comparisons-for-2024/"><u>[New] Deciphering SNS's HDR Capabilities and Comparisons for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-importing-songs-into-inshot-a-step-by-step-guide/"><u>[New] Importing Songs Into InShot A Step-by-Step Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-polarr-editor-unveiled-ultimate-visual-transformation/"><u>[New] In 2024, Polarr Editor Unveiled Ultimate Visual Transformation</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-luminous-android-video-editing-hacks/"><u>[Updated] 2024 Approved Luminous Android Video Editing Hacks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-ownership-guidelines-for-instagram-music-for-2024/"><u>[Updated] Ownership Guidelines for Instagram Music for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-ultimate-checkpoint-a-2021-review-of-vegas-pros-latest-features/"><u>[Updated] The Ultimate Checkpoint A 2021 Review of Vegas Pro's Latest Features</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-ultimate-vivacut-edit-pro-comprehensive-review-and-tutorial-2024/"><u>[Updated] Ultimate VivaCut Edit Pro Comprehensive Review & Tutorial 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unleashing-your-gopro-potential-must-have-additions-for-2024/"><u>[Updated] Unleashing Your GoPro Potential - Must-Have Additions for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-infinix-hot-40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Infinix Hot 40 | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/all-purpose-satechi-usb-c-hub-offers-multiple-ports-and-hdmi-at-150-usd-a-comprehensive-review-by-techradar/"><u>All-Purpose Satechi USB-C Hub Offers Multiple Ports & HDMI at 150 USD: A Comprehensive Review by TechRadar</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-enhanced-realities-in-wasteland-2-directors-cut-revolutionary-turn-based-rpg/"><u>Discover the Enhanced Realities in Wasteland 2 Directors Cut: Revolutionary Turn-Based RPG</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-realme-c51-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Realme C51 Activity | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-infinix-note-30-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Infinix Note 30</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-enhancing-iphone-image-clarity-and-focus/"><u>In 2024, Enhancing iPhone Image Clarity and Focus</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-dynamics-behind-tseries-youtube-earning-patterns/"><u>In 2024, The Dynamics Behind TSeries' YouTube Earning Patterns</u></a></li>
+<li><a href="https://article-posts.techidaily.com/meme-generator-zombodroid/"><u>MEME Generator Zombodroid</u></a></li>
 </ul></div>
 

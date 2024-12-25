@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Highlight Reel of 2022 Skating Stars"
-date: 2024-12-12T01:20:17.886Z
-updated: 2024-12-16T16:32:00.705Z
+date: 2024-12-23T17:27:26.736Z
+updated: 2024-12-25T20:06:24.187Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ Nathan Chen of the United States reacts to winning the gold medal at the 2022 Be
 
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
 
 ![yuma kagiyama](https://images.wondershare.com/filmora/article-images/yuma-kagiyama.jpg)
@@ -47,20 +51,20 @@ Shoma Uno of Japan won the bronze medal with a combined score of 293 points and 
 
 ![shoma uno](https://images.wondershare.com/filmora/article-images/shoma-uno.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Nathan Chen successful triumph has been four years in the making and it is a perfect combination of seven perfect skating minutes. Back at 2018 Olympics, he botched and ended with disappointment. Therefore, Olympics Games Beijing2022 has been redemption for America's best male skater.
 
 ![nathan chen best male skater](https://images.wondershare.com/filmora/article-images/nathan-chen-best-male-skater.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Even though Nathan Chen finished first for men's short program of the team event, United States could not hold to the first position and losing to ROC.
 
 ![russian olympic committee athletes](https://images.wondershare.com/filmora/article-images/russian-olympic-committee-athletes.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Russian Olympic Committee athletes won the gold medal at team event by a margin of 9 points with the combined score of 74\. United States won the silver medal with a combined score of 65 points.
@@ -68,6 +72,10 @@ Russian Olympic Committee athletes won the gold medal at team event by a margin 
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
 
 Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. Create a Video for Showing the Highlights of Figure Skating
 
@@ -89,10 +97,6 @@ Step 1: Download and install Filmora. Launch Filmora and click on New Project.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 2: Go to File > Project Settings and set the parameters as per your requirements.
 
 Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all the still photos and video footage clips you have collected about figure skating Olympics. You can trim them and maintain uniformity throughout.
@@ -100,7 +104,7 @@ Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 4: You need to add all imported media files to Video Timeline while you should add background music or voiceover to the Audio Timeline.
@@ -108,10 +112,6 @@ Step 4: You need to add all imported media files to Video Timeline while you sho
 Step 5: Select individual or multiple slides and add Transitions, Effects, Titles and Elements.
 
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -136,22 +136,16 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-ultimate-audio-experience-selecting-the-top-mics/"><u>[New] 2024 Approved Ultimate Audio Experience Selecting the Top Mics</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-digital-precision-the-art-of-perfect-online-image-trimming/"><u>[New] In 2024, Digital Precision The Art of Perfect Online Image Trimming</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-explore-best-locations-for-vr-viewing/"><u>[New] In 2024, Explore Best Locations for VR Viewing</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-mastering-social-media-the-finest-6-reel-enhancing-apps-for-2024/"><u>[New] Mastering Social Media The Finest 6 Reel-Enhancing Apps for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-navigating-to-the-leading-free-accurate-srt-translators-online/"><u>[Updated] 2024 Approved Navigating to the Leading Free, Accurate SRT Translators Online</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-navigating-the-nuances-of-simplified-live-streaming/"><u>[Updated] Navigating the Nuances of Simplified Live Streaming</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-picsart-mastery-in-depth-look-at-the-2024-version/"><u>[Updated] PicsArt Mastery In-Depth Look at the 2024 Version</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-pro-level-motion-capture-cameras-with-satellite-position-tracking/"><u>[Updated] Pro-Level Motion Capture Cameras with Satellite Position Tracking</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-unveiling-top-2023-vr-engine-innovations/"><u>[Updated] Unveiling Top 2023 VR Engine Innovations</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-infographic-review-fifa-video-gains-on-social-platforms/"><u>2024 Approved Infographic Review FIFA Video Gains on Social Platforms</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/failed-to-patch-resolving-the-windows-10-v1607-feature-update-problem/"><u>Failed to Patch: Resolving the Windows 10 v1607 Feature Update Problem</u></a></li>
-<li><a href="https://article-posts.techidaily.com/full-feature-dissection-the-sony-fdr-x1000-videographer/"><u>Full Feature Dissection - The Sony FDR-X1000 Videographer</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/full-tutorial-to-bypass-your-samsung-galaxy-z-flip-5-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Samsung Galaxy Z Flip 5 Face Lock?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-s23-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Samsung Galaxy S23 PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-your-screenplay-netflix-speed-controls/"><u>In 2024, Mastering Your Screenplay (Netflix) - Speed Controls</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/mastering-the-art-of-telegram-web-navigation/"><u>Mastering the Art of Telegram Web Navigation</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-navigating-instagrams-posting-video-count/"><u>[New] Navigating Instagram's Posting Video Count</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-boost-communication-merging-skype-and-zoom-functionality/"><u>[Updated] Boost Communication Merging Skype and Zoom Functionality</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-a-complete-guide-to-soundtracks-instagrams-legalities-explained/"><u>[Updated] In 2024, A Complete Guide To Soundtracks Instagram’s Legalities Explained</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-assemble-your-own-google-vr-viewing-device/"><u>[Updated] In 2024, Assemble Your Own Google VR Viewing Device</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-leading-15-hd-action-footage-capturers-for-2024/"><u>[Updated] Leading 15 HD Action Footage Capturers for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-no-tripod-path-to-flawless-images/"><u>In 2024, The No-Tripod Path to Flawless Images</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-cant-i-install-the-ipogo-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Why cant I install the ipogo On Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/mastering-tech-trends-with-toms-hardware-reviews-and-analysis/"><u>Mastering Tech Trends with Tom's Hardware Reviews and Analysis</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/pro-gamers-and-casters-to-subscribe-now-in-2024/"><u>Pro Gamers & Casters to Subscribe Now, In 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/securing-your-anonymity-during-instagrams-live-feature/"><u>Securing Your Anonymity During Instagram's Live Feature</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/ultimate-guide-moving-music-files-from-ios-device-to-macos-effortlessly/"><u>Ultimate Guide: Moving Music Files From iOS Device to macOS Effortlessly</u></a></li>
 </ul></div>
 

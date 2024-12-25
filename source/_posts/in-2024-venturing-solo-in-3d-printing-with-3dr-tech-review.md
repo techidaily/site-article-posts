@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Venturing Solo in 3D Printing with '3DR' Tech Review"
-date: 2024-12-12T18:50:33.424Z
-updated: 2024-12-16T22:46:54.421Z
+date: 2024-12-19T19:17:41.637Z
+updated: 2024-12-25T18:48:45.516Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ thumbnail: https://thmb.techidaily.com/5e4f2e08bc06e83ddb45587d928cf61d9245bd50e
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Pros and Cons of 3DR Solo
@@ -58,7 +58,7 @@ thumbnail: https://thmb.techidaily.com/5e4f2e08bc06e83ddb45587d928cf61d9245bd50e
  The 3DR solo drone is designed to serve with amazing aerial photography functions that is why it is one of the most preferred drones by cinematographers. One can easily connect it with GoPro cameras to get stunning shots on height. But the downside is its short battery life and weak GPS.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Complete Review
@@ -81,7 +81,7 @@ thumbnail: https://thmb.techidaily.com/5e4f2e08bc06e83ddb45587d928cf61d9245bd50e
 ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
@@ -101,7 +101,7 @@ thumbnail: https://thmb.techidaily.com/5e4f2e08bc06e83ddb45587d928cf61d9245bd50e
 ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
@@ -119,7 +119,7 @@ thumbnail: https://thmb.techidaily.com/5e4f2e08bc06e83ddb45587d928cf61d9245bd50e
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -147,18 +147,20 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-home-filmmaking-mastery-with-5-easy-diy-hacks/"><u>[New] Home Filmmaking Mastery with 5 Easy DIY Hacks</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-deep-dive-into-youtubes-latest-monetization-policy/"><u>[New] In 2024, A Deep Dive Into YouTube's Latest Monetization Policy</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-the-frame-fixer-query-solutions/"><u>[New] In 2024, The Frame Fixer Query Solutions</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-postpresence-mastering-photo-and-video-sizing-on-instagram-for-2024/"><u>[New] PostPresence Mastering Photo and Video Sizing on Instagram for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-top-mac-mkv-players-compilation-for-2024/"><u>[New] Top Mac MKV Players Compilation for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-premier-mobile-tools-for-dji-footage-enhancement-for-2024/"><u>[Updated] Premier Mobile Tools for DJi Footage Enhancement for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/beyond-gpt-detection-top-tools-to-spot-ai-in-academic-settings-for-instructors-and-supervisors/"><u>Beyond GPT Detection: Top Tools to Spot AI in Academic Settings for Instructors & Supervisors</u></a></li>
-<li><a href="https://common-error.techidaily.com/bypassing-file-explorer-hangs-tips-and-solutions-for-smoother-windows-experience/"><u>Bypassing File Explorer Hangs: Tips and Solutions for Smoother Windows Experience</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/rich-ambiance-for-video-content-for-2024/"><u>Find Rich Ambiance for Video Content for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Lava Blaze 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/how-can-i-stream-in-hd-1080p-on-facebook-for-2024/"><u>How Can I Stream in HD 1080P on Facebook for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-can-you-unlock-apple-iphone-11-after-forgetting-the-passcode-by-drfone-ios/"><u>In 2024, Can You Unlock Apple iPhone 11 After Forgetting the Passcode?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/punpixel-digital-comedy-design-tool/"><u>PunPixel Digital Comedy Design Tool</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-sea-dwellers-in-focus-tips-for-shooting-stunning-gopro-video-below-water/"><u>[New] 2024 Approved Sea Dwellers in Focus Tips for Shooting Stunning GoPro Video Below Water</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-your-files-easily-simplified-steps-for-pc-file-movement/"><u>[New] 2024 Approved Your Files, Easily Simplified Steps for PC File Movement</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-maximize-space-with-iphone-images-scaling/"><u>[New] In 2024, Maximize Space with iPhone Images Scaling</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-reflex-toolbox-bundle-for-2024/"><u>[New] Reflex Toolbox Bundle for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-time-honored-techniques-incorinastrating-classic-vhs-into-modern-cinematics/"><u>[Updated] In 2024, Time-Honored Techniques Incorinastrating Classic VHS Into Modern Cinematics</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-mastering-windows-graphics-the-top-9-tools-for-capturing-animation-gifs/"><u>[Updated] Mastering Windows Graphics The Top 9 Tools for Capturing Animation GIFs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-your-signature-starts-here-free-modifiable-logos-to-define-brands-for-2024/"><u>[Updated] Your Signature Starts Here Free, Modifiable Logos to Define Brands for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1726227823788-mp3-movavi/"><u>免費網路運作MP3編解碼器 - Movavi</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-motorola-g24-power-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Motorola G24 Power | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-lava-agni-2-5g-by-fonelab-android-recover-music/"><u>How to restore wiped music on Lava Agni 2 5G</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-oppo-a1-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Oppo A1 5G Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://article-posts.techidaily.com/introduction-to-moving-visual-content-for-2024/"><u>Introduction to Moving Visual Content for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-urdu-swiftly-with-daily-10-minute-intervals/"><u>Learn Urdu Swiftly with Daily 10-Minute Intervals</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-nokia-105-classic-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Nokia 105 Classic Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/surprise-hit-unboxing-the-ring-spotlight-cam-pro-on-sale-for-labor-day-deals-tech-review/"><u>Surprise Hit: Unboxing the Ring Spotlight Cam Pro on Sale for Labor Day Deals | Tech Review</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Your Phone's Callback Diary - iPhone Future\""
-date: 2024-12-11T02:47:47.285Z
-updated: 2024-12-16T18:04:54.893Z
+date: 2024-12-24T20:54:07.735Z
+updated: 2024-12-25T18:17:13.060Z
 tags: 
   - screen-recording
   - ai video
@@ -59,6 +59,10 @@ Go back to your phone application and call **#004#** to deactivate your voicemai
 
 ![deactivate voicemail](https://images.wondershare.com/filmora/article-images/2022/08/voicemail-recorder-on-iphone-2022-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** If you want to activate your voicemail on your iPhone again, dial this number **004#** and make a call.
@@ -76,6 +80,10 @@ To change the default voicemail greeting to custom on iPhone, follow the followi
 5. When you finish recording it, tap on the save button.
 
 ![tap on the save button](https://images.wondershare.com/filmora/article-images/2022/08/voicemail-recorder-on-iphone-2022-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Way 2\. Use other apps
 
@@ -102,17 +110,21 @@ Google Voice is also the best way to change your voicemail greeting on iOS. You 
 
 ![google voice](https://images.wondershare.com/filmora/article-images/2022/08/voicemail-recorder-on-iphone-2022-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. To record one, you can click on the record button and then the save button, then set it as an active one by clicking on the **Set as active**
 
 ![record button](https://images.wondershare.com/filmora/article-images/2022/08/voicemail-recorder-on-iphone-2022-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. To select from the existing one, you can click on the more button, which looks like three vertical dots and is next to it, and then click on the Set as active button to save your changes.
 
 ![more button](https://images.wondershare.com/filmora/article-images/2022/08/voicemail-recorder-on-iphone-2022-8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5\. How to check your voicemail on iPhone?
 
@@ -133,10 +145,6 @@ If you want to record a voicemail that has vital information or should be rememb
 2. Then click on the share option and select the **Voice Memos**, which will save it to your phone successfully.
 
 ![share option](https://images.wondershare.com/filmora/article-images/2022/08/voicemail-recorder-on-iphone-2022-10.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 7\. How to record your voicemail on iPhone?
 
@@ -159,19 +167,11 @@ Most third-party screen recording programs work similarly to the built-in screen
 
 ![ios screen recorder](https://images.wondershare.com/filmora/article-images/2022/08/voicemail-recorder-on-iphone-2022-12.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Open the iOS Screen Recorder App and select the internal audio before you play any audio clip and record.
 
 ![select the internal audio](https://images.wondershare.com/filmora/article-images/2022/08/voicemail-recorder-on-iphone-2022-13.jpg)
 
 ## FAQs about voicemails on iPhone
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. How to recover deleted voicemails?
 
@@ -180,7 +180,7 @@ You can **recover the deleted voicemails in the last 30 days**. If there are any
 ![recover deleted voicemails](https://images.wondershare.com/filmora/article-images/2022/08/voicemail-recorder-on-iphone-2022-14.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -206,7 +206,7 @@ To change the default voicemail greeting to custom on iPhone, follow the followi
 ![tap on the save button](https://images.wondershare.com/filmora/article-images/2022/08/voicemail-recorder-on-iphone-2022-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Way 2\. Use other apps
@@ -242,6 +242,10 @@ Google Voice is also the best way to change your voicemail greeting on iOS. You 
 
 ![more button](https://images.wondershare.com/filmora/article-images/2022/08/voicemail-recorder-on-iphone-2022-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5\. How to check your voicemail on iPhone?
 
 You can check your voicemail by following the steps below:
@@ -250,6 +254,10 @@ You can check your voicemail by following the steps below:
 2. You can play and listen to the voicemails of your choice. Also, there is now an advanced feature in the new versions of the iPhone from which you can read the written version of the voicemails you have received instead of hearing it. Still, it is currently available in a few regions only.
 
 ![check voicemail](https://images.wondershare.com/filmora/article-images/2022/08/voicemail-recorder-on-iphone-2022-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. You can also call someone after hearing his voicemail from the call option there and delete the voicemails you already have listened to from the delete option.
 
@@ -262,9 +270,17 @@ If you want to record a voicemail that has vital information or should be rememb
 
 ![share option](https://images.wondershare.com/filmora/article-images/2022/08/voicemail-recorder-on-iphone-2022-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 7\. How to record your voicemail on iPhone?
 
 If you want to keep other visual information, you can choose to record voicemail on your iPhone by recording the screen. Let's begin discussing it below:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Way 1\. Use built-in function
 
@@ -274,10 +290,6 @@ First, we discuss how we can do it using the built-in functions of your iPhone.
 2. Now open your voicemail and play the voice message you want to record. Click the recording button and wait 3 seconds for the beginning.
 
 ![recording button](https://images.wondershare.com/filmora/article-images/2022/08/voicemail-recorder-on-iphone-2022-11.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Way 2\. Use a third-party phone recorder
 
@@ -291,10 +303,6 @@ Most third-party screen recording programs work similarly to the built-in screen
 
 ![select the internal audio](https://images.wondershare.com/filmora/article-images/2022/08/voicemail-recorder-on-iphone-2022-13.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## FAQs about voicemails on iPhone
 
 ### 1\. How to recover deleted voicemails?
@@ -302,14 +310,6 @@ Most third-party screen recording programs work similarly to the built-in screen
 You can **recover the deleted voicemails in the last 30 days**. If there are any voicemails that you have deleted in the last 30 days and are available for recovery, it will show you a button named **Deleted Messages**. Just find the voicemail message you want to recover and click the **Undelete** button.
 
 ![recover deleted voicemails](https://images.wondershare.com/filmora/article-images/2022/08/voicemail-recorder-on-iphone-2022-14.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -343,20 +343,18 @@ Voicemails are essential for all of us nowadays as they make our communication m
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-audiophiles-ultimate-narrative-guides/"><u>[New] 2024 Approved Audiophile's Ultimate Narrative Guides</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-romantic-recitals-perfect-love-songs-for-your-proposal-moment-for-2024/"><u>[New] Romantic Recitals Perfect Love Songs for Your Proposal Moment for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-understanding-apples-audio-content-guidelines/"><u>[New] Understanding Apple’s Audio Content Guidelines</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-anonymous-artifacts-auction-2023-the-quest-for-digital-secrecy/"><u>[Updated] Anonymous Artifacts Auction-2023 The Quest for Digital Secrecy</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/bitcoin-boom-alert-matrixport-and-yl-software-predict-a-steep-climb-to-45k-in-end-of-year-rally/"><u>Bitcoin Boom Alert! Matrixport & YL Software Predict a Steep Climb to $45K in End of Year Rally.</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comparing-apples-newest-giants-iphone-15-plus-versus-pro-max/"><u>Comparing Apple's Newest Giants: IPhone 15 Plus Versus Pro Max</u></a></li>
-<li><a href="https://article-posts.techidaily.com/gamers-choice-the-best-of-the-best-4k-tvs/"><u>Gamer's Choice The Best of the Best 4K TVs</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-apple-iphone-xs-max-online-here-are-6-easy-ways-by-drfone-ios/"><u>How to Unlock Apple iPhone XS Max Online? Here are 6 Easy Ways</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-advanced-cinematography-the-leading-lenses-for-4k-production/"><u>In 2024, Advanced Cinematography The Leading Lenses for 4K Production</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-high-quality-videos-best-windows-11-tools/"><u>In 2024, High-Quality Videos Best Windows 11 Tools</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-share-on-apple-iphone-13-pro-drfone-by-drfone-ios/"><u>In 2024, How to Screen Share on Apple iPhone 13 Pro? | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-wallet-friendly-action-cam-gems-under-100-budget/"><u>In 2024, Wallet-Friendly ACTION Cam Gems Under $100 Budget</u></a></li>
-<li><a href="https://article-posts.techidaily.com/iphone-camera-savvy-image-optimization-secrets/"><u>IPhone Camera Savvy Image Optimization Secrets</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/perfect-pixels-in-a-tap-iphone-and-androids-best-skin-editors/"><u>Perfect Pixels in a Tap IPhone & Android's Best Skin Editors</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/story-1-the-misguided-filmmaker-answer-a/"><u>Story 1: The Misguided Filmmaker (Answer A)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-encompassing-views-vs-enhanced-visual-depth/"><u>[New] 2024 Approved Encompassing Views vs Enhanced Visual Depth</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-exploring-classical-works-free-for-all/"><u>[New] In 2024, Exploring Classical Works Free for All</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-navigating-gmail-and-zoom-for-productive-video-collaboration/"><u>[New] Navigating Gmail and Zoom for Productive Video Collaboration</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-balancing-core-and-supporting-visual-elements/"><u>[Updated] In 2024, Balancing Core & Supporting Visual Elements</u></a></li>
+<li><a href="https://article-posts.techidaily.com/comprehensive-manual-on-morphvox-sound-alteration-for-2024/"><u>Comprehensive Manual on MorphVOX Sound Alteration for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/essential-steps-for-running-sfc-in-windows-1087/"><u>Essential Steps for Running SFC in Windows 10/8/7</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixing-game-latency-problems-on-the-naraka-bladepoint-platform/"><u>Fixing Game Latency Problems on the Naraka Bladepoint Platform</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/is-it-possible-to-transfer-files-using-airdrop-without-enabling-bluetooth/"><u>Is It Possible to Transfer Files Using AirDrop without Enabling Bluetooth?</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-tech-for-discovering-the-latest-online-circles/"><u>Leveraging Tech for Discovering the Latest Online Circles</u></a></li>
+<li><a href="https://article-posts.techidaily.com/perfecting-iphone-x-animoji-use-with-expert-tips-for-2024/"><u>Perfecting iPhone X Animoji Use with Expert Tips for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/steinberg-mxp-driver-windows-compatible/"><u>Steinberg MXP Driver - Windows Compatible</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/techniques-for-harvesting-hd-facebook-videos-for-2024/"><u>Techniques for Harvesting HD Facebook Videos for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-anker-powercore-26800-your-new-mobile-charger-essential/"><u>The Ultimate Guide to Anker PowerCore 26800 – Your New Mobile Charger Essential</u></a></li>
 </ul></div>
 

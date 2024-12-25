@@ -1,7 +1,7 @@
 ---
 title: "\"Phone Lens Magic  Creating High Horizons\""
-date: 2024-08-27T09:22:51.742Z
-updated: 2024-08-28T09:22:51.742Z
+date: 2024-12-18T20:56:43.201Z
+updated: 2024-12-25T21:16:46.300Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/23f15d03527dcdfd4e30255dbd41a14d668e3faaf
 
  However, you will need to use a few but simple techniques to efficiently capture the vertical panoramic view. In this article, we’ll explain you how you can carry out those extraordinary views with your Android or iOS device.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to take vertical panorama photography with your respective Smartphone
 
 * [Part 1: For iPhone Users](#part1)
@@ -48,14 +52,19 @@ thumbnail: https://thmb.techidaily.com/23f15d03527dcdfd4e30255dbd41a14d668e3faaf
 
 ![](https://images.wondershare.com/filmora/article-images/iphone-panorama-mode.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * Begin to go along with the upward arrow on the screen to capture the desired vertorama.
 * Once finished and satisfied, just tap on "Done" option.
 
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### For Android users
 
  To capture vertical panorama on Android, the steps are given just below.
@@ -66,18 +75,15 @@ thumbnail: https://thmb.techidaily.com/23f15d03527dcdfd4e30255dbd41a14d668e3faaf
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * To shoot picture, keep holding the target circle on the gray dot until it vanishes.
 * Repeat the same with other dots as well. In other words, move camera towards the gray dots one by one until they get disappear.
 * Tap on "Done" when completed.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Some Beneficial Tips for shooting vertical panorama photo
 
 * Firstly, we would suggest you using a tripod when you need to take **vertical panorama on iPhone** or Android smoothly i.e. to avoid shakiness.
@@ -88,8 +94,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -113,4 +120,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-comprehensive-guide-to-digital-compositing-mastery-in-kinemaster-software/"><u>[New] Comprehensive Guide to Digital Compositing Mastery in Kinemaster Software</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-creating-a-safe-mc-habitat-plan-6/"><u>[New] In 2024, Creating a Safe MC Habitat Plan #6</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-sideways-vids-phenomenon-anomaly-or-feature-on-instagram/"><u>[New] Sideways Vids Phenomenon Anomaly or Feature on Instagram?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-steering-soft-sound-cessation-with-audacity/"><u>[New] Steering Soft Sound Cessation with Audacity</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-streamlining-post-production-with-after-effects-and-luts-for-2024/"><u>[New] Streamlining Post Production with After Effects and LUTs for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-turbocharged-triumphs-the-leading-10-srt-upgrades-for-os-x-and-windows-for-2024/"><u>[New] Turbocharged Triumphs The Leading 10 SRT Upgrades for OS X & Windows for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-captioning-for-social-video-content-from-snapchat-to-igtv/"><u>[Updated] Captioning for Social Video Content From Snapchat to IGTV</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-breaking-into-solos-creating-popular-podcasts/"><u>[Updated] In 2024, Breaking Into Solos Creating Popular Podcasts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-video-dimensions-and-story-size-the-ultimate-guide-for-perfect-posts-for-2024/"><u>[Updated] Instagram Video Dimensions & Story Size [The Ultimate Guide for Perfect Posts] for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/expert-advice-on-launching-valorant-successfully-overcoming-pc-hurdles-in-2/"><u>Expert Advice on Launching Valorant Successfully: Overcoming PC Hurdles in 2</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/finding-value-in-design-unpacking-the-similarities-between-ipad-air-and-ipad-pro-models/"><u>Finding Value in Design: Unpacking the Similarities Between iPad Air and iPad Pro Models</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-guide-to-unlock-your-xiaomi-redmi-note-12r-by-drfone-android/"><u>Full Guide to Unlock Your Xiaomi Redmi Note 12R</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-innovative-ways-to-convey-your-story-through-videos/"><u>In 2024, Innovative Ways to Convey Your Story Through Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/live-radio-transmissions-recorded-with-ease-an-experts-guide/"><u>Live Radio Transmissions Recorded with Ease An Expert's Guide</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-google-pixel-8-pro-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Google Pixel 8 Pro Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/superior-5-iphones-for-podcasting-pleasure/"><u>Superior 5 iPhones for Podcasting Pleasure</u></a></li>
+</ul></div>
 
