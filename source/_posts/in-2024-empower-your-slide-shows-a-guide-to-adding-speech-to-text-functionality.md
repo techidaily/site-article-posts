@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Empower Your Slide Shows  A Guide to Adding Speech-to-Text Functionality\""
-date: 2024-12-19T16:37:41.136Z
-updated: 2024-12-25T18:23:50.112Z
+date: 2025-01-02T20:13:18.204Z
+updated: 2025-01-04T02:12:41.039Z
 tags: 
   - screen-recording
   - ai video
@@ -31,15 +31,15 @@ Speech-to-text is not new, especially if you are used to the internet and many a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to enable speech-to-text in PowerPoint?
 
 Using speech-to-text in PowerPoint is the same principle guiding other platforms like Microsoft Words. Also, PowerPoint presentation on a windows device is similar to a Mac. However, some control and key functions differ in the two devices. The only thing you should note when you want to use the speech-to-text function is the type of device you are using. You can enable “speech-to-text” on devices like Mac, Windows, and mobile phones.
 
 Please note that “enabling speech-to-text” in PowerPoint differs from “using speech-to-text.” For example, you have to enable the speech-to-text first before you can use it. Also, how you enable speech-to-text in PowerPoint is based on the selected devices. Let's discuss enabling speech-to-text on Mac and Windows.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Enable speech-to-text on Mac**
 
@@ -54,6 +54,10 @@ Please note that “enabling speech-to-text” in PowerPoint differs from “usi
 
 Once you activate the dictation from the command button, you can use the speech-to-text feature anywhere you can type on Mac - this applies to PowerPoint. However, you may need some tweaking on PowerPoint to finally use the feature as you prepare your slides.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Enable speech-to-text on Windows**
 
 Aside from the regular Cortana speech recognition on Windows, you can use the speech-to-text feature on PowerPoint. PowerPoint supports “speech-to-text” when you use the program; however, activating the Windows device through the **built-in speech recognition** makes the process easy and effective. Some windows PC, just like Mac, lets you first activate the speech recognition function before you proceed and use it on PowerPoint.
@@ -62,31 +66,23 @@ Aside from the regular Cortana speech recognition on Windows, you can use the sp
 
 ![click on the microphone icon](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click on the search button and type **“dictation”** or “**speech services**,” and the device redirects you to settings. Here, you activate the dictation button as the Mac option explained earlier. You may also press **“windows key + H”** to start the dictation option.
 
 ![click on the search button](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How do I dictate PowerPoint for Mac?
 
 It is easy to use PowerPoint on a Mac after activating the **“dictation”** button.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Add speak to the quick access toolbar**
 
 * Sign in to the PowerPoint on your Mac device, and locate the customized **quick access toolbar.** The quick access toolbar includes **“more commands”** and other options.
 
 ![more commands and other options](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Reselect the option to “**all commands**.” The “all commands” should be enabled because they include many other commands, but you may not activate the options without selecting them.
 
@@ -97,7 +93,7 @@ It is easy to use PowerPoint on a Mac after activating the **“dictation”** b
 ![locate the speak option](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Use the speak option**
@@ -112,9 +108,17 @@ The smart engine needs to hear you clearly before interpreting the speech into t
 
 Ensure the background noise does not interrupt your speech.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Use the user dictionary**
 
 Exploit the user dictionary. Visit Settings > **Languages**, and info > **Advanced** \> Personal word reference, and you can add last names and other “unofficial” words.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to enable real-time speech-to-text translation in PowerPoint
 
@@ -135,7 +139,7 @@ Real-time display and translation are suitable for the multi-language purpose. Y
 When you activate the real-time translation on PowerPoint, the settings occur in two stages: slideshow view and presenter view. You can vary the changes based on your view (as the presenter) or what people see (slideshow view).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to make speech-to-text and translation to create PowerPoint videos
@@ -143,10 +147,6 @@ When you activate the real-time translation on PowerPoint, the settings occur in
 When you want to make perfect PPT videos, you can use Filmora's STT feature. Wondershare Filmora Speech to Text is quite different with other STT service providers. Other STT platforms/stages require you to use the application to convert speech-to-text, save, and export into other third-party software. However, Wondershare Filmora allows you to directly convert your speech-to-text on an ongoing production. For example, you can convert speech into subtitles during a video production on Wondershare Filmora.
 
 What's more, now Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription in Filmora version 13.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Top Adavantages of Filmora STT
 
@@ -159,7 +159,7 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 [Make PPT Videos](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Use Filmora STT to make PowerPoint videos translation
@@ -176,15 +176,11 @@ Click the "Speech-to-Text" icon, and it will show the parameter settings. You ca
 
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## FAQs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Does speech-to-text require the internet?**
 
@@ -211,6 +207,11 @@ Speech-to-text is an additional feature for all users. Typing is, however, the d
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -229,15 +230,22 @@ Speech-to-text is an additional feature for all users. Typing is, however, the d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-prime-narrative-design-center/"><u>[New] In 2024, Prime Narrative Design Center</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-skirting-watermarks-in-stock-photography-for-2024/"><u>[New] Skirting Watermarks in Stock Photography for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-lgs-visual-masterpiece-comprehensive-monitor-analysis/"><u>[Updated] In 2024, LG’s Visual Masterpiece Comprehensive Monitor Analysis</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-unveiling-the-top-12-low-cost-video-apps-for-devices-everywhere/"><u>[Updated] In 2024, Unveiling the Top 12 Low-Cost Video Apps for Devices Everywhere</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-music-from-xiaomi-civi-3-disney-100th-anniversary-edition-by-fonelab-android-recover-music/"><u>Possible solutions to restore deleted music from Xiaomi Civi 3 Disney 100th Anniversary Edition</u></a></li>
-<li><a href="https://article-posts.techidaily.com/quick-guide-best-ways-to-recognize-sound-in-windows-11-devices/"><u>Quick Guide Best Ways to Recognize Sound in Windows 11 Devices</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/seamless-strategy-integrating-linktree-into-your-tiktok-bio/"><u>Seamless Strategy Integrating Linktree Into Your TikTok Bio</u></a></li>
-<li><a href="https://facebook.techidaily.com/shutting-down-integrated-facebook-navigation/"><u>Shutting Down Integrated Facebook Navigation</u></a></li>
-<li><a href="https://common-error.techidaily.com/the-ultimate-troubleshooting-manual-for-dealing-with-black-screens-on-your-dell-computer/"><u>The Ultimate Troubleshooting Manual for Dealing with Black Screens on Your Dell Computer</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-elevate-edits-with-pixlr-ultimate-tips-list/"><u>[New] 2024 Approved Elevate Edits with Pixlr Ultimate Tips List</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-from-novice-to-pro-steps-in-online-streaming/"><u>[New] 2024 Approved From Novice to Pro Steps in Online Streaming</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-photographic-prose-ios-and-androids-best-caption-creators/"><u>[New] 2024 Approved Photographic Prose IOS & Android's Best Caption Creators</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-ultimate-moment-in-vr-infinity/"><u>[New] 2024 Approved Ultimate Moment in VR Infinity</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-discreetly-discovering-content-how-to-read-instagram-stories-privately-on-pcandroidios/"><u>[New] Discreetly Discovering Content How to Read Instagram Stories Privately on PC/Android/iOS</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-newbies-manual-to-vector-art-grasping-different-kinds-and-software/"><u>[New] In 2024, Newbie’s Manual to Vector Art Grasping Different Kinds & Software</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-temporaryfreeze-immediate-recording-guide/"><u>[New] In 2024, TemporaryFreeze Immediate Recording Guide</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-navigating-the-world-of-tweets-starting-fresh/"><u>[Updated] 2024 Approved Navigating the World of Tweets Starting Fresh</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-symphonic-selection-ideal-websites-for-ringtones/"><u>[Updated] 2024 Approved Symphonic Selection Ideal Websites for Ringtones</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-the-platform-face-off-going-live-with-obstwitch/"><u>[Updated] 2024 Approved The Platform Face-Off Going Live with OBS/Twitch</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-become-a-close-up-connoisseur-advanced-roleplay-tips-for-2024/"><u>[Updated] Become a Close-Up Connoisseur Advanced Roleplay Tips for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-simple-guide-to-free-video-embedding-in-articles/"><u>[Updated] In 2024, The Simple Guide to Free Video Embedding in Articles</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-lone-earbud-problem-resolution-guide/"><u>[Updated] Lone Earbud Problem Resolution Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-whats-captivating-twitter-users-the-most/"><u>2024 Approved What's Captivating Twitter Users the Most?</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/download-google-usb-driver/"><u>Download | Google USB Driver</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-nokia-c300-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Nokia C300 | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/launch-free-dvd-playback-capabilities-on-windowsmac-laptops/"><u>Launch Free DVD Playback Capabilities on Windows/Mac Laptops</u></a></li>
 </ul></div>
 

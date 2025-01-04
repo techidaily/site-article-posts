@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Directory  Varied Units in Visual Media Capture\""
-date: 2024-08-22T15:53:01.590Z
-updated: 2024-08-23T15:53:01.590Z
+date: 2024-12-30T03:28:28.778Z
+updated: 2025-01-03T16:42:11.571Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ _[Top 10 professional 360 degree cameras](https://tools.techidaily.com/wondersha
 _[What is Frame Rate](https://tools.techidaily.com/wondershare/filmora/download/)_
 _[What Is Video Format](https://tools.techidaily.com/wondershare/filmora/download/)_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1. Smartphone
 
 ![ Smartphone video camera](https://images.wondershare.com/filmora/article-images/iphone-7-plus-dual-camera.jpg)
@@ -43,34 +47,32 @@ _[What Is Video Format](https://tools.techidaily.com/wondershare/filmora/downloa
 
 ![ Consumer video camera](https://images.wondershare.com/filmora/article-images/consumer-camera-image.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Consumer video cameras refer to simple cameras designed for personal non-professional use. In most cases, these cameras are less expensive and can be bought in the range of **$200** to **$1,500** and they usually come with smaller imaging chips. The images from consumer video cameras are not as great in terms of quality as the images from a professional camera.
 
  The other characteristic of consumer cameras is that they are smaller and simpler to operate, with most of them being fully automatic. But users still have the versatility to manually adjust other settings such as exposure audio level, focus and white balance amongst others. Unlike their professional counterparts, consumer cameras don’t have extensions to allow for extra audio inputs for professional sound equipment and all of them have fixed lenses with outdated digital revolution.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 3. Pro Consumer Video Camera
 
 ![Prosumer camera](https://images.wondershare.com/filmora/article-images/prosumer-video-camera.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
  Next in the list are pro consumer video cameras. Pro consumer cameras lie in between consumer cameras and professional cameras. They are the cameras with smaller form factors than the larger cameras which are usually mounted on the shoulders for big budget TV production. However, the cameras are packed with enough features to grant professional image quality and are sufficient to do just any job.
 
  Pro consumer video cameras are also fairly expensive and the decent ones range between $1500 and $10,000 – almost a third of what you could spend for fully professional cameras like those used for big budget television works. Despite the high price range and the kind of technology utilized in the manufacture of these cameras, they still come with manual image and audio controls and most of them have external audio inputs.
 
  The other admirable thing about these cameras is that they offer bigger imaging chips, interchangeable lenses, as well as the versatility to be time code in and out in instances of multi-camera reporting. With all the features and capabilities of these cameras, it becomes really difficult to distinguish them as either pro consumer cameras or professional cameras. Perhaps the most glaring difference between the two sets of cameras is the price. For professional video cameras, you can expect to spend anywhere from $8,000 well up to the regions of $50,000 and sometimes beyond.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4. Super Chip Cameras
 
 ![Super chip video cameras](https://images.wondershare.com/filmora/article-images/super-chip-camera.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
  Yet again, there is a set of cameras in between the pro consumer cameras and the professional cameras and we prefer to call them super chip cameras. These cameras are characterized by three distinct factors below:
 
 * Super chip cameras all have imaging chips which are larger than traditional pro video cameras. The imaging chips in these cameras are two to three times bigger than those in traditional pro video cameras.
@@ -82,20 +84,17 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  These cameras have the capability to do everything that a traditional program could do, but with the added advantage of achieving the same tasks at relatively affordable rates. They are also ideal for high-end freelance broadcast work and film making.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5. DSLR Video Cameras
 
 ![DRSL video camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  DSLR (Digital Single Lens Reflex) is basically digital photo camera fitted with the ability to take high quality HD videos. The popularity of these cameras has grown in the past few years due to three outstanding characteristics below common to all DSLR cameras:
 
 * They have big imaging chips which lead to high quality images.
@@ -110,9 +109,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -136,4 +132,17 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-unlock-youtube-potential-with-tubebuddy-strategies/"><u>[New] 2024 Approved Unlock YouTube Potential with TubeBuddy Strategies</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-clearsky-top-notch-photo-background-cleaner-for-2024/"><u>[New] ClearSky Top-Notch Photo Background Cleaner for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-master-the-conversion-avi-files-become-gifs-using-filmora-software-windowsmac/"><u>[New] Master the Conversion AVI Files Become GIFs Using Filmora Software (Windows/Mac)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-skys-the-limit-with-husqvarnas-x4-drone-for-2024/"><u>[New] The Sky's the Limit with Husqvarna's X4 Drone for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-from-basic-to-bold-invest-in-excellent-cam-add-ons/"><u>[Updated] From Basic to Bold Invest in Excellent Cam Add-Ons</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-video-production-evolution-prime-lenses-for-youtube-enthusiasts/"><u>2024 Approved Video Production Evolution Prime Lenses for YouTube Enthusiasts</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-deep-dive-into-streamlining-your-google-podcast-process/"><u>A Deep Dive Into Streamlining Your Google Podcast Process</u></a></li>
+<li><a href="https://article-posts.techidaily.com/discovering-perfection-an-in-depth-look-at-lgs-4k-screen/"><u>Discovering Perfection An In-Depth Look at LG's 4K Screen</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Tecno Phantom V Fold? | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211412924-9798330278442-living-heaven-on-earth-now/"><u>Living Heaven on Earth Now | Free Book</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Ground to Greatness  Photos on a Stretch\""
-date: 2024-08-22T15:50:29.833Z
-updated: 2024-08-23T15:50:29.833Z
+date: 2024-12-27T16:54:21.674Z
+updated: 2025-01-03T18:42:27.242Z
 tags: 
   - screen-recording
   - ai video
@@ -48,14 +48,19 @@ thumbnail: https://thmb.techidaily.com/da3a565149456b725f254b5d80c3b1f1c06d74a5f
 
 ![](https://images.wondershare.com/filmora/article-images/iphone-panorama-mode.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * Begin to go along with the upward arrow on the screen to capture the desired vertorama.
 * Once finished and satisfied, just tap on "Done" option.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### For Android users
 
  To capture vertical panorama on Android, the steps are given just below.
@@ -66,8 +71,9 @@ thumbnail: https://thmb.techidaily.com/da3a565149456b725f254b5d80c3b1f1c06d74a5f
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * To shoot picture, keep holding the target circle on the gray dot until it vanishes.
@@ -75,8 +81,9 @@ thumbnail: https://thmb.techidaily.com/da3a565149456b725f254b5d80c3b1f1c06d74a5f
 * Tap on "Done" when completed.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Some Beneficial Tips for shooting vertical panorama photo
 
 * Firstly, we would suggest you using a tripod when you need to take **vertical panorama on iPhone** or Android smoothly i.e. to avoid shakiness.
@@ -87,8 +94,9 @@ thumbnail: https://thmb.techidaily.com/da3a565149456b725f254b5d80c3b1f1c06d74a5f
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -112,4 +120,23 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-revenue-breakdown-a-deep-dive-into-podcast-finances/"><u>[New] In 2024, Revenue Breakdown A Deep Dive Into Podcast Finances</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-joining-the-zoom-community-with-ease-on-an-android-device/"><u>[New] Joining the Zoom Community with Ease on an Android Device</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-open-srt-soundtrack-on-windowsmacos-for-2024/"><u>[New] Open SRT Soundtrack on Windows/macOS for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-compare-and-contrast-best-6-hdmi-monitor-models-in-detail/"><u>[Updated] Compare & Contrast Best 6 HDMI Monitor Models in Detail</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-basic-to-breakthrough-content-crafting-the-top-10-simplest-youtube-projects/"><u>[Updated] In 2024, Basic to Breakthrough Content Crafting the Top 10 Simplest YouTube Projects</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unlock-your-creative-potential-with-windows-11-movie-maker/"><u>[Updated] Unlock Your Creative Potential with Windows 11 Movie Maker</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/1-streamline-your-video-format-convert-3gpp-files-to-mov-with-movavis-free-converter/"><u>1. Streamline Your Video Format: Convert 3GPP Files to MOV with Movavi's Free Converter</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-expert-insights-on-constructing-high-quality-srt-files/"><u>In 2024, Expert Insights on Constructing High-Quality SRT Files</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-hidden-world-of-your-online-footprint-unveiling-facebooks-secrets/"><u>In 2024, The Hidden World of Your Online Footprint - Unveiling Facebook’s Secrets</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/installing-samsung-850-evo-ssd-driver-and-firmware-updates-available/"><u>Installing Samsung 850 EVO SSD: Driver and Firmware Updates Available</u></a></li>
+<li><a href="https://fake-location.techidaily.com/is-pgsharp-legal-when-you-are-playing-pokemon-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>Is pgsharp legal when you are playing pokemon On Samsung Galaxy XCover 6 Pro Tactical Edition? | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/samsung-galaxy-s23-and-iphone-14-face-off-deciding-which-smartphone-reigns-supreme-in-the-tech-world-expert-analysis-by-zdnet/"><u>Samsung Galaxy S23 and iPhone 14 Face-Off: Deciding Which Smartphone Reigns Supreme in the Tech World | Expert Analysis by ZDNet</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/splitcam-review-is-it-the-best-video-recorder-for-2024/"><u>SplitCam Review Is It The Best Video Recorder for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-beginners-pathway-to-personalizing-your-game-voice-free-in-free-fire/"><u>The Beginner's Pathway to Personalizing Your Game Voice, FREE in Free Fire</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-resolving-the-v-game-crashes-and-freezing-issues/"><u>Troubleshooting Steps: Resolving the 'V' Game Crashes and Freezing Issues</u></a></li>
+<li><a href="https://techidaily.com/updated-fix-for-persistent-problems-microsofts-solution-to-windows-10-and-11-update-bugs/"><u>Updated Fix for Persistent Problems: Microsoft's Solution to Windows 10 and 11 Update Bugs</u></a></li>
+</ul></div>
 

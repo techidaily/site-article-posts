@@ -1,7 +1,7 @@
 ---
 title: "[New] Updated Conversation Strategies for Podcast Growth"
-date: 2024-08-22T15:56:21.628Z
-updated: 2024-08-23T15:56:21.628Z
+date: 2024-12-30T21:52:19.097Z
+updated: 2025-01-03T18:44:18.403Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,10 @@ Icebreaker questions are used to begin an interview or meeting. These are person
 
 ![icebreaker questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are some icebreaker questions that you can ask to start an interview.
 
 1. Where did you grow up and make the impact on you today?
@@ -55,6 +59,10 @@ A leading question suggests a particular answer to the question that the questio
 
 ![leading questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Some leading questions that you can ask are discussed below.
 
 1. Why?
@@ -73,9 +81,6 @@ Some leading questions that you can ask are discussed below.
 14. Can you give an example?
 15. What do you suggest to our audience who are facing the same problems?
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Comparison Questions
 
 In an interview, a comparison question is one where you ask a person what he prefers between these two things. This type of question can also advance the discussion of the topic. Besides, you can get a deeper understanding of what guests think and feel about this podcast episode.
@@ -83,8 +88,9 @@ In an interview, a comparison question is one where you ask a person what he pre
 ![comparison questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 You can ask questions from the comparison questions given below.
 
 1. Can you compare and contrast standard costing and actual costing?
@@ -104,8 +110,9 @@ You can ask questions from the comparison questions given below.
 15. What do you prefer to eat, pizza or a burger?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Great Closing Questions
 
 When we move on to this type of question, typically, it's time to end the show. Closing interview questions are questions the hosts might ask at the end of the podcast to wrap things up. The following question can be asked to conclude the podcast on a happy note.
@@ -121,16 +128,14 @@ When we move on to this type of question, typically, it's time to end the show. 
 9. Where may listeners sign up for your course or purchase your products?
 10. How can listeners contact you online?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## Part 2\. What's a Good Podcast Interview Question?
 
 After discussing the 50 questions you can ask in a podcast, let's see what a good podcast interview question is. A good interview question is comfortable for the guest and engaging for the listeners, so the guest can answer the question wholeheartedly. Therefore, you need to avoid impolite and aggressive asks during podcasting. Besides, try to ask such questions that your guest is not frequently asked. It may reveal new things about him and make your podcast stand out.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3\. Tips on How To Come Up and Ask Better Questions
 
 Asking better questions on a podcast requires preparation beforehand. Here are some tips for you to come up with better questions:
@@ -146,9 +151,6 @@ You can get the best information from the person you are interviewing if you do 
 
 ![ask why](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 As an interviewer, "why" is your most powerful tool. Guests usually provide surface-level information or opinions. The follow-up question of "why" makes them go further and give deeper details. It will also help your audience understand correctly what the guest wants to say.
 
 ### What happened next?
@@ -158,6 +160,10 @@ If your guest is overwhelmed by the emotions and has stopped before completing h
 ### What were your feelings when this happened?
 
 Sometimes you want the guest to answer your questions with feelings and emotions. Making your guest answer your questions while drenched in emotions can take your podcast to the next level. Questions like "What were your feelings when this happened?" can take the guest back to the past and make him answer your question with full emotions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Mirror your guest
 
@@ -176,6 +182,10 @@ So you see how this can continue to move forward by simply mirroring your guest.
 
 The best thing you can extract from someone in a podcast is their story. If you want to pull out a story from someone, phrase it like this, "Tell me about a time when..." After this question, your job is to sit back, listen, and not interrupt the guest.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4\. Podcast Questions to Avoid Asking
 
 Avoiding asking wrong questions is as important as asking good questions. Some questions will negatively impact your podcast's quality, so avoid asking such questions. Here are some questions that you should not ask.
@@ -186,9 +196,6 @@ Avoiding asking wrong questions is as important as asking good questions. Some q
 * Similarly, avoid asking questions to which you can predict the answer will be a "no."
 * Avoid questions that might offend your guest.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 5\. Should I Send an Advance Interview Questions Podcast?
 
 Yes, you can send interview questions to guests. Therefore, they get time to prepare interesting responses. Also, they may think about their answers or type out lengthy responses. Either way, they'll feel more comfortable and help you make better content.
@@ -227,4 +234,21 @@ Consider the following when picking which of the above questions to use on your 
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-gigglegenius-log-in-for-video-adventures/"><u>[New] GiggleGenius Log In for Video Adventures</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-10-streaming-services-a-must-know/"><u>[New] Top 10 Streaming Services - A Must Know</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-mastering-3d-luts-a-comprehensive-guide/"><u>[Updated] 2024 Approved Mastering 3D LUTs A Comprehensive Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-discover-best-watermarking-apps-for-images/"><u>[Updated] Discover Best WaterMarking Apps for Images</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-screen-recorder-alternatives-in-depth-review-and-top-picks/"><u>[Updated] Screen Recorder Alternatives In-Depth Review & Top Picks</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-art-of-elegance-in-design-with-canvas-hidden-tips/"><u>2024 Approved The Art of Elegance in Design with Canva's Hidden Tips</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/canon-scanner-driver-downloads-for-window-users-free-easy-to-install-options-available-now/"><u>Canon Scanner Driver Downloads for Window Users: Free, Easy-to-Install Options Available Now</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Gionee F3 Pro | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-detailed-dissection-what-makes-obs-a-top-recorder/"><u>In 2024, Detailed Dissection What Makes OBS a Top Recorder?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-peak-resolution-unbroken-immersion/"><u>In 2024, Peak Resolution Unbroken Immersion</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-pixelpower-boost-your-phone-pics-for-free/"><u>In 2024, PixelPower Boost Your Phone Pics for Free</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-srt-journey-from-novice-to-expert/"><u>In 2024, The SRT Journey From Novice to Expert</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/m4awindows10-and-windows11/"><u>M4Aファイルの劣化なしに統合手順：Windows10 & Windows11向けガイド</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Lava Blaze Pro 5G | Dr.fone</u></a></li>
+</ul></div>
 

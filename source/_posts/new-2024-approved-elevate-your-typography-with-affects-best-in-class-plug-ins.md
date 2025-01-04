@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Elevate Your Typography with Affects' Best-in-Class Plug-Ins\""
-date: 2024-08-22T15:56:06.478Z
-updated: 2024-08-23T15:56:06.478Z
+date: 2024-12-28T20:49:39.009Z
+updated: 2025-01-03T20:46:50.367Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/c44b3c2a949ed90a1a74d6b8f5c0458cbf8a943f8
 
 Adobe After Effects remains one of the most powerful ways to edit videos. One of the main reasons users find it so useful is the ability to customize the video editing process by adding different kinds of plugins to the program. If you are looking to add unique and fancy text to the video you are working on, then these text plugins for After Effects will come in handy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## TextDelay
 
 Link: <https://www.toolfarm.com/buy/plugin%5Feverything%5Ftextdelay/>
@@ -36,6 +40,10 @@ TextExploder is an After Effects plugin that is developed by MamoWorld and it al
 
 ![text exploder plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-exploder-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## iExpressions 2
 
 Link: <https://aescripts.com/iexpressions/>
@@ -45,8 +53,13 @@ If you want to effectively use the After Effects expressions even if you are not
 ![iexpression 2 plugin](https://images.wondershare.com/filmora/article-images/2022/07/iexpression-2-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## TextBox
 
 Link: <https://aescripts.com/textbox/>
@@ -56,8 +69,9 @@ If you want to create the perfect shape behind your text, then TextBox is a good
 ![text box plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-box-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Font Manager
 
 Link: <https://aescripts.com/font-manager/>
@@ -65,6 +79,10 @@ Link: <https://aescripts.com/font-manager/>
 Font Manager is an After Effects text plugin that is useful when creating and working with animated typefaces. You can use it to create the most complex animated text graphics in just a few simple clicks. You will also find it very familiar to use as the user interface is similar to the Character Panel in After Effects.
 
 ![font manager plugin](https://images.wondershare.com/filmora/article-images/2022/07/font-manager-plugin.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Cartoon Moblur
 
@@ -74,21 +92,12 @@ This is the most ideal plugin to choose when you want to add motion trail to the
 
 ![cartoon moblur plugin](https://images.wondershare.com/filmora/article-images/2022/07/cartoon-moblur-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Shadow Studio
 
 If you are looking for shadow styles that will go very well with your project, Shadow Studio is a good plugin to get. It offers you a wide variety of shadow styles including radial, inner, soft, and long shadows. Most people find it an easier and more affordable way to add soft shadows as compared to traditional methods like raytracing. It is also quite easy to use, meaning that shadow effects that would take hours to complete can be done in a matter of minutes.
 
 ![shadow studio plugin](https://images.wondershare.com/filmora/article-images/2022/07/shadow-studio-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Texts Animation Bundle
 
 Link: <https://aedownload.com/download-texts-animation-bundle-free-videohive/>
@@ -98,8 +107,9 @@ This is a bundle of more than 80 different templates to add text effects to any 
 ![texts animation bundle plugin](https://images.wondershare.com/filmora/article-images/2022/07/texts-animation-bundle-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Artificial Intelligence Titles
 
 Link: <https://videohive.net/item/ait-artificial-intelligence-titles/22124640?s%5Frank=1>
@@ -108,9 +118,6 @@ The Artificial Intelligence Titles is an After Effects text plugin that is desig
 
 ![artificial intelligence titles plugin](https://images.wondershare.com/filmora/article-images/2022/07/artificial-intelligence-titles-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ## Text Library
 
 Link: <https://videohive.net/item/text-library-handy-text-animations/21932974>
@@ -119,9 +126,6 @@ This is another great text animation bundle with different options for just abou
 
 ![text library plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-library-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 On its own After Effects comes with so many post-production effects and features to make your project appear professional and well made. But if you would like to have a unique video production that stands head and shoulders above all others, plugins are a great way to do that. The good news is that After Effects allows for the use of plugins developed by third-party developers and some of the them like the text plugins, we have listed above can be very useful to a video’s production.
@@ -154,4 +158,26 @@ On its own After Effects comes with so many post-production effects and features
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-15-best-free-tools-for-downloading-high-fidelity-soundtracks-directly-from-youtube/"><u>[New] 2024 Approved 15 Best Free Tools for Downloading High-Fidelity Soundtracks Directly From YouTube</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-diving-deep-into-burst-mode-for-professional-photography/"><u>[New] Diving Deep Into Burst Mode for Professional Photography</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-dynamic-volume-control-tips-for-producers-for-2024/"><u>[New] Dynamic Volume Control Tips for Producers for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-masterpieces-in-editing-filmoras-loved-features/"><u>[New] Masterpieces in Editing - Filmora's Loved Features</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rofessional-strategies-for-embedding-timestamps-on-your-channel/"><u>[New] Professional Strategies for Embedding Timestamps on Your Channel</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-from-jokes-to-laughter-waves-how-to-craft-memes-on-9gag/"><u>[Updated] 2024 Approved From Jokes to Laughter Waves How to Craft Memes on 9GAG</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-ultimate-cinematic-trailer-collection/"><u>[Updated] 2024 Approved Ultimate Cinematic Trailer Collection</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-elevating-professional-skills-the-essentials-of-video-editing-on-windows-10/"><u>[Updated] In 2024, Elevating Professional Skills The Essentials of Video Editing on Windows 10</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2-is-vlc-media-player-a-secure-option-for-your-multimedia-needs/"><u>2. Is VLC Media Player a Secure Option for Your Multimedia Needs?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/digital-storytelling-unlocked-creating-memorable-slideshows-on-fb-for-2024/"><u>Digital Storytelling Unlocked Creating Memorable Slideshows on FB for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/from-amateur-to-pro-gopro-vlogging-secrets-revealed-for-2024/"><u>From Amateur to Pro Gopro Vlogging Secrets Revealed for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-high-seas-of-hertz-best-websites-for-thrones-audio-files/"><u>In 2024, High Seas of Hertz Best Websites for Thrones Audio Files</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-honor-90-pro-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Honor 90 Pro</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-miniature-melodic-maps-actors-in-audio-landscape/"><u>In 2024, Miniature Melodic Maps Actors in Audio Landscape</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-navigating-through-video-editing-landscape-with-movies-maker-on-windows-8/"><u>In 2024, Navigating Through Video Editing Landscape with Movies Maker on Windows 8</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-unlocking-team-potential-harnessing-the-power-of-snap-camera/"><u>In 2024, Unlocking Team Potential Harnessing the Power of Snap Camera</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/lenovos-new-international-release-yoga-portal-ai-with-a-compact-37l-design-and-integrated-14th-gen-intel-desktops/"><u>Lenovo's New International Release: Yoga Portal AI with a Compact 3.7L Design & Integrated 14Th Gen Intel Desktops</u></a></li>
+<li><a href="https://article-posts.techidaily.com/upgrade-to-professionalism-the-most-advanced-9-filter-techniques-for-2024/"><u>Upgrade to Professionalism The Most Advanced 9 Filter Techniques for 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/1728492817410-windows-11-ssd/"><u>Windows 11 截圖恢復至新SSD上的全面方法</u></a></li>
+</ul></div>
 

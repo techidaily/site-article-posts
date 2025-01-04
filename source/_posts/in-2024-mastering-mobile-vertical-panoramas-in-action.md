@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Mastering Mobile  Vertical Panoramas in Action\""
-date: 2024-12-21T21:52:41.279Z
-updated: 2024-12-25T16:04:49.838Z
+date: 2025-01-01T20:40:29.817Z
+updated: 2025-01-03T23:08:15.251Z
 tags: 
   - screen-recording
   - ai video
@@ -39,13 +39,17 @@ thumbnail: https://thmb.techidaily.com/97d650cd0f6e07d2facd0c86f96f609a10afc326c
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to take vertical panorama photography with your respective Smartphone
 
 * [Part 1: For iPhone Users](#part1)
 * [Part 2: For Android Users](#part2)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### For iPhone users
@@ -57,13 +61,17 @@ thumbnail: https://thmb.techidaily.com/97d650cd0f6e07d2facd0c86f96f609a10afc326c
 
 ![](https://images.wondershare.com/filmora/article-images/iphone-panorama-mode.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * Begin to go along with the upward arrow on the screen to capture the desired vertorama.
 * Once finished and satisfied, just tap on "Done" option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### For Android users
@@ -76,7 +84,7 @@ thumbnail: https://thmb.techidaily.com/97d650cd0f6e07d2facd0c86f96f609a10afc326c
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image source: mac-fusion
@@ -84,10 +92,6 @@ thumbnail: https://thmb.techidaily.com/97d650cd0f6e07d2facd0c86f96f609a10afc326c
 * To shoot picture, keep holding the target circle on the gray dot until it vanishes.
 * Repeat the same with other dots as well. In other words, move camera towards the gray dots one by one until they get disappear.
 * Tap on "Done" when completed.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Some Beneficial Tips for shooting vertical panorama photo
 
@@ -97,10 +101,6 @@ thumbnail: https://thmb.techidaily.com/97d650cd0f6e07d2facd0c86f96f609a10afc326c
 * Leaving some space is another beautiful tip especially if you are a graphic designer and want to add some text into the picture. The panorama shot will look perfectly enhanced this way.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -127,17 +127,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-6-best-nft-makers-for-artists-to-unleash-imagination/"><u>[New] 6 Best NFT Makers for Artists to Unleash Imagination</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-next-gen-ai-picture-perfection-software-for-2024/"><u>[Updated] Next-Gen AI Picture Perfection Software for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-pinnacle-playwriting-sanctuary/"><u>[Updated] Pinnacle Playwriting Sanctuary</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/instagram-live/"><u>「Instagram Liveの音声入り動画撮影ガイド:最新トリック」</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-hidden-potential-a-deep-dive-into-background-eraser-in-ps/"><u>2024 Approved Unveiling Hidden Potential A Deep Dive Into Background Eraser in PS</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/demystifying-windows-8-movie-maker-a-comprehensive-overview-for-2024/"><u>Demystifying Windows 8 Movie Maker A Comprehensive Overview for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-deciphering-digital-impositions-on-reality/"><u>In 2024, Deciphering Digital Impositions on Reality</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-oneplus-11r-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any OnePlus 11R Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/loop-repeat-and-relax-top-10-free-video-looping-services/"><u>Loop, Repeat, and Relax Top 10 Free Video Looping Services</u></a></li>
-<li><a href="https://win-answers.techidaily.com/outpost-infincy-siege-how-to-stop-your-game-from-crashing-unexpectedly/"><u>Outpost: Infincy Siege - How to Stop Your Game From Crashing Unexpectedly</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/selective-superiority-is-gemini-or-chatgptplus-best/"><u>Selective Superiority: Is Gemini or ChatGPT+ Best?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/vibrant-visuals-minimal-jitter/"><u>Vibrant Visuals, Minimal Jitter</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-complete-unpacking-of-ricohs-theta-vr-solution/"><u>[New] 2024 Approved Complete Unpacking of Ricoh's Theta VR Solution</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-conquer-color-with-pro-techniques-in-photography/"><u>[New] 2024 Approved Conquer Color with Pro Techniques in Photography</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-comprehensive-guide-to-trusted-sites-for-youtube-tones/"><u>[New] Comprehensive Guide to Trusted Sites for Youtube Tones</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-how-to-announce-your-first-social-giving-drive/"><u>[New] How to Announce Your First Social Giving Drive</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-enhance-photos-with-our-best-grid-app-list/"><u>[Updated] Enhance Photos with Our Best Grid App List</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-ideal-virtual-reality-systems-for-drones-for-2024/"><u>[Updated] Ideal Virtual Reality Systems for Drones for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/efficient-approaches-to-picture-resource-sourcing/"><u>Efficient Approaches to Picture Resource Sourcing</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/page-unavailable-404-error-unable-to-retrieve-desired-content-online/"><u>Page Unavailable (404 Error): Unable To Retrieve Desired Content Online</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/personalize-your-computer-with-this-guide-to-tweaking-windows-10s-taskbar-color/"><u>Personalize Your Computer with This Guide to Tweaking Windows 10'S Taskbar Color</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-rise-of-apples-latest-innovation-how-the-mac-studio-redefines-performance-and-style/"><u>The Rise of Apple's Latest Innovation: How the Mac Studio Redefines Performance and Style</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/timeless-tunes-selecting-high-quality-ringtones-online/"><u>Timeless Tunes Selecting High-Quality Ringtones Online</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-guide-why-cant-i-launch-age-of-empires-iv/"><u>Troubleshooting Guide: Why Can't I Launch Age of Empires IV?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1726221178641-mp3-mp4-movavi/"><u>オンラインで無料に変換!MP3 MP4 ファイル用Movavi音楽コンバーター</u></a></li>
 </ul></div>
 

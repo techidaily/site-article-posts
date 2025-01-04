@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Techniques to Rectify iPhone Photo Out-of-Focus\""
-date: 2024-12-20T21:21:41.293Z
-updated: 2024-12-25T20:16:19.145Z
+date: 2025-01-03T04:41:15.180Z
+updated: 2025-01-03T22:31:44.823Z
 tags: 
   - screen-recording
   - ai video
@@ -45,25 +45,21 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 
 ![auto focus](https://images.wondershare.com/filmora/auto-focus.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part2: Lock AE/AF
 
  As in the above tip, we explained to tap on the srceen where you wish to set the focus. However, sometimes, single tapping on the srceen isn’t sufficient. This is because if any kind of movement happens in the scene or if you move, the camera will start re-adjusting its focus which obviously you don’t want. If you seriously want to take a better picture, make sure to lock the focus on the subject in the scene. This can be done by enabling AE/AF feature and doing this will keep the focus on the subject even if anything moves in the scene. To do this, just tap and hold on the subject for a few seconds until you get to see a yellow box at the top of the srceen saying “AE/AF LOCK”. Once you notice, you can release your fingers and start having fun with picture capturing moment.
 
 ![auto focus](https://images.wondershare.com/filmora/ae-lock.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part3: Stand too close is not good
 
  If you are not getting standard iPhone focus, check if you are standing too near to the subject. Probably this is the case, and if yes, the problem of focus got the solution. Make sure to stand at least three inches apart from the subject. This is because the camera of iPhone is designed in a way that it can’t give you clear picture if it is placed too close to the subject. All in all, if you are holding your iPhone excessively close to the subject, pull it back little inches otherwise you will end up clicking a blurred photo.
 
 ![stand too close](https://images.wondershare.com/filmora/close.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part4: Upgrade iOS
 
@@ -72,11 +68,11 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 ![upgrade ios](https://images.wondershare.com/filmora/upgrade-ios.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part5: Turn off your iPhone
@@ -86,7 +82,7 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 ![turn off iphone](https://images.wondershare.com/filmora/turn-off-iphone-ios.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Final Verdict
@@ -96,6 +92,10 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
  Images come from the Internet
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -122,20 +122,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-experience-the-thrill-of-kinemaster-and-rank-10-online-alternatives-alike/"><u>[New] In 2024, Experience the Thrill of KineMaster and Rank 10 Online Alternatives Alike</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-in-depth-analysis-of-yuneecs-typhoon-h-drone-technology/"><u>[New] In 2024, In-Depth Analysis of Yuneec's Typhoon H Drone Technology</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/iny-tempo-truths-character-beats-exposed-for-2024/"><u>[New] Tiny Tempo Truths Character Beats Exposed for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-captivating-readers-with-the-top-5-engaging-book-trailers/"><u>[Updated] 2024 Approved Captivating Readers with the Top 5 Engaging Book Trailers</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-unleashing-your-financial-potential-on-snapchat/"><u>[Updated] 2024 Approved Unleashing Your Financial Potential on Snapchat</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-3-simple-free-methods-to-infuse-music-into-mobile-video-creations-on-iphones/"><u>[Updated] 3 Simple, Free Methods to Infuse Music Into Mobile Video Creations on iPhones</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-effortless-media-incorporation-youtube-to-slides-for-2024/"><u>[Updated] Effortless Media Incorporation YouTube to Slides for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-blueprinting-breathtaking-cinematic-sketches/"><u>[Updated] In 2024, Blueprinting Breathtaking Cinematic Sketches</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-enhance-video-tracking-with-our-top-rated-time-stamp-tips-for-youtube/"><u>[Updated] In 2024, Enhance Video Tracking with Our Top-Rated Time Stamp Tips for YouTube</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-revolutionize-your-views-non-xplit-applications/"><u>[Updated] In 2024, Revolutionize Your Views Non-Xplit Applications</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-recover-lost-watch-visual-preview-for-2024/"><u>[Updated] Recover Lost Watch Visual Preview for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-a-journey-to-vivid-visuals-top-11-hue-enhancement-guides/"><u>In 2024, A Journey to Vivid Visuals Top 11 Hue Enhancement Guides</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/itel-s23plus-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Itel S23+ Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/streamlining-video-content-with-effective-xml-ttml-and-srt-solutions-for-2024/"><u>Streamlining Video Content with Effective XML, TTML & SRT Solutions for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/unveiling-the-power-of-gopro-hero5-sessions/"><u>Unveiling the Power of GoPro Hero5 Sessions</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-a-viral-phenomenon-in-micro-bites-for-2024/"><u>[New] A Viral Phenomenon in Micro-Bites for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-dynamic-storytelling-in-advertising-the-snapchat-way-for-2024/"><u>[New] Dynamic Storytelling in Advertising The Snapchat Way for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-a-deep-dive-into-effective-animoji-utilization-on-iphone-x/"><u>[Updated] 2024 Approved A Deep Dive Into Effective Animoji Utilization on iPhone X</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-achieving-spotlight-submitting-on-apple-platform-for-2024/"><u>[Updated] Achieving Spotlight Submitting on Apple Platform for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-ultimate-blueprint-for-flawless-srt-construction/"><u>[Updated] The Ultimate Blueprint for Flawless SRT Construction</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlinking-from-youtube-shorts-easy-and-permanent/"><u>[Updated] Unlinking From YouTube Shorts - Easy and Permanent</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-your-instagram-memories-unchained-and-safe/"><u>2024 Approved Your Instagram Memories, Unchained & Safe</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/hp-laserjet-pro-m404n-driver-downloads-latest-version-now-available/"><u>HP LaserJet Pro M404n Driver Downloads - Latest Version Now Available!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Lava Yuva 3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/navigating-the-solo-podcast-landscape-successfully/"><u>Navigating the Solo Podcast Landscape Successfully</u></a></li>
+<li><a href="https://win-blog.techidaily.com/no-more-freezing-games-essential-tips-for-a-smooth-among-us-experience/"><u>No More Freezing Games: Essential Tips for a Smooth Among Us Experience</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/step-by-step-guide-adding-text-and-images-as-watermarks-in-pdfs-new-techniques/"><u>Step-by-Step Guide: Adding Text and Images as Watermarks in PDFs - New Techniques</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/transforming-your-home-workspace-mastering-the-ipad-pro-for-efficient-remote-working-insights/"><u>Transforming Your Home Workspace: Mastering the iPad Pro for Efficient Remote Working - Insights</u></a></li>
+<li><a href="https://article-posts.techidaily.com/windows-instant-scrutiny-a-manual-for-2024/"><u>Window's Instant Scrutiny A Manual for 2024</u></a></li>
 </ul></div>
 

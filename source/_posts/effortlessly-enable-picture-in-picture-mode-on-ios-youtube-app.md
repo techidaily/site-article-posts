@@ -1,7 +1,7 @@
 ---
 title: "Effortlessly Enable Picture In Picture Mode on iOS YouTube App"
-date: 2024-12-18T18:58:19.095Z
-updated: 2024-12-25T20:30:15.622Z
+date: 2025-01-02T06:27:02.184Z
+updated: 2025-01-03T17:59:21.977Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ After opening the video in PIP mode, you can do things around on the screen of y
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. How to enable Picture in Picture for YouTube on iPhone
@@ -44,17 +44,13 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 ![enable pip on iphone](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. If you require a **YouTube PIP** shortcut app on your device to proceed, you can download it from App Store or [the Shortcuts Gallery browser](https://shortcutsgallery.com/shortcuts/youtube-pip/) and then add it to your Shortcut Library.
 2. Open the **YouTube PIP** Shortcut and tap **Get Shortcut** on the App. You will be redirected to the shortcut application on your phone. If you don't have the shortcut application, you can download it from the App Store.
 
 ![shortcut application](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. Tap **Allow Untrusted Shortcuts** in the Shortcut Application on your device
 2. Now go to the actual YouTube App and start to play a video
@@ -64,10 +60,6 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 6. Tap on the burner that pops out. It will direct you to the actual shortcut for YouTube. And you will need to install an additional Application (Scriptable App).
 
 ![scriptable app](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. Tap on **View in App Store** on the screen that appears. This will direct you to the App Store.
 2. On the next screen that appears, download [**Scriptable App**](https://apps.apple.com/us/app/scriptable/id1405459188). Get back to the home screen and launch Scriptable App once.
@@ -89,10 +81,6 @@ To use PIP on iPhone effectively, you may sometime need to deactivate it so that
 3. Go to **“** **Settings > General Settings”**
 4. Scroll down. You will see the **Picture-in-Picture**
 5. Tap the switch button to switch it off. And there you are. You have disabled PIP for YouTube on iPhone.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3\. How to enable Picture in Picture for YouTube on Mac and iPad
 
@@ -118,6 +106,10 @@ Before you use Picture in Picture in YouTube, you require two Apps on your devic
 
 ![floating window](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### PIP on Mac
 
 On your Mac, there are two ways to get into Picture in Picture mode. You can use Control Command and Mouse together, or simply the mouse itself/touchpad. And here is how to do it with a Mouse only.
@@ -134,6 +126,14 @@ And with the Control Commands, you can get into PIP on Mac very easily in only t
 2. Press and hold on to the **Ctrl key** on your keyboard as you **left click** on the video twice, and you will be successful.
 
 ![get into pip on mac](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -169,22 +169,22 @@ Picture in Picture is a computer utility feature in the USA. It has not been lau
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-apex-workplace-data-sphere/"><u>[New] Apex Workplace Data Sphere</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-free-high-quality-srt-translation-services-1-8-for-2024/"><u>[New] Free, High-Quality SRT Translation Services – #1-#8 for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-mastering-digital-layer-combinations-at-home/"><u>[Updated] 2024 Approved Mastering Digital Layer Combinations at Home</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-foundational-handbook-to-youtube-business-success/"><u>[Updated] 2024 Approved The Foundational Handbook to YouTube Business Success</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-your-pin-library-top-5-free-downloader-software-online/"><u>[Updated] 2024 Approved Your Pin Library Top 5 Free Downloader Software Online</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-dji-phantom-3-the-pro-drone-experience-explored/"><u>[Updated] In 2024, DJI Phantom 3 The Pro Drone Experience Explored</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-pinnacle-platforms-alternatives-to-the-oldest-birdcalls/"><u>[Updated] In 2024, Pinnacle Platforms Alternatives to the Oldest Birdcalls</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-live-stream-titans-duel-comparative-exploration-of-twitch-and-youtube-for-2024/"><u>[Updated] Live-Stream Titans Duel Comparative Exploration of Twitch & YouTube for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-perfecting-obs-streams-for-direct-facebook-engagement-for-2024/"><u>[Updated] Perfecting OBS Streams for Direct Facebook Engagement for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-xiaomi-redmi-a2-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Xiaomi Redmi A2 Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/all-you-need-to-know-about-mega-greninja-for-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Samsung Galaxy M34 5G | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/exploring-the-apex-of-mobile-photography-with-ios-11/"><u>Exploring the Apex of Mobile Photography with iOS 11</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-realme-gt-3-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Realme GT 3 Face Lock?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-depth-guide-to-streaming-and-recording-webcasts-professionally/"><u>In-Depth Guide to Streaming and Recording Webcasts Professionally</u></a></li>
-<li><a href="https://article-posts.techidaily.com/laugh-labs-robotic-deadpan-devs/"><u>Laugh Labs Robotic Deadpan Devs</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/seamless-time-manipulation-for-professional-videos/"><u>Seamless Time Manipulation for Professional Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/techniques-to-rectify-non-sending-videos-on-iphones-and-android-messengers-for-2024/"><u>Techniques to Rectify Non-Sending Videos on iPhones & Android Messengers for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-ideal-techniques-for-noiseless-recording/"><u>[New] Ideal Techniques for Noiseless Recording</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-beyond-borders-blurring-techniques-for-global-audienes/"><u>[New] In 2024, Beyond Borders Blurring Techniques for Global Audienes</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-ultimate-polaroid-camplus-experience-for-action-lovers/"><u>[New] The Ultimate Polaroid Cam+ Experience for Action Lovers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-laughter-labyrayer-with-adobes-help/"><u>[Updated] 2024 Approved Laughter Labyrayer with Adobe's Help</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-digital-library-of-public-domain-game-sounds-for-2024/"><u>[Updated] Digital Library of Public Domain Game Sounds for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-haul-videography-unlocked-step-by-step-guide-for-enthusiasts-for-2024/"><u>[Updated] Haul Videography Unlocked Step-by-Step Guide for Enthusiasts for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-screen-partnerships-and-talent-licensing-for-2024/"><u>[Updated] Screen Partnerships and Talent Licensing for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-seamless-photo-insertion-into-instagram-feed-for-2024/"><u>[Updated] Seamless Photo Insertion Into Instagram Feed for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-swiftly-survey-your-windows-documentation-for-2024/"><u>[Updated] Swiftly Survey Your Windows Documentation for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-latest-samsung-bd-j5900-updated-review-2023/"><u>In 2024, Latest Samsung BD-J5900 Updated Review 2023</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-premier-guidance-leading-ringtone-artisans-iphone/"><u>In 2024, Premier Guidance Leading Ringtone Artisans iPhone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-top-rated-iphone-apps-expert-reviews-and-recommendations/"><u>In 2024, Top-Rated iPhone Apps Expert Reviews and Recommendations</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Set Your Preferred Job Location on LinkedIn App of your Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-fixing-logitech-g-pro-x-mic-issues/"><u>Troubleshooting Guide: Fixing Logitech G Pro X Mic Issues</u></a></li>
+<li><a href="https://article-posts.techidaily.com/unlimited-dji-mini-and-air-2-luts-buy-or-free/"><u>Unlimited DJI Mini & Air 2 LUTs - Buy or Free</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/unlocking-the-full-potential-of-igtv-a-step-by-step-guide/"><u>Unlocking the Full Potential of IGTV A Step-by-Step Guide</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>Will iSpoofer update On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
 </ul></div>
 

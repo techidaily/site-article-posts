@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Unlocking Advanced AR Visualization Techniques Using Custom LUTs"
-date: 2024-08-22T15:50:09.822Z
-updated: 2024-08-23T15:50:09.822Z
+date: 2024-12-30T05:44:47.849Z
+updated: 2025-01-04T00:14:56.793Z
 tags: 
   - screen-recording
   - ai video
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/4285b91a5eec460b353e6cabe3924d845457ea4dd
 ## Unlocking Advanced AR Visualization Techniques Using Custom LUTs
 
 Color LUTs (Lookup Textures) are tables of RGB color values. In Spark AR, you can use color LUTs to quickly create color gradation effects throughout the scene. Go through the article and create your color LUT effect.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. What are Luts in Spark AR used for?
 
@@ -60,17 +64,14 @@ The patch graph that renders the color gradation effect looks like this:
 * ColorLUTShader looks up the RGBA values of this texture in the Tension color LUT array and converts them to a new green color. This will change the texture and create a gradient effect.
 * Finally, the Screen Output patch renders the green color.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ## Part 3\. Free LUTs resource for Spark AR
 
 Here are the best free LUTs resources for Spark AR:
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. [Frost Zombie (Technical Showcase)](https://we.tl/t-1uj4wJKluG)
 
 Client filter pieces occasionally end up on the scrap heap. It was a poor Frost Zombie in this instance. Since this is one of my simpler filters, I felt it was okay to publish the build information. Four objects make up much of the scene: an EyeColor block, a custom canvas segmentation, a face mesh, and an emitter for the breath mist (my personal favorite). To show the layers used in generating the primary zombie texture, I also moved to Substance Painter. This is a demonstration of my methods rather than a step-by-step manual.
@@ -78,8 +79,13 @@ Client filter pieces occasionally end up on the scrap heap. It was a poor Frost 
 ![frost zombie](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Fur
 
 Here are the key building principles.
@@ -93,24 +99,25 @@ Here are the key building principles.
 
 ![fur](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Shockwave
 
 Even while using large image sequences is frequently discouraged, you can still use them to make some extremely spectacular effects! I'll explain how the screen tap computation procedure relates to texture position in this walkthrough. If you want to apply this approach and texture sequence in your projects or give it a try.
 
 ![shockwave](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. Transition Curves
 
 There are 11 distinct animation curves included with Spark AR in the Transition patch. Here is a helpful visual aid because it might be challenging to distinguish between a quartic and a quintic when working on a project. With the SDF circle doubled (to sharpen the edge) and inserted into the Patch Pack's alpha channel, the circles are likewise straightforward rectangles. Since RGB values are three times one, the object is white.
 
 ![transition curves](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Realistic Smoke
 
@@ -125,16 +132,9 @@ Given how beautifully Glitter Rain was received, I believed it would be fitting 
 ![rainbow glitter](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
+
 ### Closing Thoughts
 
 Spark AR is an amazing website for LUTs and color grading. Whether you're a new student or a seasoned pro, Spark AR Studio has all the features and capabilities you need to become a good video editor. You can download free LUTs from Spark AR and apply them to your videos. The article guides on how to use LUTs in Spark AR and how to download free LUTs. So, Spark AR is one of the best online websites for LUTs I have tried.
@@ -167,4 +167,26 @@ Spark AR is an amazing website for LUTs and color grading. Whether you're a new 
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-elevate-edits-with-pixlr-ultimate-tips-list/"><u>[New] 2024 Approved Elevate Edits with Pixlr Ultimate Tips List</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-photographic-prose-ios-and-androids-best-caption-creators/"><u>[New] 2024 Approved Photographic Prose IOS & Android's Best Caption Creators</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-advanced-techniques-for-iphone-hdr-captures/"><u>[New] Advanced Techniques for iPhone HDR Captures</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-bridging-visual-and-auditory-elements-adding-music-to-premiere-projects/"><u>[New] In 2024, Bridging Visual and Auditory Elements Adding Music to Premiere Projects</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-vmix-mover-for-apple-and-pcs/"><u>[New] In 2024, VMix Mover for Apple and PCs</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-best-of-the-rest-cutting-edge-vr-games-for-google-cardboard/"><u>[Updated] Best of the Rest Cutting-Edge VR Games for Google Cardboard</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-joyful-jokes-on-pixels-35-best-mobile-apps-for-2024/"><u>[Updated] Joyful Jokes on Pixels 35 Best Mobile Apps for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-lone-earbud-problem-resolution-guide/"><u>[Updated] Lone Earbud Problem Resolution Guide</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-reconnecting-with-iphone-x-reviving-facial-biometrics/"><u>[Updated] Reconnecting with iPhone X Reviving Facial Biometrics</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-ultimate-fix-guide-getting-your-fb-story-on-air/"><u>[Updated] The Ultimate Fix Guide Getting Your Fb Story On Air</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/boosting-sound-output-on-your-pc-a-step-by-step-guide-to-enhancing-volume-in-windows-10/"><u>Boosting Sound Output on Your PC: A Step-by-Step Guide to Enhancing Volume in Windows 10</u></a></li>
+<li><a href="https://article-posts.techidaily.com/harmonizing-scores-with-cinematic-vision-in-film-trailers-for-2024/"><u>Harmonizing Scores with Cinematic Vision in Film Trailers for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-perfecting-your-video-with-story-remix-and-windows-photos/"><u>In 2024, Perfecting Your Video with Story Remix & Windows Photos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/innovations-in-captivating-fb-ad-creation-for-2024/"><u>Innovations in Captivating FB Ad Creation for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagram-story-wizardry-secrets-revealed-for-2024/"><u>Instagram Story Wizardry Secrets Revealed for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1723005749407-origin-app-wont-load-heres-how-to-fix-it/"><u>Origin App Won't Load? Here's How to Fix It</u></a></li>
+<li><a href="https://article-posts.techidaily.com/premium-jokester-visualizer-for-2024/"><u>Premium Jokester Visualizer for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-ultimate-resource-for-building-pcs-insights-from-toms-hardware/"><u>The Ultimate Resource for Building PCs - Insights From Tom's Hardware</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/transformez-votre-fichier-snd-en-mp3-sans-frais-tapez-une-solution-avec-movavi/"><u>Transformez Votre Fichier SND en MP3 Sans Frais - Tapez Une Solution Avec Movavi</u></a></li>
+</ul></div>
 

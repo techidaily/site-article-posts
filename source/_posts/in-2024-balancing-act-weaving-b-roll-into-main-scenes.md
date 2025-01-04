@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Balancing Act  Weaving B Roll Into Main Scenes\""
-date: 2024-08-22T15:54:05.801Z
-updated: 2024-08-23T15:54:05.801Z
+date: 2025-01-03T05:04:24.624Z
+updated: 2025-01-03T23:42:44.077Z
 tags: 
   - screen-recording
   - ai video
@@ -22,6 +22,10 @@ B roll is a phrase used to describe supplemental video, which is frequently used
 
 Now that we know that, let's dive in!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. B roll In TV And Movies
 
 Broll is an acronym for "background" or "behind," respectively. It usually refers to extra footage captured with a movie camera while keeping the lighting consistent between scenes in the movie industry. When the filmmaker doesn't want to show any dialogue or action on screen but needs some movement within the frame, it might be utilized as filler.
@@ -40,41 +44,38 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. What types of b roll are there?
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Visual detail b roll footage
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. Atmospheric b roll footage
 
 When you are sharing a narrative that has been told in the past or that has historical significance, incorporating archival material into your video gives your audience the opportunity to see the story as it occurred at the time. This is especially useful when you are discussing a narrative that has been experienced in the past or that has futuristic relevance.
@@ -82,8 +83,9 @@ When you are sharing a narrative that has been told in the past or that has hist
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 6\. Pick-up shots
 
 A pick-up is a tiny shot added to previously captured material. Re-shoots involve redoing entire scenes. Both types of shots are commonly added during film editing to fix, logic, continuity, or quality flaws. These photos happen a while after the sets have been taken down, clothes and props stowed, and the actors and crew have gone on to new projects.
@@ -126,4 +128,26 @@ We sincerely hope that this post will be of use to you in making your films more
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-aggregating-users-experiences-with-vllo/"><u>[New] Aggregating Users' Experiences with VLLO</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ssential-free-online-music-libraries-15-picks-for-2024/"><u>[New] Essential Free Online Music Libraries 15 Picks for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-ten-practical-ways-to-prevent-vr-sickness/"><u>[New] In 2024, Ten Practical Ways to Prevent VR Sickness</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-navigating-through-tech-barriers-record-any-youtube-live-with-ease/"><u>[New] Navigating Through Tech Barriers Record Any YouTube Live with Ease</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-techniques-of-composing-persuasive-content-in-vlogging/"><u>[New] Techniques of Composing Persuasive Content in Vlogging</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unlock-new-potentials-iphone-x-secrets-unveiled-for-2024/"><u>[New] Unlock New Potentials IPhone X Secrets Unveiled for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-discover-the-world-from-above-xiaomis-4k-flight-diary/"><u>[Updated] 2024 Approved Discover the World From Above - Xiaomi's 4K Flight Diary</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-quick-guide-activatingdeactivating-picture-in-picture-pip-for-youtube/"><u>[Updated] 2024 Approved Quick Guide Activating/Deactivating Picture In Picture (PIP) for YouTube</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-fixing-iphone-x-overcoming-face-id-malfunction-for-2024/"><u>[Updated] Fixing iPhone X Overcoming Face ID Malfunction for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-innovative-video-marketing-youtube-trailers-with-filmora/"><u>[Updated] Innovative Video Marketing YouTube Trailers with Filmora</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-timeless-telephony-a-compilation-of-calls/"><u>[Updated] Timeless Telephony A Compilation of Calls</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-visualvault-review-highlighting-the-best-recording-tools/"><u>[Updated] VisualVault Review Highlighting the Best Recording Tools</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/can-you-stream-av1-format-on-plex-platforms-unveiling-compatibility-details/"><u>Can You Stream AV1 Format on Plex Platforms? Unveiling Compatibility Details.</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/hdr-mastery-essential-steps-for-sdr-to-hdr-upconversion/"><u>HDR Mastery Essential Steps for SDR-to-HDR Upconversion</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-achieving-the-pinnacle-of-color-accuracy-in-11-crucial-edits/"><u>In 2024, Achieving the Pinnacle of Color Accuracy in 11 Crucial Edits</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-action-packed-snapshots-the-bold-polaroid-xs-100i-review/"><u>In 2024, Action-Packed Snapshots The Bold Polaroid XS 100I Review</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-from-your-apple-iphone-se-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code From your Apple iPhone SE</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-perplexing-case-of-unexpected-video-aspects-in-instagram-for-2024/"><u>The Perplexing Case of Unexpected Video Aspects in Instagram for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/unlocking-youtube-potential-with-best-thumbnail-dimensions-for-2024/"><u>Unlocking YouTube Potential with Best Thumbnail Dimensions for 2024</u></a></li>
+</ul></div>
 

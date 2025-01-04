@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Time Tamed on Film  Easy Steps for Slow-Mo Video Using Photo Apps\""
-date: 2024-12-18T18:12:00.893Z
-updated: 2024-12-25T21:39:47.818Z
+date: 2024-12-29T00:27:19.481Z
+updated: 2025-01-04T01:13:58.128Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ While the [Photos app in Windows 10](https://www.microsoft.com/en-us/p/microsoft
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1：How to Use Slow Motion in Windows 10
 
 There is no need to spend hundreds of dollars on a video program if you need to perform some basic editing and effects on your videos. For instance, you can add the slow motion effect using the Photos app that comes pre-installed on Windows 10 computers.
@@ -45,11 +49,11 @@ Navigate to the folder where your video file is located and right click on it. Y
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/slow-motion-photos-app.jpg)
 
-If you do not see the option anywhere on your Photos app, there is a chance you are running an outdated version of Windows 10 on your computer. All you need to do is navigate to Windows Update through your system menu. When all the updates install, you will have the latest Photos app with this feature.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+If you do not see the option anywhere on your Photos app, there is a chance you are running an outdated version of Windows 10 on your computer. All you need to do is navigate to Windows Update through your system menu. When all the updates install, you will have the latest Photos app with this feature.
 
 ## Part 2：Customizing the Slow Motion Effect
 
@@ -60,6 +64,10 @@ There is also the handy option of being able to select the portion of your video
 Now you can select the beginning and end point using the bottom slider on the Photos app. Choose the precise starting and ending of the slow motion effect, and then watch through your video to ensure it is exactly as you want.
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/make-slow-motion-microsoft-photos.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 We recommend that you save your video file under a new name when you are done making your desired changes. It ensures that you still have the original copy of the video saved on your computer or external hard drive.
 
@@ -72,7 +80,7 @@ You can even create multiple versions of the file with the slow motion effect ap
 If you are not able to access a Windows computer, you may want a solution that can be used online. The good news is that you can use some [online video speed changers](https://tools.techidaily.com/wondershare/filmora/download/)to add a slow motion effect to your content.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### [EZGif](https://ezgif.com/video-speed)
@@ -87,19 +95,11 @@ Click on the “upload video” button so that it can be added into the database
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/ezgif-change-videos-speed-import.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Output**
 
 The program will let you adjust the video speed to your liking. Then you will get a URL for the output video, which will have been slowed down according to your settings. There is even an option to keep the audio track at the same speed, but you can slow down the audio at the same rate as the video if you want.
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/change-video-speed-ezgif-edit.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -108,7 +108,7 @@ Now that you have understood how to add the effect of slow motion in Windows 10 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -136,17 +136,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-navigating-auto-captioned-content-in-social-media-visuals/"><u>[New] 2024 Approved Navigating Auto-Captioned Content in Social Media Visuals</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-proven-strategies-for-implementing-visual-enhancements-in-media/"><u>[New] 2024 Approved Proven Strategies for Implementing Visual Enhancements in Media</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-top-pick-for-extreme-sports-footage-black-gopro-or-x1000v/"><u>[New] 2024 Approved Top Pick for Extreme Sports Footage Black GoPro or X1000V?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-conveniently-enjoy-nba-games-top-15-streaming-methods/"><u>[New] Conveniently Enjoy NBA Games - Top 15 Streaming Methods</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ssential-insights-how-to-choose-among-the-top-9-free-youtube-makers/"><u>[New] Essential Insights How to Choose Among the Top 9 Free YouTube Makers</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-casino-contestant-commentary/"><u>[New] In 2024, CASINO CONTESTANT COMMENTARY</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-wave-riders-picks-premium-action-cameras-2023/"><u>[New] Wave Riders’ Picks Premium Action Cameras 2023</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Oppo A79 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-is-monetization-a-feature-in-review-blogs/"><u>In 2024, Is Monetization a Feature in Review Blogs?</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-from-iphone-8-by-drfone-ios/"><u>In 2024, Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives From iPhone 8</u></a></li>
-<li><a href="https://article-posts.techidaily.com/mastering-the-art-of-capturing-dynamic-images-on-ios-devices-for-2024/"><u>Mastering the Art of Capturing Dynamic Images on iOS Devices for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-exploring-browsing-anomalies-where-are-my-fb-video-suggestions/"><u>[New] 2024 Approved Exploring Browsing Anomalies Where Are My FB Video Suggestions?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-watch-list-to-download-youtube-playlist-in-minutes/"><u>[New] 2024 Approved From Watch List to Download YouTube Playlist in Minutes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-unveiling-effective-methods-to-end-w10-photo-app-freezes/"><u>[New] 2024 Approved Unveiling Effective Methods to End W10 Photo App Freezes</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-top-6-video-tactics-for-captivating-audiences/"><u>[New] In 2024, Top 6 Video Tactics for Captivating Audiences</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-open-srt-soundtrack-on-windowsmacos-for-2024/"><u>[New] Open SRT Soundtrack on Windows/macOS for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-capturing-motion-with-gopro-time-lapse-techniques/"><u>[Updated] Capturing Motion with GoPro Time-Lapse Techniques</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-iphone-filmmaking-made-simple-learn-three-free-ways-to-add-audio-to-clips/"><u>[Updated] In 2024, IPhone Filmmaking Made Simple – Learn Three Free Ways to Add Audio to Clips</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-nano-drones-review-markets-finest-ten/"><u>[Updated] In 2024, Nano Drones Review Market's Finest Ten</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-talkative-transformations-infusing-your-stories-with-motion/"><u>[Updated] Talkative Transformations Infusing Your Stories with Motion</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-complete-guide-to-toolwiz-photography-software/"><u>2024 Approved Complete Guide to Toolwiz Photography Software</u></a></li>
+<li><a href="https://win11.techidaily.com/7-key-steps-to-restore-your-usb-wi-fi-on-a-pc/"><u>7 Key Steps to Restore Your USB Wi-Fi On a PC</u></a></li>
+<li><a href="https://fox-access.techidaily.com/augmented-reality-explained-simply-for-2024/"><u>Augmented Reality Explained Simply for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-pairing-your-bluetooth-speaker-with-your-pc/"><u>Step-by-Step Guide: Pairing Your Bluetooth Speaker with Your PC</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-beginners-pathway-to-personalizing-your-game-voice-free-in-free-fire/"><u>The Beginner's Pathway to Personalizing Your Game Voice, FREE in Free Fire</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/understanding-the-inner-workings-of-antivirus-programs-the-science-behind-virus-detection-and-defense-tactics/"><u>Understanding the Inner Workings of Antivirus Programs: The Science Behind Virus Detection and Defense Tactics</u></a></li>
 </ul></div>
 

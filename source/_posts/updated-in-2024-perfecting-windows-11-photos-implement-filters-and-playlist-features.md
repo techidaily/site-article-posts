@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Perfecting Windows 11 Photos  Implement Filters and Playlist Features\""
-date: 2024-08-22T15:53:21.575Z
-updated: 2024-08-23T15:53:21.575Z
+date: 2025-01-02T16:57:43.956Z
+updated: 2025-01-04T04:51:17.171Z
 tags: 
   - screen-recording
   - ai video
@@ -45,13 +45,25 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Just select one you like. Preview it and then click Done.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
 
@@ -69,20 +81,22 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Hit the ‘Done’ button.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -106,4 +120,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-capture-and-share-immedienas-unprecedented-journey-with-dslr-and-facebook-live-for-2024/"><u>[New] Capture and Share Immedienas Unprecedented Journey with DSLR & Facebook LIVE for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-comprehensive-guide-to-trusted-sites-for-youtube-tones/"><u>[New] Comprehensive Guide to Trusted Sites for Youtube Tones</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-how-to-announce-your-first-social-giving-drive/"><u>[New] How to Announce Your First Social Giving Drive</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-how-to-craft-viral-unboxing-content-on-social-media/"><u>[Updated] 2024 Approved How to Craft Viral Unboxing Content on Social Media</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-4k-innovation-top-10-mac-compatible-displays/"><u>2024 Approved 4K Innovation Top 10 Mac-Compatible Displays</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722607412991-audible-advantages-subscribe-and-find-out-today/"><u>Audible Advantages: Subscribe and Find Out Today!</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-from-novice-to-specialist-a-step-by-step-journey-through-adobe-ps-background-removal-techniques/"><u>In 2024, From Novice to Specialist A Step-by-Step Journey Through Adobe PS Background Removal Techniques</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-hide-and-stream-avoiding-the-spotlight-on-instagram/"><u>In 2024, Hide and Stream Avoiding the Spotlight on Instagram</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-shooting-in-the-dark-elevating-iphone-photos-with-shadows/"><u>In 2024, Shooting in the Dark Elevating iPhone Photos with Shadows</u></a></li>
+<li><a href="https://article-posts.techidaily.com/mastering-hdr-portraiture-an-ultimate-guide/"><u>Mastering HDR Portraiture An Ultimate Guide</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-the-hurdle-fixing-frozen-grammarly-app/"><u>Overcoming the Hurdle: Fixing Frozen Grammarly App</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-7-data-from-ios-itunes-backup-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone 7 Data From iOS iTunes Backup | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/streamline-your-system-the-best-windows-software-to-ditch/"><u>Streamline Your System: The Best Windows Software to Ditch</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/tailored-instagram-filters-a-step-by-step-process/"><u>Tailored Instagram Filters A Step-by-Step Process</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/the-ultimate-drone-marathoners-list-top-10/"><u>The Ultimate Drone Marathoners List (Top 10)</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unexpected-discovery-assessing-the-condition-of-your-apple-watchs-battery-life-insights/"><u>Unexpected Discovery: Assessing the Condition of Your Apple Watch's Battery Life - Insights</u></a></li>
+</ul></div>
 

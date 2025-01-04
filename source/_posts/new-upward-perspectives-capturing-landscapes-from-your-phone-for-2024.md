@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Upward Perspectives  Capturing Landscapes From Your Phone for 2024\""
-date: 2024-08-22T15:49:48.825Z
-updated: 2024-08-23T15:49:48.825Z
+date: 2024-12-30T03:12:47.009Z
+updated: 2025-01-03T18:30:22.879Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/ca553c30ee84db192e99fa5840738c6a29a319bf3
 * [Part 1: For iPhone Users](#part1)
 * [Part 2: For Android Users](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### For iPhone users
 
  The iPhone users can follow the steps given below to execute vertorama.
@@ -54,8 +58,9 @@ thumbnail: https://thmb.techidaily.com/ca553c30ee84db192e99fa5840738c6a29a319bf3
 * Once finished and satisfied, just tap on "Done" option.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### For Android users
 
  To capture vertical panorama on Android, the steps are given just below.
@@ -66,8 +71,9 @@ thumbnail: https://thmb.techidaily.com/ca553c30ee84db192e99fa5840738c6a29a319bf3
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * To shoot picture, keep holding the target circle on the gray dot until it vanishes.
@@ -75,8 +81,9 @@ thumbnail: https://thmb.techidaily.com/ca553c30ee84db192e99fa5840738c6a29a319bf3
 * Tap on "Done" when completed.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Some Beneficial Tips for shooting vertical panorama photo
 
 * Firstly, we would suggest you using a tripod when you need to take **vertical panorama on iPhone** or Android smoothly i.e. to avoid shakiness.
@@ -87,8 +94,9 @@ thumbnail: https://thmb.techidaily.com/ca553c30ee84db192e99fa5840738c6a29a319bf3
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -112,4 +120,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-straightforward-screen-capture-app-win10-edition/"><u>[New] 2024 Approved Straightforward Screen Capture App, Win10 Edition</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-8-best-popular-instagram-after-effects-templates/"><u>[New] In 2024, 8 Best Popular Instagram After Effects Templates</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-apples-tunes-in-the-frame-of-reality/"><u>[New] In 2024, Apple's Tunes in the Frame of Reality</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-beginning-your-first-fb-giveaway-announcement/"><u>[New] In 2024, Beginning Your First FB Giveaway Announcement</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-smooth-transition-altering-snapchat-videos-tempo-for-2024/"><u>[New] Smooth Transition Altering Snapchat Videos' Tempo for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-seamless-shift-your-path-to-kinemaster-expertise/"><u>[New] The Seamless Shift Your Path to Kinemaster Expertise</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-become-a-viral-sensation-key-strategies-for-popular-tiktok-unpacks/"><u>[Updated] Become a Viral Sensation Key Strategies for Popular TikTok Unpacks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-professional-tips-ensuring-correct-date-on-pictures-for-2024/"><u>[Updated] Professional Tips Ensuring Correct Date on Pictures for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-skyrocket-engagement-20-video-tricks-for-maximum-impact-for-2024/"><u>[Updated] Skyrocket Engagement 20 Video Tricks for Maximum Impact for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-photo-pace-crafting-time-lapse-videos-on-your-galaxy-phone/"><u>2024 Approved Photo Pace Crafting Time-Lapse Videos on Your Galaxy Phone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/fixing-critical-boot-problems-a-comprehensive-walkthrough-of-ntldr-missing-errors/"><u>Fixing Critical Boot Problems: A Comprehensive Walkthrough of NTLDR Missing Errors</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-honor-x9b-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Honor X9b to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-vivo-x100-frp-by-drfone-android/"><u>How Can We Bypass Vivo X100 FRP?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-discovering-the-ultimate-mobile-photo-experience-ios-11/"><u>In 2024, Discovering the Ultimate Mobile Photo Experience IOS 11</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-movie-magic-on-mobile-ioss-best-free-and-paid-film-apps/"><u>In 2024, Movie Magic on Mobile IOS's Best Free and Paid Film Apps</u></a></li>
+</ul></div>
 
