@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Incorporating Secondary Footage  A Filmmaker's Guide for 2024\""
-date: 2024-12-29T06:14:27.526Z
-updated: 2025-01-03T16:05:08.471Z
+date: 2025-01-03T19:03:54.382Z
+updated: 2025-01-10T19:48:02.917Z
 tags: 
   - screen-recording
   - ai video
@@ -37,10 +37,6 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Methods to use b roll
 
 Now that there are so many stock footage platforms, you have a lot of choices when you need just the right scene for your project. Most of the time, filmmakers don't use B roll footage. One good way to use it is to use it as a way to move from one scene to the next. It can also be used to set the mood for an event or show what time of day it is when filming.
@@ -49,21 +45,21 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. What types of b roll are there?
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Visual detail b roll footage
 
@@ -72,6 +68,10 @@ Including archival material in your video allows your audience to experience a p
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Undirected b roll footage
 
@@ -84,7 +84,7 @@ When you are sharing a narrative that has been told in the past or that has hist
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
@@ -98,7 +98,7 @@ If flaws were discovered during primary photography, the directors could have re
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -135,16 +135,18 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/updated-cartoonkingdom-comprehensive-24-guide/"><u>[Updated] CartoonKingdom Comprehensive '24 Guide</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-dynamic-dimensions-unleashing-the-power-of-high-dynamic-range-for-2024/"><u>[Updated] Dynamic Dimensions Unleashing the Power of High Dynamic Range for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-mastering-script-structuring/"><u>[Updated] In 2024, Mastering Script Structuring</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-the-intersection-of-film-and-immersive-vr-realities/"><u>[Updated] The Intersection of Film & Immersive VR Realities</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/efficiently-storing-instagram-reels-two-simplified-techniques/"><u>Efficiently Storing Instagram Reels Two Simplified Techniques</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-sign-out-of-apple-id-from-apple-iphone-6s-without-password-by-drfone-ios/"><u>How to Sign Out of Apple ID From Apple iPhone 6s without Password?</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-iphone-12-mini-backup-password-heres-what-to-do-drfone-by-drfone-ios/"><u>In 2024, Forgot iPhone 12 mini Backup Password? Heres What to Do | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/save-big-on-the-newest-echo-show-8-exclusive-30-labor-day-discount-from-zdnet/"><u>Save Big on the Newest Echo Show 8 - Exclusive 30% Labor Day Discount From ZDNet</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/stellar-photo-repair-suite-enhance-your-images-with-the-windows-compatible-standard-version/"><u>Stellar Photo Repair Suite: Enhance Your Images with the Windows-Compatible Standard Version</u></a></li>
-<li><a href="https://blog-min.techidaily.com/step-by-step-guide-transferring-data-from-your-iphone-to-a-mac-without-using-itunes-or-icloud/"><u>Step-by-Step Guide: Transferring Data From Your iPhone to a Mac Without Using iTunes or iCloud</u></a></li>
-<li><a href="https://article-posts.techidaily.com/top-30-whatsapp-biographies-for-every-astrology-follower-for-2024/"><u>Top 30 WhatsApp Biographies for Every Astrology Follower for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-precision-in-reducing-image-size-the-essential-guide-to-thumbnails-for-2024/"><u>[New] Precision in Reducing Image Size The Essential Guide to Thumbnails for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unraveling-the-mystery-of-phantoms-velocity-inversion-for-2024/"><u>[New] Unraveling the Mystery of Phantom's Velocity Inversion for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-from-beats-to-broadcast-a-compreesive-guide-to-editing-your-podcast/"><u>[Updated] 2024 Approved From Beats to Broadcast A Compreesive Guide to Editing Your Podcast</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-lgs-virtual-frontier-a-comprehensive-vr-review/"><u>[Updated] 2024 Approved LG's Virtual Frontier A Comprehensive VR Review</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-cutting-edge-techniques-for-game-capture-specialists/"><u>[Updated] Cutting-Edge Techniques for Game Capture Specialists</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-crafting-memes-the-ultimate-guide-to-gif-creation/"><u>[Updated] In 2024, Crafting Memes The Ultimate Guide to GIF Creation</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-direct-transfer-of-pc-media-files-to-iphone/"><u>[Updated] In 2024, Direct Transfer of PC Media Files to iPhone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-softening-playlist-sounds-on-pcmac-systems/"><u>[Updated] In 2024, Softening Playlist Sounds on PC/Mac Systems</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-art-of-connecting-a-deep-dive-into-instagram-live/"><u>[Updated] The Art of Connecting A Deep Dive Into Instagram Live</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211013582-9781644119228-coma-and-near-death-experience/"><u>Coma and Near-Death Experience | Free Book</u></a></li>
+<li><a href="https://article-posts.techidaily.com/elevating-speech-synthesis-converting-ssaxml-to-professional-srts/"><u>Elevating Speech Synthesis Converting SSA/XML to Professional SRTs</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-network-locked-honor-magic-5-phone-by-drfone-android/"><u>How to Unlock a Network Locked Honor Magic 5 Phone?</u></a></li>
+<li><a href="https://driver-error.techidaily.com/unblock-wi-fi-on-dell-workstation/"><u>Unblock Wi-Fi on Dell Workstation</u></a></li>
 </ul></div>
 

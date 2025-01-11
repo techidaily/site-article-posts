@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Essential Techniques to Avert Windows 11 Photos Crashes"
-date: 2025-01-02T05:36:17.932Z
-updated: 2025-01-03T22:33:34.293Z
+date: 2025-01-05T21:29:18.338Z
+updated: 2025-01-11T00:34:31.720Z
 tags: 
   - screen-recording
   - ai video
@@ -45,14 +45,10 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to fix Windows 10 Photos app crashes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
@@ -69,6 +65,10 @@ Here is how to troubleshoot –
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Solution 2: Restore Default Libraries
 
 Restoring the default libraries would resolve the Windows 10 Photos App crash issues. Resetting the Photo App to its default source to a valid network, path fixes the case.
@@ -80,11 +80,11 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -107,10 +107,6 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -122,6 +118,10 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
@@ -131,7 +131,7 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -159,22 +159,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-essential-convertor-list-best-5-online-gif-to-video-apps/"><u>[New] 2024 Approved Essential Convertor List Best 5 Online GIF to Video Apps</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-the-insiders-blueprint-for-commanding-attention-with-posts/"><u>[New] In 2024, The Insider's Blueprint for Commanding Attention with Posts</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-innovating-audio-visuals-podcast-covers-explained/"><u>[New] Innovating Audio Visuals Podcast Covers Explained</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-breaking-into-the-top-1m-youtube-view-hacks-revealed/"><u>[Updated] 2024 Approved Breaking Into the Top 1M YouTube View Hacks Revealed</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-premiere-audio-to-text-converters/"><u>[Updated] 2024 Approved Premiere Audio-To-Text Converters</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-drones-unleashed-advanced-editing-for-ultimate-visuals/"><u>[Updated] In 2024, Drones Unleashed Advanced Editing For Ultimate Visuals</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-key-approaches-to-convert-youtube-videos-to-mp4-for-2024/"><u>[Updated] Key Approaches to Convert YouTube Videos to MP4 for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-mastering-video-introduction-on-ios-and-android-devices/"><u>[Updated] Mastering Video Introduction on iOS & Android Devices</u></a></li>
-<li><a href="https://discover-help.techidaily.com/best-free-methods-how-to-change-mp4-videos-into-ogg-format-across-all-platforms/"><u>Best FREE Methods: How to Change MP4 Videos Into OGG Format Across All Platforms</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/exploring-the-role-of-generative-ai-in-propagating-fake-news-what-we-need-to-know/"><u>Exploring the Role of Generative AI in Propagating Fake News: What We Need to Know</u></a></li>
-<li><a href="https://win-excellent.techidaily.com/how-to-roll-back-windows-updates-with-system-restore-for-windows-10-and-11-four-techniques/"><u>How to Roll Back Windows Updates with System Restore for Windows 10 and 11 (Four Techniques)</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-enhancing-package-revelation-7-ways/"><u>In 2024, Enhancing Package Revelation 7 Ways</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-hdr-reality-check-does-aurora-meet-expectations/"><u>In 2024, HDR Reality Check Does Aurora Meet Expectations?</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-oneplus-nord-n30-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on OnePlus Nord N30 5G FRP Bypass</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ating-with-structured-content-on-youtube-for-2024/"><u>Innovating with Structured Content on YouTube for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/passfab-iphone-xr-backup-unlocker-top-4-alternatives-drfone-by-drfone-ios/"><u>PassFab iPhone XR Backup Unlocker Top 4 Alternatives | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-vivo-y100t-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Vivo Y100t Location | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-leading-laughter-photo-maker/"><u>[New] 2024 Approved Leading Laughter Photo Maker</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-grasping-the-nuances-in-youtube-viewer-reactions/"><u>[New] In 2024, Grasping the Nuances in YouTube Viewer Reactions</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-time-efficient-a-comprehensive-guide-to-srt-to-txt-switching/"><u>[Updated] In 2024, Time Efficient A Comprehensive Guide to SRT to TXT Switching</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-vivo-v30-pro-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Vivo V30 Pro without App | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/crucial-factors-in-choosing-the-apeman-c450-a-top-budget-dashcam-revealed/"><u>Crucial Factors in Choosing the Apeman C450 - A Top Budget Dashcam Revealed</u></a></li>
+<li><a href="https://article-posts.techidaily.com/explore-the-best-free-image-layers-and-enhancers-on-iosandroid-for-2024/"><u>Explore the Best, FREE Image Layers & Enhancers on iOS/Android for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-elevating-your-creations-with-tiktok-tricks/"><u>In 2024, Elevating Your Creations with TikTok Tricks</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-12-prominent-tecno-spark-go-2024-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Tecno Spark Go (2024) Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/innovative-strategies-for-chatgpt-assisted-poetry-books/"><u>Innovative Strategies for ChatGPT-Assisted Poetry Books</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/preserving-personal-files-a-guide-to-securely-refreshing-your-windows-11-system-with-two-strategies/"><u>Preserving Personal Files: A Guide to Securely Refreshing Your Windows 11 System with Two Strategies</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/solutiones-facil-per-superar-la-pantalla-de-benvinguda-que-sactiva-en-windows-7-5-opcions/"><u>Solutiones Fàcil per Superar La Pantalla De Benvinguda Que S'Activa en Windows 7 - 5 Opcions</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721475217227-trouble-with-aol-on-your-phone-heres-how-you-can-get-it-working-again-in-6-ways/"><u>Trouble with AOL on Your Phone? Here's How You Can Get It Working Again in 6 Ways!</u></a></li>
 </ul></div>
 
