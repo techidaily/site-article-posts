@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Mastering Text Annotation in Windows Photos (Windows 11)"
-date: 2024-12-29T17:16:14.644Z
-updated: 2025-01-03T16:58:43.631Z
+date: 2025-01-11T16:41:07.496Z
+updated: 2025-01-16T17:06:21.384Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ Adding the titles/text to video is a great way to explain the people about a cer
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Add Titles/Text to Video on Photos in Windows 10
@@ -52,17 +52,13 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
@@ -80,7 +76,7 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
@@ -89,15 +85,19 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -130,21 +130,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-best-iphone-and-android-photo-and-video-capture-applications-reviewed/"><u>[New] 2024 Approved Best iPhone & Android Photo & Video Capture Applications Reviewed</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-diy-ig-videos-tips-and-template-inspirations/"><u>[New] In 2024, DIY IG Videos Tips & Template Inspirations</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-unmatched-4k-experience-the-premier-top-eight-list/"><u>[New] In 2024, Unmatched 4K Experience The Premier Top Eight List</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-tips-to-communicate-with-youtube-subscribers-for-2024/"><u>[New] Tips to Communicate with YouTube Subscribers for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-grateful-choices-comprehensive-otu-guide/"><u>[Updated] 2024 Approved Grateful Choices Comprehensive OTU Guide</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-advanced-tools-tweet-with-converted-videos/"><u>[Updated] Advanced Tools Tweet with Converted Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-disabling-push-notifications-for-commercial-content-for-2024/"><u>[Updated] Disabling Push Notifications for Commercial Content for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-editing-made-easy-with-lunapic-for-first-timers-for-2024/"><u>[Updated] Editing Made Easy with LunaPic For First-Timers for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-evaluating-inshot-is-it-truly-top-notch/"><u>[Updated] In 2024, Evaluating InShot Is It Truly Top-Notch?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-leading-vr-grips-top-8-essential-handsets/"><u>[Updated] In 2024, Leading VR Grips Top 8 Essential Handsets</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-streamlining-gaming-sessions-without-microsofts-intervention/"><u>[Updated] Streamlining Gaming Sessions Without Microsoft's Intervention</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/1-easy-steps-to-adjust-your-pcs-energy-options-via-control-panel-tips-by-yl-software/"><u>1. Easy Steps to Adjust Your PC's Energy Options via Control Panel - Tips by YL Software</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-harnessing-powerful-tools-for-effective-youtubers-seo/"><u>2024 Approved Harnessing Powerful Tools for Effective YouTubers' SEO</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-construct-chuckles-adobe-meme-creation/"><u>In 2024, Construct Chuckles Adobe Meme Creation</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-huawei-nova-y71-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Huawei Nova Y71 Device</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-superior-performance-of-evs-over-gas-powered-cars-explained/"><u>The Superior Performance of EVs Over Gas-Powered Cars Explained</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-become-an-instagram-star-expert-5-strategies-and-illustrative-examples-for-2024/"><u>[New] Become an Instagram Star Expert 5 Strategies and Illustrative Examples for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-expert-review-of-vivacuts-latest-edits-and-enhancements/"><u>[New] In 2024, Expert Review of VivaCut's Latest Edits and Enhancements</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-dissecting-the-difference-360-video-and-vr-filmmaking-for-2024/"><u>[Updated] Dissecting the Difference 360 Video and VR Filmmaking for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-gigglegallery-craft-and-share-your-own-funny-faces/"><u>2024 Approved GiggleGallery Craft and Share Your Own Funny Faces</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-comprehensive-guide-to-lut-customization-in-premiere-pro-workflows/"><u>A Comprehensive Guide to LUT Customization in Premiere Pro Workflows</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/combatting-the-trickbot-menace-expert-insights-on-prevention-and-security-secureshield-tech/"><u>Combatting the TrickBot Menace: Expert Insights on Prevention and Security - SecureShield Tech</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Lava Blaze Curve 5G | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-behind-the-scenes-of-making-memes-funny/"><u>In 2024, Behind-the-Scenes of Making Memes Funny</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-crafting-gentle-volume-declines-using-logic-pro/"><u>In 2024, Crafting Gentle Volume Declines Using Logic Pro</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-obs-studio-and-lut-application-guide-for-professional-cinematographers/"><u>In 2024, OBS Studio & LUT Application Guide for Professional Cinematographers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/quick-corrections-for-iphone-shot-blur-issues/"><u>Quick Corrections for iPhone Shot Blur Issues</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/remove-the-lock-screen-fingerprint-of-your-infinix-note-30-vip-racing-edition-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Infinix Note 30 VIP Racing Edition</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/revolutionizing-the-way-you-engage-early-on-in-listening-for-2024/"><u>Revolutionizing the Way You Engage Early on in Listening for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/tech-review-showdown-comparing-gopros-hero5-and-garmin-virb-2e-for-2024/"><u>Tech Review Showdown Comparing GoPro's Hero5 and Garmin VIRB (2E) for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-ls-showdown-tech-titans-clashing-in-real-time/"><u>The LS Showdown Tech Titans Clashing in Real Time</u></a></li>
 </ul></div>
 

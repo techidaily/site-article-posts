@@ -1,7 +1,7 @@
 ---
 title: "Preventing Virtual Reality Queasiness for 2024"
-date: 2024-08-15T08:20:51.113Z
-updated: 2024-08-16T08:20:51.113Z
+date: 2025-01-12T16:34:18.602Z
+updated: 2025-01-16T16:39:11.379Z
 tags: 
   - screen-recording
   - ai video
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/069b298bfedee9c280f30a09eb725e41e8884f90f
 ##### Benjamin Arango
 
  Mar 27, 2024• Proven solutions
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10 ways to prevent Oculus Rift motion sickness
 
@@ -51,9 +55,9 @@ thumbnail: https://thmb.techidaily.com/069b298bfedee9c280f30a09eb725e41e8884f90f
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
@@ -61,17 +65,9 @@ thumbnail: https://thmb.techidaily.com/069b298bfedee9c280f30a09eb725e41e8884f90f
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -97,4 +93,18 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-masterclass-in-brief-lapses-top-5/"><u>[New] 2024 Approved Masterclass in Brief Lapses #Top 5</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-perfecting-your-playlists-adapting-spotify-to-the-youtube-music-ecosystem/"><u>[New] 2024 Approved Perfecting Your Playlists Adapting Spotify to the YouTube Music Ecosystem</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-the-path-to-your-first-tweet-signing-up-for-twitter/"><u>[New] 2024 Approved The Path to Your First Tweet Signing Up for Twitter</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-virtual-reality-walking-platforms-an-in-depth-look/"><u>[New] 2024 Approved Virtual Reality Walking Platforms An In-Depth Look</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-quick-and-secure-lecture-capture-methods-for-mac-users/"><u>[New] In 2024, Quick and Secure Lecture Capture Methods for Mac Users</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-ultimate-guide-to-top-12-action-cams-with-satellite-based-locators/"><u>[New] Ultimate Guide to Top 12 Action Cams with Satellite-Based Locators</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-best-apps-for-keeping-your-linkedin-vids-safe-and-sound/"><u>[Updated] 2024 Approved The Best Apps for Keeping Your LinkedIn Vids Safe & Sound</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-eight-must-visit-websites-for-free-3d-text-psdfiles/"><u>[Updated] In 2024, Eight Must-Visit Websites for FREE 3D Text PSDFiles</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-sparkle-in-your-ads-20-most-effective-marketing-terms/"><u>[Updated] In 2024, Sparkle in Your Ads 20 Most Effective Marketing Terms</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-perfect-speech-interpretation-googles-innovative-solution/"><u>[Updated] Perfect Speech Interpretation Google's Innovative Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-the-competition-kobo-nia-reviews-and-how-it-measures-up-to-kindle/"><u>Decoding the Competition: Kobo Nia Reviews and How It Measures Up to Kindle</u></a></li>
+</ul></div>
 

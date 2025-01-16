@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Faces Under Scrutiny  How iPhone X and Galaxy Unlock Tech Compare\""
-date: 2025-01-03T23:08:50.426Z
-updated: 2025-01-11T00:01:15.477Z
+date: 2025-01-12T16:03:19.143Z
+updated: 2025-01-16T16:29:35.295Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/2ba5849aea90d4e5d7bbd18adc2a2c9c0f1eeac29
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How does it work?
 
  This section will cover how the face recognition technology works for both the devices. Check out the process.
@@ -55,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/2ba5849aea90d4e5d7bbd18adc2a2c9c0f1eeac29
 ![Samsung](https://images.wondershare.com/filmora/article-images/Samsung-Galaxy-S8-Face-Unlock.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Which one is more Accuracy?
@@ -65,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/2ba5849aea90d4e5d7bbd18adc2a2c9c0f1eeac29
 ![iPhone X accuracy](https://images.wondershare.com/filmora/article-images/iphone-x-accuracy.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: The Common Inconvenience
@@ -78,14 +82,6 @@ thumbnail: https://thmb.techidaily.com/2ba5849aea90d4e5d7bbd18adc2a2c9c0f1eeac29
 
 ![face ID incovenience](https://images.wondershare.com/filmora/article-images/face-incovenience.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: Safety Issue
 
  Ensuring safety is one of the main concern people have and the face recognition technology in both the devices has done pretty well. Apple uses the TrueDepth camera system which includes flood illuminator, IR camera as well as dot projector to make the face recognized in all possible ways. It has been claimed by the company that the possibility of unlocking the device by a random person’s face is 1 in 1,000,000\. Besides this, Apple had made sure to let people try only 5 face attempts after which they will require to enter the passcode. The probability though doesn’t work same for twins and the family members who resemble you. Also, the children who are less than 13 are able to trick you since they don’t have fully developed facial features.
@@ -97,7 +93,7 @@ thumbnail: https://thmb.techidaily.com/2ba5849aea90d4e5d7bbd18adc2a2c9c0f1eeac29
 ![face ID issue](https://images.wondershare.com/filmora/article-images/face-id-issue.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  On the other hand, Samsung also doesn’t lag behind when it comes to safety and security with face recognition feature. Samsung is the first Android device company to introduce face recognition technology that brought iris scanning technology with its Galaxy Note 7\. The technology does it job by detecting the iris’ pattern of your eyes. As far as security is concerned, the technology gets 10 on 10 since each person possesses unique iris pattern and it becomes difficult to replicate. The devices by Samsung having face recognition technology are designed with infrared diode which is capable
@@ -109,6 +105,10 @@ thumbnail: https://thmb.techidaily.com/2ba5849aea90d4e5d7bbd18adc2a2c9c0f1eeac29
  The technology of facial recognition isn’t new to us and it has made people excited from the time it has come. However, many users have not started using the technology yet. We hope that this functionality will gain the popularity with time and people will start to make use of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -135,21 +135,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-evaluating-the-effectiveness-of-shake-reduction-in-adobe-photos/"><u>[New] 2024 Approved Evaluating the Effectiveness of 'Shake' Reduction in Adobe Photos</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-choosing-prime-top-8-budget-friendly-srt-translator-tools/"><u>[New] Choosing Prime Top 8 Budget-Friendly SRT Translator Tools</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-crafting-sequences-a-movie-maker-approach-to-animation/"><u>[New] In 2024, Crafting Sequences A Movie Maker Approach to Animation</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-top-8-iphonecomputer-apps-for-seamless-video-editing/"><u>[New] Top 8 iPhone/Computer Apps for Seamless Video Editing</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-essential-pathway-to-creating-attractive-video-covers-on-facebook/"><u>[Updated] 2024 Approved The Essential Pathway to Creating Attractive Video Covers on Facebook</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-quick-recovery-of-twitch-broadcasts/"><u>[Updated] 2024 Approved The Quick Recovery of Twitch Broadcasts</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-quintessential-10-fight-royale-games/"><u>[Updated] Quintessential 10 Fight Royale Games</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-sensory-engaging-e-commerce-platforms/"><u>[Updated] Sensory Engaging E-Commerce Platforms</u></a></li>
-<li><a href="https://fox-triigers.techidaily.com/achieving-synchronized-page-turning-sound-effects-in-flipbook-projects-using-flipbuilder-tools/"><u>Achieving Synchronized Page-Turning Sound Effects in FlipBook Projects Using FlipBuilder Tools</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-youtube-time-travel-how-to-flip-videos/"><u>In 2024, YouTube Time Travel How to Flip Videos</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/is-investing-in-a-portable-monitor-beneficial-top-4-reasons-you-need-one/"><u>Is Investing in a Portable Monitor Beneficial? Top 4 Reasons You Need One</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/revive-your-systems-graphics-with-windows-11-tips/"><u>Revive Your System's Graphics with Windows 11 Tips</u></a></li>
-<li><a href="https://article-posts.techidaily.com/the-future-of-laptops-with-apples-m1-max-attachments/"><u>The Future of Laptops with Apple’s M1 Max Attachments</u></a></li>
-<li><a href="https://techidaily.com/top-ways-to-unlock-iphone-15-screen-lock-by-drfone-ios-unlock-ios-unlock/"><u>Top ways to unlock iPhone 15 screen lock</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unravel-your-pcs-potential-with-windows-10s-latest-games-for-2024/"><u>Unravel Your PC's Potential with Windows 10'S Latest Games for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/visionary-8-must-haves-in-vr-gaming-worlds-for-2024/"><u>Visionary 8 Must-Haves in VR Gaming Worlds for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-harnessing-the-power-of-hdr-an-advanced-guide-to-ps/"><u>[New] In 2024, Harnessing the Power of HDR An Advanced Guide to PS</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-launch-your-live-stream-a-comprehensive-beginners-manual/"><u>[New] Launch Your Live Stream A Comprehensive Beginner's Manual</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-outlining-expenses-creating-a-music-video/"><u>[New] Outlining Expenses Creating a Music Video</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-proven-methods-to-master-time-lapse-creation/"><u>[New] Proven Methods to Master Time Lapse Creation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-select-4-websites-easy-skype-tone-downloads-for-2024/"><u>[New] Select 4 Websites Easy Skype Tone Downloads for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-windows-movie-maker-the-spectrum-of-releases/"><u>[New] Windows Movie Maker The Spectrum of Releases</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-top-15-budget-friendly-online-editors-for-stunning-images/"><u>[Updated] In 2024, Top 15 Budget-Friendly Online Editors for Stunning Images</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/expressive-storytelling-with-snapchats-in-your-face-gifs-for-2024/"><u>Expressive Storytelling with Snapchat's In-Your-Face GIFs for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970064-9781088231791-hay-flores-sobre-las-piedras/"><u>Hay Flores sobre las Piedras | Free Book</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-lenovo-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Lenovo Devices</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-elevate-meeting-aesthetics-how-to-add-filters-on-zoom/"><u>In 2024, Elevate Meeting Aesthetics How to Add Filters on Zoom</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-enhancing-viewing-experience-with-added-captions-in-wmp/"><u>In 2024, Enhancing Viewing Experience with Added Captions in WMP</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-fundamental-tale-structuring/"><u>In 2024, Fundamental Tale Structuring</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-pro-tips-for-kinemaster-dominance-plus-best-digital-platforms-on-the-web/"><u>In 2024, Pro Tips for KineMaster Dominance + Best Digital Platforms on the Web</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-top-8-android-visionaries-for-speedy-videos/"><u>In 2024, Top 8 Android Visionaries for Speedy Videos</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-this-article-aim-to-teach-you-how-to-make-a-night-to-day-effect-video-with-filmora-follow-the-steps-to-figure-it-out/"><u>New 2024 Approved This Article Aim to Teach You How to Make a Night to Day Effect Video with Filmora. Follow the Steps to Figure It Out</u></a></li>
+<li><a href="https://techidaily.com/remove-google-frp-lock-on-vivo-y28-5g-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP Lock on Vivo Y28 5G</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-fix-for-a-non-functional-tozo-t6-in-the-latest-windows-operating-system/"><u>Step-by-Step Fix for a Non-Functional Tozo T6 in the Latest Windows Operating System</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-audiovisual-experience-elevated-mastering-audio-blending-in-audacity-for-2024/"><u>The Audiovisual Experience Elevated Mastering Audio Blending in Audacity for 2024</u></a></li>
 </ul></div>
 
