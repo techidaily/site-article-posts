@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Securing Yourself From Motion Sickness in VR"
-date: 2024-08-08T03:51:11.698Z
-updated: 2024-08-09T03:51:11.698Z
+date: 2025-01-21T17:33:28.412Z
+updated: 2025-01-22T21:46:53.383Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/892778263385515e7b518ee32371993d4538db30f
 
 # 10 tips to prevent Oculus Rift VR motion sickness
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 ##### Benjamin Arango
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/892778263385515e7b518ee32371993d4538db30f
  Mar 27, 2024• Proven solutions
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 10 ways to prevent Oculus Rift motion sickness
 
  While using your Oculus Rift development kits you need to take care of few little things in order to avoid getting any kind of sickness during your game. Although the factors vary from individual to individual since it is more of the bodily response rather than the design variation.
@@ -57,18 +55,20 @@ thumbnail: https://thmb.techidaily.com/892778263385515e7b518ee32371993d4538db30f
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
 
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -93,4 +93,20 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-cinematic-transformation-best-15-gopro-color-correction-look-ups-explored/"><u>[New] 2024 Approved Cinematic Transformation Best 15 GoPro Color Correction Look-Ups Explored</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-flying-high-a-compreenasol-guide-to-cutting-edge-drone-editing/"><u>[New] Flying High A Compreenasol Guide to Cutting-Edge Drone Editing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-power-of-prolonged-shutter-iphone-burst-mode-for-2024/"><u>[New] The Power of Prolonged Shutter IPhone Burst Mode for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unlocking-quantum-hdr-your-comprehensive-guide/"><u>[New] Unlocking Quantum HDR Your Comprehensive Guide</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-enhancing-visual-storytelling-utilizing-luts-techniques/"><u>[Updated] 2024 Approved Enhancing Visual Storytelling Utilizing Luts Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-strategies-for-captivating-end-moments/"><u>[Updated] 2024 Approved Strategies for Captivating End Moments</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/62232491-updated-in-2024-pro-gamers-and-casters-to-subscribe-now/"><u>[Updated] In 2024, Pro Gamers & Casters to Subscribe Now</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-future-is-now-transformative-metaverse-techniques/"><u>2024 Approved The Future Is Now Transformative Metaverse Techniques</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719170974624-discover-the-joy-of-gaming-youtubes-new-minigames-invite-you-to-play/"><u>Discover the Joy of Gaming: YouTube’s New Minigames Invite You to Play</u></a></li>
+<li><a href="https://windows11.techidaily.com/expert-tips-on-coexisting-wi-fi-and-ethernet-in-a-single-windows-pc/"><u>Expert Tips on Coexisting Wi-Fi & Ethernet in a Single Windows PC</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-runes-to-revelry-the-language-of-nordic-warriors/"><u>From Runes to Revelry: The Language of Nordic Warriors</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/mastering-instagram-video-edits-using-top-mobile-video-editing-applications/"><u>Mastering Instagram Video Edits Using Top Mobile Video Editing Applications</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-and-resolving-pc-repair-error-code-19-on-windows-systems/"><u>Troubleshooting and Resolving PC Repair Error Code 19 on Windows Systems</u></a></li>
+</ul></div>
 

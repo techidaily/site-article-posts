@@ -1,7 +1,7 @@
 ---
 title: "Delving Into HDR Excellence with Luminance’s Tools"
-date: 2025-01-11T17:09:33.105Z
-updated: 2025-01-16T17:10:02.325Z
+date: 2025-01-19T16:17:57.206Z
+updated: 2025-01-22T20:44:01.436Z
 tags: 
   - screen-recording
   - ai video
@@ -95,7 +95,7 @@ To utilize this feature, just navigate to Edit and select ‘Resize' from the me
 ![image resize luminance hdr](https://images.wondershare.com/filmora/article-images/2022/08/luminance-hdr-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Crop:** Once you upload your HDR image to Luminous HDR, you can just click anywhere on it, then drag the mouse pointer that appears to a side and release it to crop the image.
@@ -106,10 +106,6 @@ Also, you can use the ‘Crop' feature to edit the frame you created by dragging
 
 ![image resize luminance hdr 2](https://images.wondershare.com/filmora/article-images/2022/08/luminance-hdr-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Rotate:** Rotate HDR images up to 90 degrees by using the < and > shortcuts or the ‘Clockwise' and ‘Counter-Clockwise' commands under the Edit menu. You can rotate images up to
 
 **Project Transformation:** The project transformation tool is effective to shoot mirrorball Hdrs and unwrap them.
@@ -117,6 +113,10 @@ Also, you can use the ‘Crop' feature to edit the frame you created by dragging
 Under ‘Project Transformation' you can set rotation degree, add source projection, and do lots more.
 
 ![project transformation luminance hdr](https://images.wondershare.com/filmora/article-images/2022/08/luminance-hdr-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. HDR Processing
 
@@ -163,6 +163,10 @@ Navigate to the top left corner of your computer screen and click on ‘Import' 
 
 ![import hdr video](https://images.wondershare.com/filmora/article-images/2022/08/luminance-hdr-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You will also see the ‘Import with Instant Cutter Tool' option - this allows you to trim HDR videos fast and conveniently.
 
 ##### Step4Edit HDR Video
@@ -170,6 +174,10 @@ Navigate to the top left corner of your computer screen and click on ‘Import' 
 Now, click the ‘Register' button, then navigate to the ‘File' menu and select ‘Project Settings. Then, click on the ‘Color Space' drop-down and select ‘HDR Parameter Value'. The default value is SDR - Rec.709.
 
 ![edit hdr video](https://images.wondershare.com/filmora/article-images/2022/08/luminance-hdr-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can also trim and cut your HDR video according to your requirements by dragging the end of the video left or right, apply visual effects, and correct color.
 
@@ -184,7 +192,7 @@ Finally, click on ‘Export', then in the Output window, select the desired vide
 ![share and export hdr video 2](https://images.wondershare.com/filmora/article-images/2022/08/luminance-hdr-9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Final Words
@@ -231,7 +239,7 @@ Now, click the ‘Register' button, then navigate to the ‘File' menu and selec
 ![edit hdr video](https://images.wondershare.com/filmora/article-images/2022/08/luminance-hdr-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can also trim and cut your HDR video according to your requirements by dragging the end of the video left or right, apply visual effects, and correct color.
@@ -245,14 +253,6 @@ Finally, click on ‘Export', then in the Output window, select the desired vide
 * Also, click the ‘Export Color Space' drop/down icon and select the video output HDR quality. Then, hit the ‘OK' button to complete the operation. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) also allows users to share edited videos to third-party platforms like Vimeo and YouTube.
 
 ![share and export hdr video 2](https://images.wondershare.com/filmora/article-images/2022/08/luminance-hdr-9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -288,14 +288,22 @@ In addition to that, if you're looking to edit HDR videos with high quality, we 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-essentials-of-choosing-a-drone-vibration-controller/"><u>[New] In 2024, Essentials of Choosing a Drone Vibration Controller</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-quick-fix-hide-identities-in-photos-with-picart/"><u>[New] Quick Fix Hide Identities in Photos with PicArt</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-step-into-the-virtual-realm-with-updated-android-tips-for-2024/"><u>[New] Step Into the Virtual Realm with Updated Android Tips for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-action-seekers-guide-to-polaroid-xs-100i/"><u>[Updated] In 2024, The Action Seeker's Guide to Polaroid XS 100I</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/enhance-your-livestreams-with-manycam-top-features-of-online-video-encoding-tools/"><u>Enhance Your Livestreams with ManyCam - Top Features of Online Video Encoding Tools</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-skagen-falster-3-blending-modern-technology-and-timeless-elegance/"><u>Expert Analysis of Skagen Falster 3 - Blending Modern Technology & Timeless Elegance</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-remove-google-frp-lock-on-poco-f5-pro-5g-by-drfone-android-unlock-remove-google-frp/"><u>How to remove Google FRP Lock on Poco F5 Pro 5G</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/tracing-the-future-beyond-turings-legacy/"><u>Tracing the Future: Beyond Turing's Legacy</u></a></li>
-<li><a href="https://fox-http.techidaily.com/viewpoint-validation-digest-for-2024/"><u>Viewpoint Validation Digest for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-80s-family-flick-the-vhs-edition-of-the-goofys/"><u>[New] '80S Family Flick The VHS Edition of The Goofys</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-gear-picking-the-very-best-among-top-9-free-logomakers/"><u>[New] 2024 Approved Essential Gear Picking the Very Best Among Top 9 Free Logomakers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-pinterest-video-extraction-the-ultimate-guide-to-the-best-tools/"><u>[New] 2024 Approved Pinterest Video Extraction The Ultimate Guide to the Best Tools</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-elevate-your-spirit-with-these-10-must-see-movies/"><u>[New] Elevate Your Spirit with These 10 Must-See Movies</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-enhance-photos-with-our-best-grid-app-list-for-2024/"><u>[New] Enhance Photos with Our Best Grid App List for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dominate-discussion-how-to-trend-on-social-media-platforms/"><u>[New] In 2024, Dominate Discussion How to Trend on Social Media Platforms</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-10-best-hash-monitoring-apps-for-major-social-platforms-fbtwitterinsta/"><u>[Updated] 2024 Approved 10 Best Hash Monitoring Apps for Major Social Platforms (FB/Twitter/Insta)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-hidden-whatsapp-gems-top-tricks-to-enhance-your-messaging-experience/"><u>[Updated] Hidden WhatsApp Gems Top Tricks to Enhance Your Messaging Experience</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-essential-steps-in-choosing-exceptional-video-makers/"><u>[Updated] In 2024, Essential Steps in Choosing Exceptional Video Makers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-power-of-the-start-building-a-solid-intro-foundation/"><u>[Updated] The Power of the Start Building a Solid Intro Foundation</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-secret-pathway-to-premium-pristine-pictures-for-2024/"><u>[Updated] The Secret Pathway to Premium, Pristine Pictures for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/crafting-powerful-hashtags-for-fb-brand-identity-for-2024/"><u>Crafting Powerful Hashtags for FB Brand Identity for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/master-plan-youtube-content-into-mp4-for-2024/"><u>Master Plan YouTube Content Into MP4 for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-common-hurdles-in-steam-game-setup-and-update-processes/"><u>Overcoming Common Hurdles in Steam Game Setup and Update Processes</u></a></li>
+<li><a href="https://fox-that.techidaily.com/resolve-non-functional-widgets-on-ios-devices-in-just-10-steps/"><u>Resolve Non-Functional Widgets on iOS Devices in Just 10 Steps</u></a></li>
+<li><a href="https://article-helps.techidaily.com/unlocking-creativity-through-intense-iphone-photos/"><u>Unlocking Creativity Through Intense iPhone Photos</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-professional-grade-animation-top-software-for-macwindows-creatives/"><u>Updated Professional-Grade Animation Top Software for Mac/Windows Creatives</u></a></li>
 </ul></div>
 

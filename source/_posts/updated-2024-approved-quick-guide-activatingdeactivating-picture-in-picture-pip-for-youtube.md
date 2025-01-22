@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Quick Guide  Activating/Deactivating Picture In Picture (PIP) for YouTube\""
-date: 2025-01-15T16:01:52.496Z
-updated: 2025-01-16T17:06:57.588Z
+date: 2025-01-18T22:21:55.890Z
+updated: 2025-01-22T19:48:35.844Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ After opening the video in PIP mode, you can do things around on the screen of y
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. How to enable Picture in Picture for YouTube on iPhone
@@ -42,6 +42,10 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 3. Turn on **Allow Untrusted Shortcuts**. If this option is not available for your device, go to **Screen Time extension** and disable any screen time restrictions. So, you will proceed successfully.
 
 ![enable pip on iphone](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. If you require a **YouTube PIP** shortcut app on your device to proceed, you can download it from App Store or [the Shortcuts Gallery browser](https://shortcutsgallery.com/shortcuts/youtube-pip/) and then add it to your Shortcut Library.
 2. Open the **YouTube PIP** Shortcut and tap **Get Shortcut** on the App. You will be redirected to the shortcut application on your phone. If you don't have the shortcut application, you can download it from the App Store.
@@ -57,6 +61,10 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![scriptable app](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Tap on **View in App Store** on the screen that appears. This will direct you to the App Store.
 2. On the next screen that appears, download [**Scriptable App**](https://apps.apple.com/us/app/scriptable/id1405459188). Get back to the home screen and launch Scriptable App once.
 
@@ -67,14 +75,10 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 ![floating screen](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 And there you go, now you will be able to watch your videos on a floating screen. This procedure may be pretty tedious, but it is all worth it if you follow keenly to the end. You will do it only once.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. How to Disable Picture in Picture for YouTube on iPhone
 
@@ -85,6 +89,10 @@ To use PIP on iPhone effectively, you may sometime need to deactivate it so that
 3. Go to **“** **Settings > General Settings”**
 4. Scroll down. You will see the **Picture-in-Picture**
 5. Tap the switch button to switch it off. And there you are. You have disabled PIP for YouTube on iPhone.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3\. How to enable Picture in Picture for YouTube on Mac and iPad
 
@@ -110,10 +118,6 @@ Before you use Picture in Picture in YouTube, you require two Apps on your devic
 
 ![floating window](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### PIP on Mac
 
 On your Mac, there are two ways to get into Picture in Picture mode. You can use Control Command and Mouse together, or simply the mouse itself/touchpad. And here is how to do it with a Mouse only.
@@ -130,10 +134,6 @@ And with the Control Commands, you can get into PIP on Mac very easily in only t
 2. Press and hold on to the **Ctrl key** on your keyboard as you **left click** on the video twice, and you will be successful.
 
 ![get into pip on mac](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -169,20 +169,22 @@ Picture in Picture is a computer utility feature in the USA. It has not been lau
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-essential-guide-best-15-gopro-support-systems/"><u>[New] 2024 Approved Essential Guide Best 15 GoPro Support Systems</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-crafting-quiet-curtains-the-pp-approach-to-invisible-sound-endings/"><u>[New] In 2024, Crafting Quiet Curtains The PP Approach to Invisible Sound Endings</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-soaring-visions-with-dji-mavic-pro-insight/"><u>[New] In 2024, Soaring Visions with DJI Mavic Pro Insight</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-the-ultimate-guide-to-mastering-zoom-in-windows-10/"><u>[New] In 2024, The Ultimate Guide to Mastering Zoom in Windows 10</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-zooms-finest-audio-to-text-solutions-complimentary-and-subscriptions/"><u>[New] Zoom's Finest Audio-to-Text Solutions Complimentary & Subscriptions</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-digital-transit-how-to-route-files-to-your-computer/"><u>[Updated] 2024 Approved Digital Transit How to Route Files to Your Computer</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-filmmaking-with-ease-decoding-common-video-editing-hurdles-in-filmora/"><u>[Updated] 2024 Approved Filmmaking with Ease Decoding Common Video Editing Hurdles in Filmora</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-a-guide-to-understanding-and-joining-a-youtube-media-company-for-2024/"><u>[Updated] A Guide to Understanding and Joining a YouTube Media Company for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-economical-aerial-aviators-affordable-drones-guide-(500/"><u>[Updated] In 2024, Economical Aerial Aviators Affordable Drones Guide <$500</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-top-vr-films-that-you-should-never-miss/"><u>[Updated] Top VR Films That You Should Never Miss</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-reviving-shadows-and-highlights-in-iphone-hdr-footage-with-premiere-pro/"><u>2024 Approved Reviving Shadows and Highlights in iPhone HDR Footage with Premiere Pro</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/movavis-web-based-service-convert-your-flac-music-to-free-ogg-files-instantly/"><u>Movavi's Web-Based Service: Convert Your FLAC Music to Free Ogg Files Instantly!</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-streamlining-audio-success-leading-podcast-hosting-options/"><u>New In 2024, Streamlining Audio Success Leading Podcast Hosting Options</u></a></li>
-<li><a href="https://win-blog.techidaily.com/solution-guide-for-persistent-problems-of-dragon-age-origins-freezing-on-windows-10-pcs/"><u>Solution Guide for Persistent Problems of Dragon Age: Origins Freezing on Windows 10 PCs</u></a></li>
-<li><a href="https://article-posts.techidaily.com/step-by-step-guide-to-deepening-digital-conversations-for-2024/"><u>Step-by-Step Guide to Deepening Digital Conversations for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-comprehensive-guide-for-digital-video-photo-effects-application/"><u>[New] 2024 Approved Comprehensive Guide for Digital Video Photo Effects Application</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-unveiling-types-and-methods-for-hand-detection-systems/"><u>[New] 2024 Approved Unveiling Types and Methods for Hand Detection Systems</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-fast-and-easy-gif-transformation-ultimate-list-of-no-download-services/"><u>[New] Fast and Easy GIF Transformation Ultimate List of No-Download Services</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-unleashing-potential-from-standard-sdr-to-high-end-hdr/"><u>[Updated] In 2024, Unleashing Potential From Standard SDR to High-End HDR</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-launching-your-first-product-critique-network-a-step-by-step-guide/"><u>[Updated] Launching Your First Product Critique Network A Step-by-Step Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-metaverse-laughter-25plus-humorous-meme-ideas-to-share-online/"><u>[Updated] Metaverse Laughter 25+ Humorous Meme Ideas to Share Online</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-ultimate-cutting-edge-tools-for-windows-11-videographers-for-2024/"><u>[Updated] Ultimate Cutting-Edge Tools for Windows 11 Videographers for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unveiling-the-truth-a-speedy-guide-to-spotting-phony-followers-on-instagram-for-2024/"><u>[Updated] Unveiling the Truth A Speedy Guide to Spotting Phony Followers on Instagram for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-entering-a-friends-tiktok-live-a-step-by-step-guide/"><u>2024 Approved Entering a Friend's TikTok Live A Step-by-Step Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-motorola-moto-g73-5g-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Motorola Moto G73 5G? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On OnePlus 12 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-realme-12-proplus-5g-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Realme 12 Pro+ 5G</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/jump-from-smartphone-to-desktop-android-gameplay-in-windows-11-with-google/"><u>Jump From Smartphone to Desktop: Android Gameplay in Windows 11 with Google</u></a></li>
+<li><a href="https://article-posts.techidaily.com/leverage-canva-design-top-10-stealthy-methods-revealed/"><u>Leverage Canva Design Top 10 Stealthy Methods Revealed</u></a></li>
+<li><a href="https://article-posts.techidaily.com/recording-internet-radios-simplified-tips-and-tricks-for-2024/"><u>Recording Internet Radios Simplified Tips and Tricks for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/simplifying-the-image-blur-process-for-iphone-enthusiasts/"><u>Simplifying the Image Blur Process for iPhone Enthusiasts</u></a></li>
+<li><a href="https://win-webster.techidaily.com/yl-computings-expert-advice-how-to-move-files-between-storage-devices-in-windows-efficiently/"><u>YL Computing's Expert Advice: How to Move Files Between Storage Devices in Windows Efficiently</u></a></li>
 </ul></div>
 

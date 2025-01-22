@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Layers of Plot and Character Design"
-date: 2025-01-09T16:49:36.206Z
-updated: 2025-01-16T16:47:58.037Z
+date: 2025-01-17T18:57:21.172Z
+updated: 2025-01-22T19:22:57.919Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ A screenplay is a **written text that serves as the foundation for film producti
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. What is a screenplay?
 
 A screenplay is a piece of writing that contains the dialogue for an entire film or television episode.
@@ -36,6 +40,10 @@ A screenplay can be based on original material, such as screenwriter ideas, or o
 It can be used to ensure that everything in your story is consistent with what you've shot. It can also be used to assist with editing!
 
 ![a screenplay](https://images.wondershare.com/filmora/article-images/2022/08/what-is-screenplay-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 A screenplay is a script for a film, television show, or play. It tells a story by using dialogue and action to show how the scenes are connected.
 
@@ -50,7 +58,7 @@ A screenplay is a story that describes what will be seen on film or television. 
 The structure of a screenplay can differ depending on the type of film being produced and the amount of dialogue versus action.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. Basic standard screenplay formats
@@ -114,6 +122,10 @@ The same title page, with the same standard Courier font, text indentation, scen
 
 ![contemporary features](https://images.wondershare.com/filmora/article-images/2022/08/what-is-screenplay-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 However, with the advent of app-based screenwriting software, we have plenty of contemporary features such as automatic page numbers, time of day, parentheses, and pop-ups with specific character names.
 
 Even the general rule of thumb "one-page equals one minute of screen time" doesn't apply to all scripts today.
@@ -121,10 +133,6 @@ Even the general rule of thumb "one-page equals one minute of screen time" doesn
 While it's not necessary to have a fully automated script layout interface, any task that can be automated gives the writer more time for important tasks like contributing to off-screen production, recording voice-overs, etc.
 
 Plus, since most writers today prefer a smartphone to a traditional typewriter, it pays to have a screenplay editor in the palm of your hand.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Configurability
 
@@ -138,10 +146,6 @@ For example, when I'm writing a character who's learning to write a book, I'd li
 
 Taking an unconventional approach to character development can seem counterproductive and time-consuming. However, a good script draft will allow the writer to do this without making the script unbalanced.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Creative Space
 
 Stiffness is a very common factor in most traditional screenplay formats.
@@ -154,15 +158,15 @@ For example, an ideal screenwriting template should allow one character out of s
 
 ![creative space](https://images.wondershare.com/filmora/article-images/2022/08/what-is-screenplay-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This prevents all characters from looking and sounding like they were cast from a similar mold and have no unique development of their own.
 
 In addition, the best templates should allow screenwriters to adjust their plot development to write for feature films as well as series.
 
 Common fictional tropes have already been adopted by thousands of screenwriters around the world. The job of a perfect template is to give you enough creative space to create a unique story from a traditional genre.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4\. Make your own screenplay by using Filmora
 
@@ -171,10 +175,6 @@ After you have chosen what template is more appropriate for your needs, you will
 (产品推荐)
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is video editing software that allows users to create amazing videos quickly and easily by utilizing a variety of powerful editing tools. It has a delightfully simple design that allows anyone to become a great video editor. Filters, animated elements, and other video effects or unique features are also available.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -210,22 +210,22 @@ The article has provided the most information about screenplays and how to write
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-dji-mavic-pro-pioneering-the-aerial-photography-frontier/"><u>[New] 2024 Approved DJI Mavic Pro Pioneering the Aerial Photography Frontier</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-leading-8-cameras-that-make-live-streaming-shine/"><u>[New] 2024 Approved Leading 8 Cameras That Make Live Streaming Shine</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-navigating-ig-success-a-guide-to-best-management-tools/"><u>[New] In 2024, Navigating IG Success A Guide to Best Management Tools</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-circulation-crafting-kit/"><u>[Updated] 2024 Approved Circulation Crafting Kit</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-enhancing-aerial-video-the-best-gimbals-reviewed/"><u>[Updated] Enhancing Aerial Video The Best Gimbals Reviewed</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-crafting-spectacular-gopro-time-lapses-made-easy/"><u>[Updated] In 2024, Crafting Spectacular GoPro Time-Lapses Made Easy</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-flawlessimage-advanced-bg-eraser-app/"><u>2024 Approved FlawlessImage Advanced BG Eraser App</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-professionals-guide-to-outstanding-4k-filmmaking-gear/"><u>2024 Approved Professionals' Guide to Outstanding 4K Filmmaking Gear</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/embrace-a-healthier-lifestyle-why-fitbit-sense-excels-over-apple-watch/"><u>Embrace a Healthier Lifestyle: Why Fitbit Sense Excels Over Apple Watch</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/entering-the-vtuber-universe-beginning-stages-and-possibilities-for-2024/"><u>Entering the VTuber Universe Beginning Stages & Possibilities for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/harnessing-high-quality-photos-from-androids/"><u>Harnessing High-Quality Photos From Androids</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-mastering-video-selection-adding-to-your-youtube-playlists/"><u>In 2024, Mastering Video Selection Adding to Your YouTube Playlists</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-tickletech-instant-creation-of-laughter-graphics/"><u>In 2024, TickleTech Instant Creation of Laughter Graphics</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-beginners-guide-to-face-blurring-top-free-apps-tutorials-and-tips/"><u>New In 2024, Beginners Guide to Face Blurring Top Free Apps, Tutorials, and Tips</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-melody-and-motion-best-sync-videography-applications-of-the-decades-first-half/"><u>New In 2024, Melody and Motion Best-Sync Videography Applications of the Decades First Half</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/seamlessly-switching-on-updated-widget-selection-interface-in-windows-11/"><u>Seamlessly Switching on Updated Widget Selection Interface in Windows 11</u></a></li>
-<li><a href="https://article-posts.techidaily.com/unveiling-the-upgraded-2023-samsung-bd-j5900-for-2024/"><u>Unveiling the Upgraded 2023 Samsung BD-J5900 for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-unlock-movie-magic-with-cg-centrals-look-up-tables-luts/"><u>[New] 2024 Approved Unlock Movie Magic with CG Central's Look-Up Tables (Luts)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-embedding-apples-music-in-videos/"><u>[New] In 2024, Embedding Apple's Music in Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-leading-4k-gaming-pcs-top-ten-selection/"><u>[New] In 2024, Leading 4K Gaming PCs - Top Ten Selection</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-complete-guide-to-iphone-silhouette-mastery-for-2024/"><u>[New] The Complete Guide to iPhone Silhouette Mastery for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-inside-track-to-superior-srt-upgrades/"><u>[Updated] 2024 Approved Inside Track to Superior SRT Upgrades</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-exclusive-listing-high-quality-free-streamers-for-webm-files/"><u>[Updated] Exclusive Listing High-Quality, Free Streamers for WebM Files</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-impressive-initiations-podcasting-prose-poems/"><u>[Updated] Impressive Initiations Podcasting Prose Poems</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-explore-8-leading-free-srt-translators-online/"><u>[Updated] In 2024, Explore 8 Leading Free SRT Translators Online</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-make-your-time-lagged-footage-shine-with-easy-android-tricks/"><u>[Updated] Make Your Time-Lagged Footage Shine with Easy Android Tricks</u></a></li>
+<li><a href="https://windows11.techidaily.com/efficiently-adding-google-play-to-windows-11/"><u>Efficiently Adding Google Play to Windows 11</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-open-the-volume-mixer-in-windows-11/"><u>How to Open the Volume Mixer in Windows 11</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-can-we-bypass-honor-play-7t-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Honor Play 7T FRP?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/quickly-remove-google-frp-lock-on-itel-p40-by-drfone-android-unlock-remove-google-frp/"><u>Quickly Remove Google FRP Lock on Itel P40</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/troubleshooting-your-scanner-solutions-when-scanning-fails-expert-advice-from-yl-computing/"><u>Troubleshooting Your Scanner: Solutions When Scanning Fails - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/ultimate-guide-from-apple-iphone-12-pro-max-icloud-activation-lock-bypass-by-drfone-ios/"><u>Ultimate Guide from Apple iPhone 12 Pro Max iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-raspberry-pi-model-400-a-hybrid-of-a-slim-pc-and-functional-keyboard/"><u>Unveiling the Raspberry Pi Model #400: A Hybrid of a Slim PC and Functional Keyboard</u></a></li>
+<li><a href="https://article-posts.techidaily.com/video-innovators-showcase-15-leading-youtube-unboxing-sites-for-2024/"><u>Video Innovators Showcase 15 Leading YouTube Unboxing Sites for 2024</u></a></li>
 </ul></div>
 

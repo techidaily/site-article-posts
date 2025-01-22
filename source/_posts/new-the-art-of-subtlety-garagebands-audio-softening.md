@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Art of Subtlety  Garageband's Audio Softening\""
-date: 2025-01-12T16:07:38.348Z
-updated: 2025-01-16T16:24:15.965Z
+date: 2025-01-21T17:35:02.012Z
+updated: 2025-01-22T17:56:47.324Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ Step1 Turn on the application and open the song from the home screen.
 
 ![open songs in garageband](https://images.wondershare.com/filmora/article-images/2022/07/open-songs-in-garageband.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Press the track> show the master track from the icon menu, and then the master track will come below the last track.
 
 Step3 Choose the mix> produce volume fade out on the main output option.
@@ -63,13 +67,13 @@ Step3 Scroll down to the fade-out option and turn it.
 
 ![fade audio garageband iphone](https://images.wondershare.com/filmora/article-images/2022/07/fade-audio-garageband-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 Hit the done icon.
 
 The fade-out option doesn't offer you much set of control. It usually works as a master track and includes the fade-out effect over all the track channels. You won't be able to edit the fade-out; in simple words, it will automatically select a point where the feature will start working, and it will also control the speed and intensity of the volume drop. It is one of the best features for fading short tracks as it won't lose much audio.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3\. Garageband Alternative to Fade Audio on Mac
 
@@ -99,15 +103,15 @@ After the drag and drop procedure, double click on the file and direct yourself 
 
 ![add audio fade in to clip](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step3 Save the video
 
 Choose the create option to save the new file if you are done with the adjusting part. You can save your file in several formats such as MP3, MKV, WMV, AVI, etc. you can play the track on various devices like iPad, iPod, iPhone, Zune, etc.
 
 ![save the video](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -116,10 +120,6 @@ According to the survey, one of the most searched topics is **how to fade music 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 ![use filmora editor](https://images.wondershare.com/filmora/guide/adjust-video-1.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 This application also offers many features that make the users curious about the application. This application can easily add background music to any video file. You can also change the media file with benefits like split audio, volume adjustment, and adjusting audio. This application also offers audio denoise and equalizer features. You can gather more information by exploring the application.
 
@@ -138,7 +138,7 @@ After the drag and drop procedure, double click on the file and direct yourself 
 ![add audio fade in to clip](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step3 Save the video
@@ -148,7 +148,7 @@ Choose the create option to save the new file if you are done with the adjusting
 ![save the video](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -179,24 +179,22 @@ According to the survey, one of the most searched topics is **how to fade music 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-top-android-and-iphone-apps-for-free-photo-overlay-artistry/"><u>[New] 2024 Approved Top Android & iPhone Apps for FREE Photo Overlay Artistry</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-how-to-choose-the-fpv-drone-propellers-for-2024/"><u>[New] How to Choose the FPV Drone Propellers for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-creating-channel-names-that-capture-attention/"><u>[New] In 2024, Creating Channel Names That Capture Attention</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-streamlining-video-logging-on-periscope-platforms/"><u>[New] In 2024, Streamlining Video Logging on Periscope Platforms</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-iphone-guide-jpegpng-to-pdf-conversion-techniques/"><u>[New] IPhone Guide JPEG/PNG to PDF Conversion Techniques</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-top-11-audio-capture-devices-for-live-broadcasts-for-2024/"><u>[New] Top 11 Audio Capture Devices for Live Broadcasts for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-the-ultimate-guide-to-converting-and-sharing-h-videos-on-igtv/"><u>[Updated] 2024 Approved The Ultimate Guide to Converting and Sharing H-Videos on IGTV</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-crafting-compelling-content-weaving-text-into-os-imagery/"><u>[Updated] In 2024, Crafting Compelling Content Weaving Text Into OS Imagery</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-future-of-flying-games-mavic-air-vs-dji-spark-showdown/"><u>[Updated] In 2024, The Future of Flying Games Mavic Air Vs. DJI Spark Showdown</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-innovators-playbook-for-premiere-pro-fullscreen-edits/"><u>[Updated] In 2024, The Innovator's Playbook for Premiere Pro Fullscreen Edits</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-most-acclaimed-ipad-recording-software-3p-for-2024/"><u>[Updated] Most Acclaimed iPad Recording Software 3P for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/7-new-conversational-ai-tools-to-consider-over-openais-chatgpt/"><u>7 New Conversational AI Tools to Consider Over OpenAI’s ChatGPT</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/creating-a-unique-identity-in-the-flood-of-live-streams-for-2024/"><u>Creating a Unique Identity in the Flood of Live Streams for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/essential-guide-utilizing-luts-in-ae-for-2024/"><u>Essential Guide Utilizing LUTs in AE for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-infinix-hot-30i-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Infinix Hot 30i to iPod | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-expert-tips-focusing-on-the-small-web-details/"><u>In 2024, Expert Tips Focusing on the Small Web Details</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-navigating-google-chromes-picture-in-picture-feature/"><u>In 2024, Navigating Google Chrome's Picture In Picture Feature</u></a></li>
-<li><a href="https://apple-account.techidaily.com/tips-and-tricks-for-apple-id-locked-issue-from-iphone-se-2020-by-drfone-ios/"><u>Tips and Tricks for Apple ID Locked Issue From iPhone SE (2020)</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/viral-visionaries-top-ten-meme-templates-exposed-for-2024/"><u>Viral Visionaries Top Ten Meme Templates Exposed for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-faster-than-ever-revolutionary-methods-to-speed-up-fb-videos/"><u>[New] Faster Than Ever Revolutionary Methods to Speed Up FB Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-complete-examination-a-full-picture-of-bublcams-360-degree-scope/"><u>[New] In 2024, Complete Examination A Full Picture of Bublcam's 360-Degree Scope</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-the-ultimate-resource-for-instagram-livestreams-via-obs-software/"><u>[New] In 2024, The Ultimate Resource for Instagram Livestreams via OBS Software</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-techniques-to-transform-text-into-a-3d-entity-for-2024/"><u>[New] Techniques to Transform Text Into a 3D Entity for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-hit-the-mark-video-that-skyrockets-in-popularity/"><u>[Updated] 2024 Approved Hit the Mark Video that Skyrockets in Popularity</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-unleash-creativity-in-photography-essential-pixlr-hacks/"><u>[Updated] 2024 Approved Unleash Creativity in Photography Essential Pixlr Hacks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-dark-moments-decoded-for-iphone-users/"><u>[Updated] Dark Moments Decoded for iPhone Users</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-connecting-worlds-mastering-video-chats-on-xbox-one-with-zoom/"><u>[Updated] In 2024, Connecting Worlds Mastering Video Chats on Xbox One with Zoom</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-explore-the-ultimate-list-of-comedy-tears-on-instagram/"><u>[Updated] In 2024, Explore the Ultimate List of Comedy-Tears On Instagram</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-launching-joining-and-scheduling-zoom-calls-made-simple-for-android-users/"><u>[Updated] Launching, Joining, and Scheduling Zoom Calls Made Simple for Android Users</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-zoom-with-precision-using-videoleap-software-for-2024/"><u>[Updated] Zoom with Precision Using Videoleap Software for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-turning-tails-into-heads-android-video-editing/"><u>2024 Approved Turning Tails Into Heads Android Video Editing</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-sony-xperia-10-v-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/affordable-logitech-f710-blamed-in-court-for-role-in-deep-sea-explorers-disaster/"><u>Affordable Logitech F710 Blamed in Court for Role in Deep-Sea Explorer's Disaster</u></a></li>
+<li><a href="https://article-posts.techidaily.com/becoming-an-srt-creation-virtuoso-a-complete-manual-for-2024/"><u>Becoming an SRT Creation Virtuoso A Complete Manual for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-best-companions-for-podcast-lovers-activities-and-tasks/"><u>In 2024, Best Companions for Podcast Lovers Activities and Tasks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/rising-stars-of-online-videos-top-subscription-hits-for-2024/"><u>Rising Stars of Online Videos Top Subscription Hits for 2024</u></a></li>
 </ul></div>
 

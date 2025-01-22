@@ -1,7 +1,7 @@
 ---
 title: "Premium Memory Device for Sony A7S Cameras for 2024"
-date: 2024-08-08T03:50:14.091Z
-updated: 2024-08-09T03:50:14.091Z
+date: 2025-01-19T20:13:49.768Z
+updated: 2025-01-22T17:54:33.202Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/16a9a32d76913419d0c86bdb7e9f6c144de6a2f54
 
 # Best Memory Card for Sony A7S II
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -34,8 +31,9 @@ thumbnail: https://thmb.techidaily.com/16a9a32d76913419d0c86bdb7e9f6c144de6a2f54
  The article below can help you to select right memory cards for your Sony A7S II camera:
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to choose the right memory card for your Sony A7S II
 
 #### Section 1: UHS (Ultra High Speed) Card Classification
@@ -74,8 +72,9 @@ thumbnail: https://thmb.techidaily.com/16a9a32d76913419d0c86bdb7e9f6c144de6a2f54
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Best Memory Cards for Sony A7S II
 
 #### 1. Sony 64GB High Performance Class 10 UHS-1/U3 SDXC
@@ -114,10 +113,11 @@ thumbnail: https://thmb.techidaily.com/16a9a32d76913419d0c86bdb7e9f6c144de6a2f54
 * Extreme Pro is compatible with SDXC devices.
 * Ensures perfect results for Full HD, 3D and 4K resolution levels.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -142,4 +142,18 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-a-list-of-the-best-marriage-videos-celebrations-captured-online-8/"><u>[New] 2024 Approved A List of the Best Marriage Videos - Celebrations Captured Online (8)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-enhancing-speeds-a-safe-guide-for-rapid-music-streaming/"><u>[New] 2024 Approved Enhancing Speeds A Safe Guide for Rapid Music Streaming</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-air-and-pro-on-m1-compare-contrast-and-choose-wisely-for-2024/"><u>[New] Air & Pro on M1 Compare, Contrast, and Choose Wisely for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-codec-clash-determining-the-leader-in-video-quality/"><u>[New] In 2024, Codec Clash Determining the Leader in Video Quality</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-leading-360-degree-pro-cams-2023-edition-review/"><u>[New] Leading 360-Degree Pro Cams 2023 Edition Review</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-steps-for-a-smooth-experience-with-the-windows-11-photos-app/"><u>[New] Steps for a Smooth Experience with the Windows 11 Photos App</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-learn-to-craft-instagram-ringtones-with-us/"><u>2024 Approved Learn to Craft Instagram Ringtones with Us</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/fast-track-guide-overcoming-amazon-primes-error/"><u>Fast Track Guide: Overcoming Amazon Prime's Error</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-quick-and-easy-image-trimming-techniques-for-websites/"><u>In 2024, Quick & Easy Image Trimming Techniques for Websites</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-the-top-virtualdub-replacements-for-video-editing-enthusiasts-and-pros/"><u>New The Top Virtualdub Replacements for Video Editing Enthusiasts and Pros</u></a></li>
+<li><a href="https://article-posts.techidaily.com/ultimate-guide-to-top-tier-tripods-and-mounts-for-gopro-for-2024/"><u>Ultimate Guide to Top-Tier Tripods & Mounts for GoPro for 2024</u></a></li>
+</ul></div>
 

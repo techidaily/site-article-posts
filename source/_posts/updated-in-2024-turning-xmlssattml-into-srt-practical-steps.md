@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Turning XML/SSA/TTML Into SRT  Practical Steps\""
-date: 2025-01-15T16:28:13.535Z
-updated: 2025-01-16T16:11:19.942Z
+date: 2025-01-18T18:11:35.030Z
+updated: 2025-01-22T17:35:48.132Z
 tags: 
   - screen-recording
   - ai video
@@ -64,23 +64,11 @@ It is a plain text file that is composed of three sections, Script Info, Styles,
 
 ![xml subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. XML
 
 This subtitle format contains encoding, duration, and content of subtitles like this,
 
 ![ttml subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. TTML
 
@@ -89,7 +77,7 @@ This is an XML-based format that has a somewhat complicated look with <> appeari
 ![convert ttml to srt](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-11.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. STL
@@ -98,10 +86,6 @@ This format of subtitles lacks a timing section like in SRT.
 
 ![stl subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. VOB
 
 It’s a container for audio, video, or subtitles that looks like this.
@@ -109,6 +93,10 @@ It’s a container for audio, video, or subtitles that looks like this.
 ![sign up for the sonix](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-14.jpg)
 
 After seeing how these formats look, we’ve arranged other features of these subtitle formats into a comparison table. So let’s have a look at it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Comparison Table for Different Subtitle Formats
 
@@ -159,14 +147,10 @@ Step4 Once done, hit the “Convert” option from the right box to convert your
 
 ![convert xml to srt](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-10.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now onto converting TTML into SRT format.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Convert TTML to SRT
@@ -184,6 +168,10 @@ Step2 Now, click on the “browse” option to open a TTML subtitle from your de
 Step3 Once the file has been uploaded, hit the “Convert” option to convert the TTML subtitle to SRT format.
 
 ![ssa subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After TTML, it’s time to convert STL subtitles to SRT format.
 
@@ -220,6 +208,10 @@ Here is a stepwise guide on how to convert VOB to SRT.
 Step1 First of all, [sign up for the SONIX](https://sonix.ai/accounts/sign%5Fup) for getting free 30 min transcription(charges will be applied after that.)
 
 ![drag the video file](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-23.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step2 Now, you have to upload your VOB file by dragging it to the interface or by choosing it from your device, Dropbox or Google Drive.
 
@@ -357,6 +349,10 @@ This subtitle format contains encoding, duration, and content of subtitles like 
 
 ![ttml subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. TTML
 
 This is an XML-based format that has a somewhat complicated look with <> appearing in many places.
@@ -364,7 +360,7 @@ This is an XML-based format that has a somewhat complicated look with <> appeari
 ![convert ttml to srt](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-11.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. STL
@@ -374,7 +370,7 @@ This format of subtitles lacks a timing section like in SRT.
 ![stl subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. VOB
@@ -434,6 +430,10 @@ Step4 Once done, hit the “Convert” option from the right box to convert your
 
 ![convert xml to srt](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now onto converting TTML into SRT format.
 
 ## How to Convert TTML to SRT
@@ -467,10 +467,6 @@ Step1 Go to the [“STL to SRT Converter”](https://www.converthelper.net/stl-t
 Step2 Now upload your STL subtitle by hitting the “Upload” option.
 
 ![srt subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step3 After that, press the “Start Conversion” to convert your subtitles.
 
@@ -507,6 +503,10 @@ Step4 Once done, the audio in the VOB file will be automatically converted to SR
 Step5 After that, hit the “Export” button and a dropdown will appear.
 
 ![vob subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step6 Now select the “SubRip Subtitle file(.srt)” from there and click “Export.”
 
@@ -630,22 +630,22 @@ If you still have questions in your mind, leave them in the comment section belo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-how-to-switch-between-normal-and-picture-in-picture-views-in-youtube/"><u>[New] In 2024, How to Switch Between Normal and Picture In Picture Views in Youtube</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-the-ultimate-framework-for-fullscreen-proficiency-in-premiere/"><u>[New] The Ultimate Framework for Fullscreen Proficiency in Premiere</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-unveiling-the-power-of-free-countdown-tools-for-time-management/"><u>[New] Unveiling the Power of Free Countdown Tools for Time Management</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-how-to-swiftly-find-and-access-lost-reddit-discussions/"><u>[Updated] 2024 Approved How to Swiftly Find and Access Lost Reddit Discussions</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-screenflow-exploration-a-mac-focused-journey-through-video-editing/"><u>[Updated] 2024 Approved ScreenFlow Exploration A Mac-Focused Journey Through Video Editing</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-actual-fix-for-exporting-srt-from-premiere-not-working/"><u>[Updated] In 2024, The Actual Fix for Exporting SRT From Premiere Not Working</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-infuse-rhythms-into-your-whatsapp-story/"><u>[Updated] Infuse Rhythms Into Your WhatsApp Story</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-unveiling-sns-hdrs-strengths-and-comparative-software-for-2024/"><u>[Updated] Unveiling SNS HDR's Strengths & Comparative Software for 2024</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/comment-utiliser-linvite-de-commande-pour-reinitialiser-windows-11-simplement/"><u>Comment Utiliser L'Invite De Commande Pour Réinitialiser Windows 11 Simplement?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/detailed-assessment-editorpro-xs-the-ultimate-video-tool-for-2024/"><u>Detailed Assessment EditorPro XS, the Ultimate Video Tool for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/digital-dollar-first-steps-in-youtubers-revenue-for-2024/"><u>Digital Dollar First Steps in YouTubers' Revenue for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/diving-into-meta-vs-omni-realm-differences/"><u>Diving Into Meta Vs. Omni Realm Differences</u></a></li>
-<li><a href="https://article-posts.techidaily.com/highest-quality-costless-clocks-for-2024/"><u>Highest Quality Costless Clocks for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-alternatives-to-xsplit-for-efficient-media-management/"><u>In 2024, Alternatives to Xsplit for Efficient Media Management</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-microsoft-video-editor-for-dummies-a-step-by-step-guide/"><u>New 2024 Approved Microsoft Video Editor for Dummies A Step-by-Step Guide</u></a></li>
-<li><a href="https://article-posts.techidaily.com/pinnacle-windows-instant-image-viewer-for-2024/"><u>Pinnacle Window's Instant Image Viewer for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/ultimate-road-watch-select-automotive-cams/"><u>Ultimate Road Watch Select Automotive Cams</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-pioneering-macstreaming-avoiding-common-pitfalls-in-mixer-for-2024/"><u>[New] Pioneering MacStreaming Avoiding Common Pitfalls in Mixer for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-in-depth-tutorial-enhancing-meeting-experience-in-zoom-win10/"><u>[Updated] 2024 Approved In-Depth Tutorial Enhancing Meeting Experience in Zoom (Win10)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-harmonizing-platforms-linking-insta-and-tiktok/"><u>[Updated] Harmonizing Platforms Linking Insta & TikTok</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-hidden-gems-in-graphic-design-basics-for-2024/"><u>[Updated] Hidden Gems in Graphic Design Basics for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-impressive-book-trails-presented/"><u>[Updated] Impressive Book Trails Presented</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-compact-your-content-explore-the-most-admirable-33-video-reducers/"><u>[Updated] In 2024, Compact Your Content Explore the Most Admirable 33 Video Reducers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-eye-catching-images-windows-10s-screenshot-feature/"><u>[Updated] In 2024, Eye-Catching Images Windows 10'S Screenshot Feature</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-stop-personalized-recommendations-for-podcasts-on-spotify-for-2024/"><u>[Updated] Stop Personalized Recommendations for Podcasts on Spotify for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-navigating-the-nuances-of-snapchat-spotlight/"><u>2024 Approved Navigating the Nuances of Snapchat Spotlight</u></a></li>
+<li><a href="https://win11.techidaily.com/correcting-win10win11-system-alert-mishaps/"><u>Correcting Win10/Win11 System Alert Mishaps</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-15-without-passcode-4-easy-methods-by-drfone-ios/"><u>How To Unlock iPhone 15 Without Passcode? 4 Easy Methods</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-gamers-selection-top-livestraning-tech-picks/"><u>In 2024, Gamer's Selection Top Livestraning Tech Picks</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-realme-narzo-60-5g-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Realme Narzo 60 5G Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-pixel-perfect-free-mobile-photography-booster/"><u>In 2024, Pixel Perfect Free Mobile Photography Booster</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-transforming-your-single-picture-into-video-magic-with-pixiz/"><u>In 2024, Transforming Your Single Picture Into Video Magic with Pixiz</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-visionary-visual-story-conduit-suite/"><u>In 2024, Visionary Visual Story Conduit Suite</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-mkv-video-encoder-convert-your-videos-into-mkv-format-with-superior-quality/"><u>Top MKV Video Encoder - Convert Your Videos Into MKV Format with Superior Quality</u></a></li>
 </ul></div>
 

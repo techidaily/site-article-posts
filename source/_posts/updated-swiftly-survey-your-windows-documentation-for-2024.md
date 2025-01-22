@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Swiftly Survey Your Windows Documentation for 2024"
-date: 2025-01-15T17:06:46.202Z
-updated: 2025-01-16T16:12:04.231Z
+date: 2025-01-18T21:52:39.948Z
+updated: 2025-01-22T21:28:07.448Z
 tags: 
   - screen-recording
   - ai video
@@ -37,21 +37,17 @@ Step1 Open Microsoft Store and search for QuickLook. Make sure you select the op
 
 ![search for quicklook for windows on Microsoft store](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Once you find QuickLook, click “Get it” to download and install the app in your Windows operating system. At around 60MB, installing this preview app should be quick and easy.
 
 Step3 After successfully installing QuickLook, head to File Explorer and select any file you want to preview. Press the “Space” bar on your keyboard to view the file.
 
 ![preview video on quicklook for windows](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Unfortunately, you won’t preview the content inside the document file. Instead, you’ll only see details like the file type/format, size, image name, and more. You can also directly choose the opening app. As for videos and audio, the media file will automatically play on the QuickLook media player. But don’t fret because the following section will teach you to read your documents, presentations, PDFs, and other files on QuickLook without opening the file.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Get the App on GitHub
 
@@ -63,28 +59,28 @@ Step1 Visit the [QuickLook GitHub](https://github.com/QL-Win/QuickLook) page and
 
 ![click the latest quicklook for windows version](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Scroll down and download the .msi file. After downloading the installation file successfully, install it on your computer.
 
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
 
 ![install quicklook for windows plugins](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 After a successful installation, find the file you want to preview and select it. Then, tap the space bar to preview the files. And remember, browse ZIP files to view all content.
 
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
@@ -108,6 +104,10 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 #### 3\. Can QuickLook for Mac edit files?
 
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -143,21 +143,14 @@ This guidepost is another testament that your PC has massive hidden abilities. W
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-building-your-hyperlapse-filmmaking-toolkit/"><u>[New] 2024 Approved Building Your Hyperlapse Filmmaking Toolkit</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-filmora-tutorial-converting-avi-to-gif-seamlessly/"><u>[New] 2024 Approved Filmora Tutorial Converting AVI to GIF Seamlessly</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-enhancing-visual-impact-through-typeface-integration/"><u>[Updated] 2024 Approved Enhancing Visual Impact Through Typeface Integration</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-polarrs-full-spectrum-tools-your-go-to-guide-to-editing-excellence/"><u>[Updated] 2024 Approved Polarr's Full Spectrum Tools - Your Go-To Guide to Editing Excellence</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-best-10-apps-to-add-stickers-to-photos-for-iphone-and-android/"><u>[Updated] In 2024, Best 10 Apps to Add Stickers to Photos for iPhone and Android</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-ultimate-guide-to-capturing-life-in-sync-with-music/"><u>[Updated] In 2024, Ultimate Guide to Capturing Life in Sync With Music</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-top-10-aerial-crews-masters-of-photo-and-film/"><u>[Updated] Top 10 Aerial Crews Masters of Photo & Film</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Motorola Moto G34 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/auto-arcade-adventures-for-kids/"><u>Auto Arcade Adventures for Kids</u></a></li>
-<li><a href="https://article-posts.techidaily.com/flip-clips-android-reversal-technique-for-2024/"><u>Flip Clips Android Reversal Technique for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-exit-dfu-mode-on-iphone-13-mini-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit DFU Mode on iPhone 13 mini? | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-gagmaster-start-crafting-fun-videos-today/"><u>In 2024, GagMaster Start Crafting Fun Videos Today</u></a></li>
-<li><a href="https://win-answers.techidaily.com/joint-venture-update-united-force-still-in-development/"><u>Joint Venture Update: 'United Force' Still in Development</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/mastering-your-iphones-control-panel-customization-in-ios-18-featuring-tips-and-tricks/"><u>Mastering Your iPhone's Control Panel Customization in iOS 18, Featuring Tips & Tricks</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-iphone-6-plus-by-drfone-ios/"><u>New Multiple Ways How To Remove iCloud Activation Lock On your iPhone 6 Plus</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-the-ultimate-handbook-obspluszoom-collaboration/"><u>[New] 2024 Approved The Ultimate Handbook OBS+Zoom Collaboration</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-extract-hd-pics-from-facebook-profile-for-2024/"><u>[New] Extract HD Pics From Facebook Profile for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-alternate-avenues-a-compilation-of-non-gta-games/"><u>[New] In 2024, Alternate Avenues A Compilation of Non-GTA Games</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-unlock-the-secrets-of-your-lost-iphone-x/"><u>[Updated] 2024 Approved Unlock the Secrets of Your Lost iPhone X</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-comprehensive-review-of-lg-bp350-display-technology-and-capabilities/"><u>2024 Approved Comprehensive Review of LG BP350 Display Technology and Capabilities</u></a></li>
+<li><a href="https://win-premium.techidaily.com/comprehensive-instructions-for-rebooting-your-pc-factory-resetting-windows-11-through-the-control-panel-interface/"><u>Comprehensive Instructions for Rebooting Your PC - Factory Resetting Windows 11 Through the Control Panel Interface</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/experience-crystal-clear-vision-at-a-bargain-get-the-pixel-dense-samsung-viewfinity-s9-monitor-for-899-featuring-5k-resolution-and-built-in-webcam-limited-t44/"><u>Experience Crystal Clear Vision at a Bargain: Get the Pixel-Dense Samsung ViewFinity S9 Monitor for $899, Featuring 5K Resolution and Built-In Webcam - Limited Time Offer, Save 44%!</u></a></li>
+<li><a href="https://article-posts.techidaily.com/peeling-back-layers-of-the-apple-m1-chip/"><u>Peeling Back Layers of the Apple M1 Chip</u></a></li>
+<li><a href="https://article-posts.techidaily.com/streamlining-media-formats-from-srt-to-advanced-standards/"><u>Streamlining Media Formats From SRT to Advanced Standards</u></a></li>
 </ul></div>
 

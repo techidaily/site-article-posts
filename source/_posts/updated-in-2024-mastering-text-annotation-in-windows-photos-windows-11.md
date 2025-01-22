@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Mastering Text Annotation in Windows Photos (Windows 11)"
-date: 2025-01-11T16:41:07.496Z
-updated: 2025-01-16T17:06:21.384Z
+date: 2025-01-16T20:37:29.226Z
+updated: 2025-01-22T20:03:12.766Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,6 @@ Adding the titles/text to video is a great way to explain the people about a cer
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Add Titles/Text to Video on Photos in Windows 10
 
 Do you wish to add titles/text to video on Photos in Windows 10 for your video projects? You may not get several options for video editing in spite of some powerful addition of application in Microsoft Store. But, the Windows 10 Photos app feature offers an add-on for creating video from your phone’s media. Let’s learn how to add titles/text to video on Photos in Windows 10.
@@ -51,14 +47,14 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
@@ -76,7 +72,7 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
@@ -86,17 +82,21 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -130,20 +130,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-become-an-instagram-star-expert-5-strategies-and-illustrative-examples-for-2024/"><u>[New] Become an Instagram Star Expert 5 Strategies and Illustrative Examples for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-expert-review-of-vivacuts-latest-edits-and-enhancements/"><u>[New] In 2024, Expert Review of VivaCut's Latest Edits and Enhancements</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-dissecting-the-difference-360-video-and-vr-filmmaking-for-2024/"><u>[Updated] Dissecting the Difference 360 Video and VR Filmmaking for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-gigglegallery-craft-and-share-your-own-funny-faces/"><u>2024 Approved GiggleGallery Craft and Share Your Own Funny Faces</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/a-comprehensive-guide-to-lut-customization-in-premiere-pro-workflows/"><u>A Comprehensive Guide to LUT Customization in Premiere Pro Workflows</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/combatting-the-trickbot-menace-expert-insights-on-prevention-and-security-secureshield-tech/"><u>Combatting the TrickBot Menace: Expert Insights on Prevention and Security - SecureShield Tech</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Lava Blaze Curve 5G | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-behind-the-scenes-of-making-memes-funny/"><u>In 2024, Behind-the-Scenes of Making Memes Funny</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-crafting-gentle-volume-declines-using-logic-pro/"><u>In 2024, Crafting Gentle Volume Declines Using Logic Pro</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-obs-studio-and-lut-application-guide-for-professional-cinematographers/"><u>In 2024, OBS Studio & LUT Application Guide for Professional Cinematographers</u></a></li>
-<li><a href="https://article-posts.techidaily.com/quick-corrections-for-iphone-shot-blur-issues/"><u>Quick Corrections for iPhone Shot Blur Issues</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/remove-the-lock-screen-fingerprint-of-your-infinix-note-30-vip-racing-edition-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Infinix Note 30 VIP Racing Edition</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/revolutionizing-the-way-you-engage-early-on-in-listening-for-2024/"><u>Revolutionizing the Way You Engage Early on in Listening for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/tech-review-showdown-comparing-gopros-hero5-and-garmin-virb-2e-for-2024/"><u>Tech Review Showdown Comparing GoPro's Hero5 and Garmin VIRB (2E) for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/the-ls-showdown-tech-titans-clashing-in-real-time/"><u>The LS Showdown Tech Titans Clashing in Real Time</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-petite-plot-puzzle-piece/"><u>[New] Petite Plot Puzzle Piece</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-learn-everything-about-3d-lut-creator-and-mobile-app/"><u>[Updated] In 2024, Learn Everything About 3D LUT Creator & Mobile App</u></a></li>
+<li><a href="https://article-posts.techidaily.com/craft-your-own-cinematic-magic-making-slow-motion-video-from-photo-apps-for-2024/"><u>Craft Your Own Cinematic Magic Making Slow Motion Video From Photo Apps for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/demystifying-blue-screen-errors-through-microsofts-tools-in-w11/"><u>Demystifying Blue Screen Errors Through Microsoft's Tools in W11</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/from-avi-images-to-graphics-a-complete-filmora-walkthrough-for-2024/"><u>From AVI Images to Graphics A Complete Filmora Walkthrough for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/from-startup-to-vr-pro-a-guide-to-playing-steam-titles-using-meta-quest-headset/"><u>From Startup to VR Pro: A Guide to Playing Steam Titles Using Meta Quest Headset</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-asus-proart-pa-329q-professional-4k-monitor-review/"><u>In 2024, Asus ProArt PA 329Q Professional 4K Monitor Review</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-oppo-f25-pro-5g-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Oppo F25 Pro 5G to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/master-cams-for-clay-character-creation-for-2024/"><u>Master Cams for Clay Character Creation for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/nostalgia-revue-old-school-review-of-the-goofys-for-2024/"><u>Nostalgia Revue Old-School Review of The Goofys for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/overcome-canons-non-print-dilemma-with-these-quick-fixes-in-windows-11/"><u>Overcome Canon's Non-Print Dilemma with These Quick Fixes in Windows 11</u></a></li>
+<li><a href="https://techidaily.com/will-galaxy-a24-play-avchd-mts-files-by-aiseesoft-video-converter-play-mts-on-android/"><u>Will Galaxy A24 play AVCHD mts files?</u></a></li>
 </ul></div>
 

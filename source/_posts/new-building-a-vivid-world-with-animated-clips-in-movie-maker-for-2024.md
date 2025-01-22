@@ -1,7 +1,7 @@
 ---
 title: "[New] Building a Vivid World with Animated Clips in Movie Maker for 2024"
-date: 2025-01-11T16:40:45.880Z
-updated: 2025-01-16T16:19:37.964Z
+date: 2025-01-20T22:14:21.189Z
+updated: 2025-01-22T19:56:51.693Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ On your PC, launch Windows Movie Maker. Windows Movie Maker, however, has to be 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note:** You have the option to upload one file at a time or many files simultaneously.
@@ -58,7 +58,7 @@ You may add two distinct types of animations—Transitions and Pan and Zoom—to
 ![animation tab movie maker](https://images.wondershare.com/filmora/article-images/2022/09/animation-tab-movie-maker.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step4Add Transitions
@@ -67,19 +67,11 @@ Between two multimedia portions, a transition effect may be added. In the "Anima
 
 ![add transitions movie maker](https://images.wondershare.com/filmora/article-images/2022/09/add-transitions-movie-maker.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step5Save the Video
 
 When a transition is applied, a washed-out diagonal zone on the clip in the timeline indicates where the transition starts and finishes. Additionally, you have a choice in the sequence in which the effects are used. This may change how the movie is finally shown depending on the Effects, you choose. Once you're done, click Apply.
 
 ![save animation video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/save-animation-video-movie-maker.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. Movie Maker Alternative to Add Animations
 
@@ -127,6 +119,10 @@ If you wish to clip off a section, go to "Edit" under "Video Tools" and choose t
 
 ![preview video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/preview-video-movie-maker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step3Open the Animation Tab
 
 You may add two distinct types of animations—Transitions and Pan and Zoom—to video clips or photographs using the Animations window on the ribbon. The dropdown menu next to "Speed" in the "Edit" tab may be expanded to change the speed of a video clip. The 'Duration' dropdown menu allows you to choose how long a certain image will be shown in a movie.
@@ -144,6 +140,10 @@ Between two multimedia portions, a transition effect may be added. In the "Anima
 When a transition is applied, a washed-out diagonal zone on the clip in the timeline indicates where the transition starts and finishes. Additionally, you have a choice in the sequence in which the effects are used. This may change how the movie is finally shown depending on the Effects, you choose. Once you're done, click Apply.
 
 ![save animation video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/save-animation-video-movie-maker.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. Movie Maker Alternative to Add Animations
 
@@ -172,7 +172,7 @@ Filmora helps you create your text animation using the controller window as seen
 The software's Preview window also allows you to preview the animation you've selected before adding it to the timeline with a few simple drag-and-drop actions. After finishing the production and editing of the instructional video, you may save it for distribution on social media. You may choose to save the document as an MP4, WMV, AVI, MOV, or even a GIF file.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3\. Related FAQs about Windows Movie Maker
@@ -213,16 +213,20 @@ Simple movies may be easily made using Windows Live Movie Maker. With Windows Vi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-direct-viewing-verdict-obs-vs-shadowcast/"><u>[New] 2024 Approved Direct Viewing Verdict OBS vs ShadowCast</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-reimagining-editing-processes-the-revolutionary-world-of-magix-video-pro-x/"><u>[New] Reimagining Editing Processes The Revolutionary World of Magix Video Pro X</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-total-physical-action-scrutiny/"><u>[New] Total Physical Action Scrutiny</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-unveiling-top-criteria-for-selecting-fpv-drones-propellers/"><u>[New] Unveiling Top Criteria for Selecting FPV Drones' Propellers</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-hero5-black-vs-yi-4k-which-takes-the-crown-in-action-cam-war/"><u>[Updated] Hero5 Black Vs. Yi 4K Which Takes the Crown in Action Cam War?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-boost-engagement-in-stories-tips-for-adding-smoothly-animated-text/"><u>[Updated] In 2024, Boost Engagement in Stories Tips for Adding Smoothly Animated Text</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-convert-talk-to-text-the-costless-alternative/"><u>[Updated] In 2024, Convert Talk to Text The Costless Alternative</u></a></li>
-<li><a href="https://win-best.techidaily.com/1-free-2019-nye-party-dj-playlist-download-ultimate-countdown-mixes-for-the-new-year/"><u>1. Free 2019 NYE Party DJ Playlist Download: Ultimate Countdown Mixes for the New Year</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-arctic-athleticism-revealed-the-top-of-the-line-in-olympic-snowboard-cross/"><u>In 2024, Arctic Athleticism Revealed The Top of the Line in Olympic Snowboard Cross</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-vivo-y36-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Vivo Y36 for Free? | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/streamlining-workflow-integrating-wordpad-shortcuts-into-context-menus-on-windows-11/"><u>Streamlining Workflow: Integrating WordPad Shortcuts Into Context Menus on Windows 11</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-agile-quick-windows-picture-sorter/"><u>[New] In 2024, Agile Quick Windows Picture Sorter</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-fun-filled-photography-how-to-use-lens-on-snapchat-for-playfulness/"><u>[New] In 2024, Fun-Filled Photography How To Use Lens on Snapchat for Playfulness</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-photo-sharpening-mastery-with-1-10-online-editors/"><u>[New] In 2024, Photo Sharpening Mastery with #1-10 Online Editors</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-affordable-panoramic-cameras-under-100/"><u>[New] Top Affordable Panoramic Cameras Under $100</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-transform-your-account-with-these-10-must-have-ig-tools/"><u>[Updated] 2024 Approved Transform Your Account with These 10 Must-Have IG Tools</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-craft-humorous-memes-with-giphy-for-2024/"><u>[Updated] Craft Humorous Memes with Giphy for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-visual-symphony-choosing-background-music/"><u>[Updated] In 2024, Visual Symphony Choosing Background Music</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-innovative-auditory-transitions-with-logic-pro-x/"><u>[Updated] Innovative Auditory Transitions with Logic Pro X</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-mastering-cost-effective-techniques-in-text-animations-for-2024/"><u>[Updated] Mastering Cost-Effective Techniques in Text Animations for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-powerhouse-modifications-top-10-os-xwin-srt-systems-unveiled-for-2024/"><u>[Updated] Powerhouse Modifications Top 10 OS X/Win SRT Systems Unveiled for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-perfect-pitch-in-words-crafting-captivating-podcast-episodes/"><u>2024 Approved Perfect Pitch in Words Crafting Captivating Podcast Episodes</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-update-your-hid-keyboards-driver-with-simple-steps/"><u>Download & Update Your HID Keyboard's Driver with Simple Steps</u></a></li>
+<li><a href="https://techtrends.techidaily.com/expert-advice-on-stealthy-web-navigation-and-maintaining-privacy/"><u>Expert Advice on Stealthy Web Navigation and Maintaining Privacy</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-revolutionize-your-ig-feed-with-these-elite-grid-creation-apps/"><u>In 2024, Revolutionize Your IG Feed with These Elite Grid Creation Apps</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-ultimate-recorders-companion-for-clear-notes/"><u>The Ultimate Recorder's Companion for Clear Notes</u></a></li>
 </ul></div>
 
