@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Vintage Visions  Older Tech, Modern Memories for 2024\""
-date: 2025-01-18T19:31:59.225Z
-updated: 2025-01-22T17:39:02.230Z
+date: 2025-01-28T06:18:53.680Z
+updated: 2025-01-29T22:51:30.733Z
 tags: 
   - screen-recording
   - ai video
@@ -36,13 +36,17 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips for iPhone portrait photos
 
 * [Part 1: For iPhone 7 Plus/8 Plus/X users](#part1)
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### For iPhone 7 Plus/8 Plus/X users
 
@@ -53,10 +57,6 @@ The quality of cameras on iPhones has been improving over the years, and Portrai
 However, the Portrait Mode is only featured on iOS 10.1 or some more recent versions of the iOS, so if you want to use the Portrait Mode you need to upgrade your device's iOS. After you launched the camera app, swipe left and look for the Portrait Mode. Once you find the feature, make sure it is marked yellow, in order to start using its tools. The app will display several different lighting options including the Natural Light preset that is essential for creating photos with Portrait Lightning.
 
 ![portrait-mode-iphone](https://images.wondershare.com/filmora/article-images/portrait-mode-iphone.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Image resource: 9to5mac
 
@@ -74,10 +74,6 @@ Launch the Camera app, and swipe to the Portrait option, and then tap on the Cam
 
 If there is not enough light or if you are too far away from the camera, the app will show messages that remind you to add more light to your shot or hold the camera closer to the subject of the photo. It is worth noting that the app will not let you take a photo until you do everything that messages on the screen demand from you. However, the Portrait Mode doesn't allow you to take several photos at once, but it still produces amazing pictures that can be easily shared on social media.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### For iPhone 8, 7 or older iPhones users
 
 #### [FabFocus](https://itunes.apple.com/us/app/fabfocus-portraits-with-depth-and-bokeh/id1080434313?mt=8)
@@ -88,10 +84,6 @@ If there is not enough light or if you are too far away from the camera, the app
 
 ![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Older iPhone models may not have a twin-lens system, but with the aid of a camera app such as FabFocus, iPhone photographers can easily take photos with smooth blurry backgrounds. The Automatic Depth of Field and Bokeh options enable you to add as much blur as you want to your photos and create DSLR-like images. The app also contains basic photo editing tools that can be used to touch-up the photo before you share it with your friends.
 
 #### [Tadaa SLR](https://itunes.apple.com/us/app/tadaa-slr/id724662909?mt=8)
@@ -101,6 +93,10 @@ Older iPhone models may not have a twin-lens system, but with the aid of a camer
 **Compatible with:** iOS 8.0 or later
 
 ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
 
@@ -123,12 +119,16 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -155,24 +155,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-essential-details-on-creating-effective-yt-shorts-for-2024/"><u>[New] Essential Details on Creating Effective YT Shorts for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-easing-into-frame-focus/"><u>[New] In 2024, Easing Into Frame Focus</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-unmatched-4k-experience-the-premier-top-eight-list/"><u>[New] In 2024, Unmatched 4K Experience The Premier Top Eight List</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-advanced-tools-tweet-with-converted-videos/"><u>[Updated] Advanced Tools Tweet with Converted Videos</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-analyzing-lightroom-for-mobile-a-detailed-exploration-for-2024/"><u>[Updated] Analyzing Lightroom for Mobile A Detailed Exploration for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-explore-top-affordable-online-resources-your-dream-toolkit-for-visual-filmmaking-for-2024/"><u>[Updated] Explore Top Affordable Online Resources - Your Dream Toolkit for Visual Filmmaking for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-key-tactics-for-identifying-potential-youtube-co-stars/"><u>[Updated] Key Tactics for Identifying Potential YouTube Co-Stars</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-triller-unveiled-the-non-tiktok-tiktok-alternatives-secrets/"><u>[Updated] Triller Unveiled The Non-TikTok, TikTok Alternative's Secrets</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-snapchat-for-mac-users-install-and-enjoy/"><u>2024 Approved Snapchat for MAC Users - Install and Enjoy</u></a></li>
-<li><a href="https://discover-help.techidaily.com/effortless-online-conversion-of-avchd-files-to-mov-free-methods-explored/"><u>Effortless Online Conversion of AVCHD Files to MOV – Free Methods Explored</u></a></li>
-<li><a href="https://article-posts.techidaily.com/essential-tips-for-applying-luts-in-adobe-photoshop-cc-for-2024/"><u>Essential Tips for Applying LUTs in Adobe PhotoShop CC for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/free-image-repository-roundup-top-10-sites-reviewed/"><u>Free Image Repository Roundup Top 10 Sites Reviewed</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/harmonizing-movies-imovie-music-essentials/"><u>Harmonizing Movies IMovie Music Essentials</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-oneplus-nord-3-5g-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from OnePlus Nord 3 5G to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Meizu 21 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-change-samsung-galaxy-s23-tactical-edition-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Samsung Galaxy S23 Tactical Edition Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-use-life360-on-windows-pc-for-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Honor Magic 5 Lite? | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-construct-chuckles-adobe-meme-creation/"><u>In 2024, Construct Chuckles Adobe Meme Creation</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-unveiling-superior-viewing-with-a-closer-examination-of-p2715q/"><u>In 2024, Unveiling Superior Viewing with a Closer Examination of P2715Q</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-captivate-audiences-quickly-shortcuts-for-youtube-trailers-with-filmora/"><u>[New] 2024 Approved Captivate Audiences Quickly Shortcuts for YouTube Trailers with Filmora</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-unlocking-the-potential-of-videoleaps-zoom-functionality/"><u>[New] 2024 Approved Unlocking the Potential of VideoLeap's Zoom Functionality</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-pro-camera-selection-guide-top-10-films-tools-ranked/"><u>[New] Pro Camera Selection Guide - Top 10 Films Tools Ranked</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-transform-your-pubg-audio-gameplay-fast/"><u>[New] Transform Your PUBG Audio Gameplay Fast</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-leading-sites-for-extracting-text-aesthetics-packs/"><u>[Updated] 2024 Approved Leading Sites for Extracting Text Aesthetics Packs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-ultimate-guide-to-implementing-podcast-seo/"><u>[Updated] 2024 Approved The Ultimate Guide to Implementing Podcast SEO</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-pixelated-panoramas-instaslideshow-for-2024/"><u>[Updated] Pixelated Panoramas InstaSlideShow for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-the-quintessential-ten-hexa-flights/"><u>2024 Approved The Quintessential Ten Hexa-Flights</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-blur-out-not-your-photos-top-10-edits-to-fix-fuzziness/"><u>In 2024, Blur Out, Not Your Photos! Top 10 Edits to Fix Fuzziness</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-infinix-note-30i-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Infinix Note 30i FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/top-budget-friendly-4k-capture-devices-for-2024/"><u>Top Budget-Friendly 4K Capture Devices for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unmissable-35plus-tablet-discounts-on-prime-day-2atury-2024-active-deals-curated-by-zdnet/"><u>Unmissable 35+ Tablet Discounts on Prime Day 2Atury 2024: Active Deals Curated by ZDNET</u></a></li>
 </ul></div>
 

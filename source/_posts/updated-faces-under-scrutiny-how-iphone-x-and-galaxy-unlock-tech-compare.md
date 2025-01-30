@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Faces Under Scrutiny  How iPhone X and Galaxy Unlock Tech Compare\""
-date: 2025-01-19T16:05:49.158Z
-updated: 2025-01-22T17:18:19.722Z
+date: 2025-01-25T09:16:29.307Z
+updated: 2025-01-30T01:02:45.101Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/2ba5849aea90d4e5d7bbd18adc2a2c9c0f1eeac29
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How does it work?
 
  This section will cover how the face recognition technology works for both the devices. Check out the process.
@@ -59,11 +55,7 @@ thumbnail: https://thmb.techidaily.com/2ba5849aea90d4e5d7bbd18adc2a2c9c0f1eeac29
 ![Samsung](https://images.wondershare.com/filmora/article-images/Samsung-Galaxy-S8-Face-Unlock.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Which one is more Accuracy?
@@ -71,6 +63,10 @@ thumbnail: https://thmb.techidaily.com/2ba5849aea90d4e5d7bbd18adc2a2c9c0f1eeac29
  Being accurate is a considerable issue with face recognition technology if you are using a Samsung device. On the other hand, iPhone X shows accuracy than Samsung since it analyzes the whole face instead of iris. For Samsung’s iris scanner, the camera contains a confined and narrowly designed focus where is exactly your iris needed to be for scanning. The camera will able to recognize only when your iris will be in that same place for long where it focuses. And therefore, there are times when you left with holding your device high for better iris detection. Apple has no such accuracy issue for it takes your face to recognize.
 
 ![iPhone X accuracy](https://images.wondershare.com/filmora/article-images/iphone-x-accuracy.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: The Common Inconvenience
 
@@ -83,7 +79,7 @@ thumbnail: https://thmb.techidaily.com/2ba5849aea90d4e5d7bbd18adc2a2c9c0f1eeac29
 ![face ID incovenience](https://images.wondershare.com/filmora/article-images/face-incovenience.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Safety Issue
@@ -96,19 +92,23 @@ thumbnail: https://thmb.techidaily.com/2ba5849aea90d4e5d7bbd18adc2a2c9c0f1eeac29
 
 ![face ID issue](https://images.wondershare.com/filmora/article-images/face-id-issue.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  On the other hand, Samsung also doesn’t lag behind when it comes to safety and security with face recognition feature. Samsung is the first Android device company to introduce face recognition technology that brought iris scanning technology with its Galaxy Note 7\. The technology does it job by detecting the iris’ pattern of your eyes. As far as security is concerned, the technology gets 10 on 10 since each person possesses unique iris pattern and it becomes difficult to replicate. The devices by Samsung having face recognition technology are designed with infrared diode which is capable
 
  All in all, both the companies have put extra effort in justifying the safety with trending face recognition technology. However, we are not certain for full reliability of them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
  The technology of facial recognition isn’t new to us and it has made people excited from the time it has come. However, many users have not started using the technology yet. We hope that this functionality will gain the popularity with time and people will start to make use of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -135,20 +135,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-elevating-efficiency-with-best-heavy-haulers-drone/"><u>[New] 2024 Approved Elevating Efficiency with Best Heavy Haulers Drone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-nine-techniques-for-reversing-livestream-engagement/"><u>[New] 2024 Approved Nine Techniques for Reversing Livestream Engagement</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-superior-ai-photo-cutting-master/"><u>[Updated] 2024 Approved Superior AI Photo Cutting Master</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-hilarious-hub-highest-rated-free-meme-archives/"><u>[Updated] Hilarious Hub Highest-Rated Free Meme Archives</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-inside-look-analyzing-androids-photoshop-substitute-lightroom/"><u>[Updated] In 2024, Inside Look Analyzing Android's Photoshop Substitute, Lightroom</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-pioneering-business-through-virtual-realitiescape/"><u>[Updated] Pioneering Business Through Virtual Realitiescape</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-top-ae-titles-for-striking-visual-impact-for-2024/"><u>[Updated] Top AE Titles for Striking Visual Impact for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-advanced-techniques-for-sharper-screen-collaboration/"><u>2024 Approved Advanced Techniques for Sharper Screen Collaboration</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-steps-to-remove-unseen-portions-in-streamed-youtube-videos/"><u>2024 Approved Steps to Remove Unseen Portions in Streamed YouTube Videos</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-best-editing-software-for-professional-dji-videos/"><u>2024 Approved The Best Editing Software for Professional DJi Videos</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-lava-yuva-2-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Lava Yuva 2</u></a></li>
-<li><a href="https://games-able.techidaily.com/ea-plays-costly-hike-subscription-is-over-for-me/"><u>EA Play’s Costly Hike, Subscription Is Over for Me</u></a></li>
-<li><a href="https://driver-install.techidaily.com/get-your-usb-tools-instantly-no-complications-just-downloads/"><u>Get Your USB Tools Instantly – No Complications, Just Downloads</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-vivo-x-flip-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Vivo X Flip without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/premier-6-discreet-movie-downloader-pros-for-2024/"><u>Premier 6 Discreet Movie Downloader Pros for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-focus-on-clarity-top-10-phones-excelling-at-4k-video-recording/"><u>[New] 2024 Approved Focus on Clarity Top 10 Phones Excelling at 4K Video Recording</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-crafting-an-ideal-speech-translation-experience-in-google/"><u>[New] Crafting an Ideal Speech Translation Experience in Google</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-effortless-electronic-exchange-how-to-transfer-files/"><u>[New] Effortless Electronic Exchange How To Transfer Files</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-filmora-fusion-a-comprehensible-comparative-guide/"><u>[New] Filmora Fusion A Comprehensible Comparative Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-fast-fixes-to-skyrocket-your-podcast-live/"><u>[Updated] 2024 Approved Fast Fixes to Skyrocket Your Podcast Live</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-instagram-melodies-compliance-and-policies-for-2024/"><u>[Updated] Instagram Melodies Compliance and Policies for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-secrets-revealed-effective-facebook-video-publishing-techniques/"><u>[Updated] Secrets Revealed Effective Facebook Video Publishing Techniques</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-ultimate-cyber-companion-tone-downloads-guide-for-2024/"><u>[Updated] Ultimate Cyber Companion Tone Downloads Guide for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-essential-guide-to-whatsapp-hacks-and-features/"><u>2024 Approved The Essential Guide to WhatsApp Hacks and Features</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/guide-successfully-opening-and-viewing-avi-videos-on-windows-11/"><u>Guide: Successfully Opening and Viewing AVI Videos on Windows 11</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/humorhub-generate-hilarious-jokes-and-gifs-easily/"><u>HumorHub Generate Hilarious Jokes and GIFs Easily</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-visualize-vibrancy-generate-memes-with-kapwing/"><u>In 2024, Visualize Vibrancy Generate Memes with Kapwing</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ipad-air-5th-gen-analysis-why-apples-latest-m2-powered-tablet-is-a-must-have-for-consumers-insights-from-zdnet/"><u>IPad Air (5Th Gen) Analysis: Why Apple’s Latest M2-Powered Tablet Is a Must-Have for Consumers – Insights From ZDNet</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-streamline-your-mpeg2-videos-with-virtualdub-compression/"><u>New 2024 Approved Streamline Your MPEG2 Videos with VirtualDub Compression</u></a></li>
+<li><a href="https://article-posts.techidaily.com/snapshots-of-progress-windows-10s-new-features/"><u>Snapshots of Progress Windows 10'S New Features</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-anatomy-of-internet-culture-decoding-what-memes-are-all-about/"><u>The Anatomy of Internet Culture: Decoding What Memes Are All About</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-guide-mastering-splitting-your-screen-on-apples-macbook-air/"><u>Ultimate Guide: Mastering Splitting Your Screen on Apple's MacBook Air</u></a></li>
 </ul></div>
 
