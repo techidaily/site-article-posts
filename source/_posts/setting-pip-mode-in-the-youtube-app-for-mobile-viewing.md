@@ -1,7 +1,7 @@
 ---
 title: "Setting PIP Mode in the YouTube App for Mobile Viewing"
-date: 2025-01-27T09:19:18.355Z
-updated: 2025-01-30T02:36:17.118Z
+date: 2025-02-06T10:08:06.716Z
+updated: 2025-02-10T16:09:25.704Z
 tags: 
   - screen-recording
   - ai video
@@ -40,13 +40,17 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 ![enable pip on iphone](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. If you require a **YouTube PIP** shortcut app on your device to proceed, you can download it from App Store or [the Shortcuts Gallery browser](https://shortcutsgallery.com/shortcuts/youtube-pip/) and then add it to your Shortcut Library.
 2. Open the **YouTube PIP** Shortcut and tap **Get Shortcut** on the App. You will be redirected to the shortcut application on your phone. If you don't have the shortcut application, you can download it from the App Store.
 
 ![shortcut application](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Tap **Allow Untrusted Shortcuts** in the Shortcut Application on your device
 2. Now go to the actual YouTube App and start to play a video
@@ -56,10 +60,6 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 6. Tap on the burner that pops out. It will direct you to the actual shortcut for YouTube. And you will need to install an additional Application (Scriptable App).
 
 ![scriptable app](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. Tap on **View in App Store** on the screen that appears. This will direct you to the App Store.
 2. On the next screen that appears, download [**Scriptable App**](https://apps.apple.com/us/app/scriptable/id1405459188). Get back to the home screen and launch Scriptable App once.
@@ -73,7 +73,7 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 And there you go, now you will be able to watch your videos on a floating screen. This procedure may be pretty tedious, but it is all worth it if you follow keenly to the end. You will do it only once.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. How to Disable Picture in Picture for YouTube on iPhone
@@ -87,16 +87,12 @@ To use PIP on iPhone effectively, you may sometime need to deactivate it so that
 5. Tap the switch button to switch it off. And there you are. You have disabled PIP for YouTube on iPhone.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3\. How to enable Picture in Picture for YouTube on Mac and iPad
 
 Picture in Picture is now a native quality utility feature on many Apps on different platforms. PIP has stayed for some time since it was developed and introduced for third-party utilization. However, YouTube is still left out of this. To enable PIP on Mac, you will need to go a step ahead to do it. Enjoying PIP on an iPad is also not a straightforward thing. All the same, Mac and iPad require very simple instructions to allow you to use Picture in Picture with them.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### PIP on iPad
 
@@ -135,6 +131,10 @@ And with the Control Commands, you can get into PIP on Mac very easily in only t
 
 ![get into pip on mac](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Picture in Picture is a computer utility feature in the USA. It has not been launched in most parts of the globe. Therefore, these instructions may not work for everyone because they are only supported on devices in the USA. Very soon everyone will be able to enjoy Picture in Picture everywhere as its development attract the world.
@@ -169,24 +169,18 @@ Picture in Picture is a computer utility feature in the USA. It has not been lau
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-optimal-free-cam-viewer-with-snatch-feature/"><u>[New] 2024 Approved Optimal Free Cam Viewer with Snatch Feature</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-engineer-ethical-emojis-on-giphy/"><u>[New] Engineer Ethical Emojis on Giphy</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-unlocking-the-secrets-of-effective-podcast-names-plus-50plus-inspirations/"><u>[New] In 2024, Unlocking the Secrets of Effective Podcast Names, Plus 50+ Inspirations</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-sleep-inducing-screenplays-video-evaluation/"><u>[New] Sleep-Inducing Screenplays Video Evaluation</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-the-gopro-camera-leap-hero4-to-hero5-for-2024/"><u>[New] The GoPro Camera Leap (Hero4 to Hero5) for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-perfecting-zoom-on-snapchat-for-better-snaps/"><u>[Updated] 2024 Approved Perfecting Zoom on Snapchat for Better Snaps</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-boost-your-tv-experience-automatic-loops-of-youtube-videos-for-2024/"><u>[Updated] Boost Your TV Experience Automatic Loops of YouTube Videos for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-dji-sky-artistry-experiment-with-color-filters-at-zero-cost/"><u>[Updated] DJI Sky Artistry - Experiment with Color Filters at Zero Cost</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-from-novice-to-pro-periscope-stream-mastery-for-2024/"><u>[Updated] From Novice to Pro Periscope Stream Mastery for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-crafting-excellent-canon-time-lapse-visuals/"><u>[Updated] In 2024, Crafting Excellent Canon Time-Lapse Visuals</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-hdmi-display-showdown-the-creme-de-la-creme-monitors/"><u>[Updated] In 2024, HDMI Display Showdown The Crème De La Crème Monitors</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-complete-guide-to-crafting-luts-in-3d/"><u>[Updated] In 2024, The Complete Guide to Crafting LUTs in 3D</u></a></li>
-<li><a href="https://fox-http.techidaily.com/discover-the-best-8-websites-where-gleaming-gold-meets-3d-for-2024/"><u>Discover the Best 8 Websites Where Gleaming Gold Meets 3D for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/o-make-a-great-educational-video-for-youtube-for-2024/"><u>How to Make a Great Educational Video for YouTube for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-itel-p55t-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Itel P55T Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/in-depth-analysis-of-oneplus-9-pro-unmatched-style-performance-and-photography-experience/"><u>In-Depth Analysis of OnePlus 9 Pro: Unmatched Style, Performance & Photography Experience</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/maximize-windows-10-sound-output-for-a-loud-and-clear-experience/"><u>Maximize Windows 10 Sound Output for a Loud and Clear Experience</u></a></li>
-<li><a href="https://howto.techidaily.com/realme-narzo-60-5g-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Realme Narzo 60 5G Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/trasforma-le-tue-foto-in-arti-con-il-powerful-editor-fotografico-di-movavi-photo-su-internet/"><u>Trasforma Le Tue Foto in Arti Con Il Powerful Editor Fotografico Di Movavi Photo Su Internet</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-ultimate-reddit-winners-a-collection-of-best-posts/"><u>[New] Ultimate Reddit Winners A Collection of Best Posts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-tips-for-embedding-time-stamps-in-youtube-clips/"><u>[Updated] 2024 Approved Tips for Embedding Time Stamps in YouTube Clips</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-essential-guide-to-youtubes-premier-unboxers/"><u>[Updated] In 2024, Essential Guide to YouTube's Premier Unboxers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-ultra-30-garmin-camera-a-comprehensive-evaluation/"><u>[Updated] In 2024, Ultra 30 Garmin Camera - A Comprehensive Evaluation</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-quiet-cinematic-dialogue-draft/"><u>[Updated] Quiet Cinematic Dialogue Draft</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-venture-into-virtuality-comprehensively-reviewing-top-10-vr-streamers-for-2024/"><u>[Updated] Venture Into Virtuality Comprehensively Reviewing Top 10 VR Streamers for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/beyond-reality-mastering-the-subtleties-of-ps-distortions/"><u>Beyond Reality Mastering the Subtleties of PS Distortions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-htc-u23-pro-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from HTC U23 Pro</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-tricks-to-taper-down-video-playback-speed-in-snapchat/"><u>In 2024, Tricks to Taper Down Video Playback Speed in Snapchat</u></a></li>
+<li><a href="https://fox-access.techidaily.com/mastering-moments-how-to-utilize-inshots-segmentation-power/"><u>Mastering Moments How to Utilize Inshot's Segmentation Power</u></a></li>
+<li><a href="https://article-posts.techidaily.com/navigating-asmrs-influence-on-your-life/"><u>Navigating ASMR’s Influence on Your Life</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-vivo-y55s-5g-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/tune-trailblazers-discovering-melodies-on-the-move/"><u>Tune Trailblazers: Discovering Melodies on the Move</u></a></li>
 </ul></div>
 

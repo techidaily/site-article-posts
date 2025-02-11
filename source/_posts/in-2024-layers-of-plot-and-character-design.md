@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Layers of Plot and Character Design"
-date: 2025-01-27T05:48:20.043Z
-updated: 2025-01-30T01:24:38.170Z
+date: 2025-02-04T00:20:30.092Z
+updated: 2025-02-11T02:38:50.170Z
 tags: 
   - screen-recording
   - ai video
@@ -26,6 +26,10 @@ A screenplay is a **written text that serves as the foundation for film producti
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. What is a screenplay?
 
@@ -64,7 +68,7 @@ You must also include all the other elements so that no one is confused about wh
 Screenplays are a type of written or visual storytelling in which **dialogue, action, and description are all included**. They are typically used in the film industry to pitch a film or television show idea. They can be either fiction or nonfiction, depending on whether they use fictional stories or real-life facts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3\. Templates for screenplay
@@ -106,6 +110,10 @@ That said, a great screenplay format template:
 
 Aside from some niche genres like anthology and neo-bizarro, every ideal screenplay format template has some combination of these qualities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Contemporary Features
 
 Scenarios have had a similar structure since the beginning of the last century.
@@ -114,10 +122,6 @@ The same title page, with the same standard Courier font, text indentation, scen
 
 ![contemporary features](https://images.wondershare.com/filmora/article-images/2022/08/what-is-screenplay-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 However, with the advent of app-based screenwriting software, we have plenty of contemporary features such as automatic page numbers, time of day, parentheses, and pop-ups with specific character names.
 
 Even the general rule of thumb "one-page equals one minute of screen time" doesn't apply to all scripts today.
@@ -125,10 +129,6 @@ Even the general rule of thumb "one-page equals one minute of screen time" doesn
 While it's not necessary to have a fully automated script layout interface, any task that can be automated gives the writer more time for important tasks like contributing to off-screen production, recording voice-overs, etc.
 
 Plus, since most writers today prefer a smartphone to a traditional typewriter, it pays to have a screenplay editor in the palm of your hand.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Configurability
 
@@ -142,10 +142,6 @@ For example, when I'm writing a character who's learning to write a book, I'd li
 
 Taking an unconventional approach to character development can seem counterproductive and time-consuming. However, a good script draft will allow the writer to do this without making the script unbalanced.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Creative Space
 
 Stiffness is a very common factor in most traditional screenplay formats.
@@ -158,6 +154,10 @@ For example, an ideal screenwriting template should allow one character out of s
 
 ![creative space](https://images.wondershare.com/filmora/article-images/2022/08/what-is-screenplay-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This prevents all characters from looking and sounding like they were cast from a similar mold and have no unique development of their own.
 
 In addition, the best templates should allow screenwriters to adjust their plot development to write for feature films as well as series.
@@ -165,7 +165,7 @@ In addition, the best templates should allow screenwriters to adjust their plot 
 Common fictional tropes have already been adopted by thousands of screenwriters around the world. The job of a perfect template is to give you enough creative space to create a unique story from a traditional genre.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4\. Make your own screenplay by using Filmora
@@ -210,21 +210,24 @@ The article has provided the most information about screenplays and how to write
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-the-essential-breakdown-of-dji-phantom-3-mechanics/"><u>[New] 2024 Approved The Essential Breakdown of DJI Phantom 3 Mechanics</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-elevate-your-story-game-with-multiple-image-strategies/"><u>[New] Elevate Your Story Game with Multiple Image Strategies</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-fuel-your-film-rate-with-these-easy-tiktok-tricks-for-2024/"><u>[New] Fuel Your Film Rate with These Easy TikTok Tricks for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-how-to-grow-youtube-subscriber/"><u>[New] How to Grow Youtube Subscriber</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-pro-tips-to-amplify-your-canva-designs/"><u>[New] In 2024, Pro Tips to Amplify Your Canva Designs</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-spark-your-imagination-with-14-stunning-text-animations-for-2024/"><u>[New] Spark Your Imagination with 14 Stunning Text Animations for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-the-essential-collection-of-high-speed-monitor-tools/"><u>[New] The Essential Collection of High-Speed Monitor Tools</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-assessing-igtv-content-performance-levels/"><u>[Updated] 2024 Approved Assessing IGTV Content Performance Levels</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-best-12-motion-activated-cameras-featuring-location-tracking/"><u>[Updated] Best 12 Motion-Activated Cameras Featuring Location Tracking</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-pocketful-skies-affordable-large-file-allocator/"><u>2024 Approved Pocketful Skies - Affordable Large File Allocator</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/eliminatebgmaster-highest-quality-erasure/"><u>EliminateBgMaster Highest Quality Erasure</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-iphone-13-data-from-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover iPhone 13 Data From iTunes? | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/magma-gloves-by-gamertech-the-perfectly-warmed-grip-for-elite-gamers/"><u>Magma Gloves by GamerTech: The Perfectly Warmed Grip for Elite Gamers</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/mastering-screens-on-windows-with-best-no-cost-recorder-tools-for-2024/"><u>Mastering Screens on Windows with Best No-Cost Recorder Tools for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/meta-versus-omni-the-future-of-digital-worlds-for-2024/"><u>Meta versus Omni The Future of Digital Worlds for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/quick-learn-to-speed-up-videos-on-snapchat/"><u>Quick Learn to Speed Up Videos on Snapchat</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-20-visionary-metaverse-projects-with-educational-value/"><u>[New] 2024 Approved 20 Visionary Metaverse Projects with Educational Value</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-mastering-the-art-of-invisible-viewership-on-instagram-live/"><u>[New] 2024 Approved Mastering the Art of Invisible Viewership on Instagram Live</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-maximize-gaming-essential-tips-and-picks-for-the-best-monitors-for-xbox-series-x/"><u>[New] 2024 Approved Maximize Gaming - Essential Tips & Picks for the Best Monitors for Xbox Series X</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-perfecting-the-look-a-guide-to-haul-video-post-production/"><u>[New] 2024 Approved Perfecting the Look A Guide to Haul Video Post-Production</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-download-dynamics-of-hd-content-on-modern-social-networks/"><u>[New] Download Dynamics of HD Content on Modern Social Networks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-wirecast-versus-obs-which-broadcasting-tool-reigns-supreme/"><u>[New] In 2024, Wirecast Versus OBS Which Broadcasting Tool Reigns Supreme?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-instagrams-secrets-for-creating-must-watch-unboxings/"><u>[New] Instagram's Secrets for Creating Must-Watch Unboxings</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-online-accessory-fb-stories-capture-app-for-2024/"><u>[New] Online Accessory Fb Stories Capture App for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-8-innovative-affordable-online-srt-services-exposed/"><u>[New] Top 8 Innovative, Affordable Online SRT Services Exposed</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-elevate-video-quality-webcam-filming-made-simple/"><u>[Updated] 2024 Approved Elevate Video Quality Webcam Filming Made Simple</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-galaxy-s8s-ultra-hd-experience-unveiled-for-2024/"><u>[Updated] Galaxy S8's Ultra HD Experience Unveiled for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-advanced-techniques-for-tiktok-video-enhancement-via-zoom/"><u>[Updated] In 2024, Advanced Techniques for TikTok Video Enhancement via Zoom</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/a-quick-dive-into-obs-zoom-fusion-steps/"><u>A Quick Dive Into OBS-Zoom Fusion Steps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/elevate-your-content-game-youtube-and-facebook-sync-for-2024/"><u>Elevate Your Content Game YouTube & Facebook Sync for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-boosting-creativity-top-tips-and-tricks-for-lunapic-editors/"><u>In 2024, Boosting Creativity Top Tips & Tricks for LunaPic Editors</u></a></li>
+<li><a href="https://some-tips.techidaily.com/secure-your-home-with-an-affordable-ring-floodlight-camera-at-just-30-on-amazons-prime-day-expert-insights-from-zdnet/"><u>Secure Your Home with an Affordable Ring Floodlight Camera at Just $30 on Amazon's Prime Day - Expert Insights From ZDNet</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-artisans-approach-to-color-balancing/"><u>The Artisan's Approach to Color Balancing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-aerial-innovation-a-deep-dive-into-the-dji-mavic-3-features-and-performance/"><u>Unveiling Aerial Innovation: A Deep Dive Into the DJI Mavic 3 Features and Performance</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/upgrading-to-watchos-11-find-out-which-apple-watch-models-will-benefit-and-which-wont/"><u>Upgrading to WatchOS 11? Find Out Which Apple Watch Models Will Benefit and Which Won't!</u></a></li>
 </ul></div>
 

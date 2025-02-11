@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Streamline Your Windows 10 Experience  Crash-Free Photos Viewing\""
-date: 2025-01-26T03:42:43.783Z
-updated: 2025-01-30T07:44:40.808Z
+date: 2025-02-04T16:55:24.278Z
+updated: 2025-02-10T21:59:58.653Z
 tags: 
   - screen-recording
   - ai video
@@ -45,10 +45,14 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to fix Windows 10 Photos app crashes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
@@ -66,7 +70,7 @@ Here is how to troubleshoot –
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
@@ -80,10 +84,14 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 3: Reset it
@@ -118,19 +126,11 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -159,17 +159,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-streamlining-online-meetings-zoom-for-win10/"><u>[New] Streamlining Online Meetings Zoom for WIN10</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-detailed-evaluation-gopro-silver-hero4/"><u>[Updated] 2024 Approved Detailed Evaluation GoPro Silver Hero4</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-step-by-step-acquiring-top-notch-clip-art-without-a-price-tag/"><u>[Updated] In 2024, Step-by-Step Acquiring Top-Notch Clip Art Without a Price Tag</u></a></li>
-<li><a href="https://games-able.techidaily.com/bring-back-those-good-old-days-why-your-game-needs-pi/"><u>Bring Back Those Good Old Days: Why Your Game Needs Pi</u></a></li>
-<li><a href="https://article-posts.techidaily.com/how-to-master-every-feature-of-periscope-for-2024/"><u>How to Master Every Feature of Periscope for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-realme-c33-2023-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Realme C33 2023 Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-film-enhancements-15-best-luts-to-boost-gopro-cinematography/"><u>In 2024, Film Enhancements 15 Best LUTs to Boost GoPro Cinematography</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/in-depth-review-of-dying-light-the-ultimate-first-person-team-up-survival-journey/"><u>In-Depth Review of Dying Light: The Ultimate First-Person, Team-Up Survival Journey</u></a></li>
-<li><a href="https://win-blog.techidaily.com/overcoming-challenges-with-the-ffxiv-version-compatibility-test/"><u>Overcoming Challenges with the FFXIV Version Compatibility Test</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/saving-on-cameras-the-best-value-of-cheap-action-choices-for-2024/"><u>Saving on Cameras The Best Value of Cheap ACTION Choices for 2024</u></a></li>
-<li><a href="https://discover-exceptional.techidaily.com/solucion-integral-al-error-bio-no-puede-ingresar-a-windows-como-solucionarlo-paso-a-paso/"><u>Solución Integral Al Error 'Bio No Puede Ingresar a Windows': Cómo Solucionarlo Paso a Paso</u></a></li>
-<li><a href="https://win11.techidaily.com/windows-voice-conversion-made-easy-using-whisper/"><u>Windows Voice Conversion Made Easy Using Whisper</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-chronicles-unveiled-the-best-narrative-channels-on-youtube-this-year/"><u>[New] 2024 Approved Chronicles Unveiled The Best Narrative Channels on YouTube This Year</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-step-into-reflection-editing-your-facebook-past-videos-for-2024/"><u>[New] Step Into Reflection Editing Your Facebook Past Videos for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-accessories-to-upgrade-and-improve-your-phantom-4-for-2024/"><u>[New] Top Accessories to Upgrade and Improve Your Phantom 4 for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-new-age-of-youtube-branding-ideal-channel-titles-for-video-blogging-limited-to-156-characters/"><u>[Updated] 2024 Approved The New Age of YouTube Branding Ideal Channel Titles for Video Blogging (Limited to 156 Characters)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-bridge-the-gap-between-skype-and-zoom-with-simple-steps-for-2024/"><u>[Updated] Bridge the Gap Between Skype & Zoom with Simple Steps for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-decoding-the-advanced-features-of-nikon-d7500/"><u>[Updated] Decoding the Advanced Features of Nikon D7500</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-locating-your-youtube-comments-desktop-and-mobile-guide/"><u>[Updated] In 2024, Locating Your YouTube Comments Desktop & Mobile Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-magixs-legacy-in-vectors-finding-future-software-for-2024/"><u>[Updated] Magix's Legacy in Vectors Finding Future Software for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/a-comprehensive-guide-to-bing-the-alternative-search-giant/"><u>A Comprehensive Guide to Bing: The Alternative Search Giant</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixes-and-solutions-why-doesnt-resident-evil-5-start-up-on-my-pc/"><u>Fixes and Solutions: Why Doesn't Resident Evil 5 Start Up on My PC?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-pro-tips-for-time-lapping-your-samsung-camera/"><u>In 2024, Pro Tips for Time-Lapping Your Samsung Camera</u></a></li>
+<li><a href="https://win-dash.techidaily.com/optimize-your-play-enhance-gaming-with-asus-radeon-rx-970-pro/"><u>Optimize Your Play: Enhance Gaming with ASUS Radeon RX 970 Pro</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-ultimate-transfer-guide-5-top-techniques-for-computing-files-for-2024/"><u>The Ultimate Transfer Guide 5 Top Techniques for Computing Files for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-tips-for-resolving-missing-d3dx9amoleddll-error/"><u>Troubleshooting Tips for Resolving Missing d3dx9_amoled.dll Error</u></a></li>
 </ul></div>
 

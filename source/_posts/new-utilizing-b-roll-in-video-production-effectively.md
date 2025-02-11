@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Utilizing B-Roll in Video Production Effectively\""
-date: 2025-01-28T04:33:09.882Z
-updated: 2025-01-30T01:00:52.761Z
+date: 2025-02-05T19:29:18.753Z
+updated: 2025-02-10T22:06:23.565Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Methods to use b roll
 
 Now that there are so many stock footage platforms, you have a lot of choices when you need just the right scene for your project. Most of the time, filmmakers don't use B roll footage. One good way to use it is to use it as a way to move from one scene to the next. It can also be used to set the mood for an event or show what time of day it is when filming.
@@ -62,7 +66,7 @@ Aerial B roll is the solution when you like to show your viewers where your film
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Storytelling b roll footage
@@ -70,7 +74,7 @@ Including archival material in your video allows your audience to experience a p
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Undirected b roll footage
@@ -83,23 +87,19 @@ When you are sharing a narrative that has been told in the past or that has hist
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. Pick-up shots
 
 A pick-up is a tiny shot added to previously captured material. Re-shoots involve redoing entire scenes. Both types of shots are commonly added during film editing to fix, logic, continuity, or quality flaws. These photos happen a while after the sets have been taken down, clothes and props stowed, and the actors and crew have gone on to new projects.
 
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -135,16 +135,17 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-srt-to-sub-magic-three-effective-ways/"><u>[New] In 2024, SRT to SUB Magic Three Effective Ways</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/evolutionizing-channel-openings-discover-free-high-quality-intra-makers-for-2024/"><u>[New] Revolutionizing Channel Openings Discover Free, High-Quality Intra Makers for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-examining-youtubes-highlighted-comment-mechanics/"><u>[Updated] Examining YouTube's Highlighted Comment Mechanics</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-max-360-vs-hero-11-choosing-the-best-gopro-cam-for-2024/"><u>[Updated] Max 360 Vs. Hero 11 - Choosing the Best GoPro Cam for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/elevate-your-experience-with-these-11-must-haves-for-2024/"><u>Elevate Your Experience with These 11 Must-Haves for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-oneplus-ace-2-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from OnePlus Ace 2 to Gmail | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/prime-shopping-destinations-customizable-presents-with-flair/"><u>Prime Shopping Destinations Customizable Presents with Flair</u></a></li>
-<li><a href="https://win-dash.techidaily.com/protecting-sensitive-data-learn-how-to-lock-down-documents-and-pdfs-in-ms-office-suite/"><u>Protecting Sensitive Data: Learn How to Lock Down Documents and PDFs in MS Office Suite</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-android-adblockers-seamless-browsing-experience-for-2024/"><u>Top 7 Android AdBlockers Seamless Browsing Experience for 2024</u></a></li>
-<li><a href="https://app-tips.techidaily.com/ultimate-guide-to-downloading-and-evaluating-apks-for-gaming-audio-content-and-device-rooting/"><u>Ultimate Guide to Downloading & Evaluating APKs for Gaming, Audio Content, and Device Rooting</u></a></li>
-<li><a href="https://article-posts.techidaily.com/understanding-the-advanced-features-in-djis-quadcopter-3/"><u>Understanding the Advanced Features in DJI's Quadcopter 3</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-unbeatable-accessories-elevating-vr-games/"><u>[New] 2024 Approved Unbeatable Accessories Elevating VR Games</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-elevate-your-ar-graphics-tips-for-using-luts/"><u>[New] In 2024, Elevate Your AR Graphics - Tips for Using LUTs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-step-up-your-media-game-with-xps-movie-editor/"><u>[New] In 2024, Step Up Your Media Game with XP's Movie Editor</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-effortless-methods-for-iphone-visual-content-transfer/"><u>[Updated] 2024 Approved Effortless Methods for iPhone Visual Content Transfer</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/full-guide-streamlining-your-files-in-the-digital-age-with-adobe-and-beyond/"><u>Full Guide Streamlining Your Files in the Digital Age with Adobe & Beyond</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-vive-cosmos-excellent-vr-experience-amidst-strong-rivals/"><u>In-Depth Analysis of the Vive Cosmos: Excellent VR Experience Amidst Strong Rivals</u></a></li>
+<li><a href="https://win11.techidaily.com/navigating-ms-store-bugs-error-x80072f17-solution/"><u>Navigating MS Store Bugs: Error X80072F17 Solution</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/remove-the-lock-screen-fingerprint-of-your-realme-c53-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Realme C53</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-the-issue-of-vanishing-mouse-pointer-in-windows-11/"><u>Resolving the Issue of Vanishing Mouse Pointer in Windows 11</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-full-review-and-how-to-for-facetunes-new-features-for-2024/"><u>The Full Review and How-To for Facetune's New Features for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-meteoric-rise-of-interactive-bot-conversations/"><u>The Meteoric Rise of Interactive Bot Conversations</u></a></li>
 </ul></div>
 

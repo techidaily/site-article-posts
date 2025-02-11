@@ -1,7 +1,7 @@
 ---
 title: "[New] Building a Vivid World with Animated Clips in Movie Maker for 2024"
-date: 2025-01-29T00:52:05.261Z
-updated: 2025-01-29T16:54:38.159Z
+date: 2025-02-08T09:29:42.269Z
+updated: 2025-02-11T04:51:40.764Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ Animated video is a rich, captivating medium that will make your main arguments 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. Steps to Create Animation with Windows Movie Maker
@@ -43,6 +43,10 @@ On your PC, launch Windows Movie Maker. Windows Movie Maker, however, has to be 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** You have the option to upload one file at a time or many files simultaneously.
 
 ##### Step2Go to Edit Menu
@@ -51,11 +55,19 @@ If you wish to clip off a section, go to "Edit" under "Video Tools" and choose t
 
 ![preview video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/preview-video-movie-maker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step3Open the Animation Tab
 
 You may add two distinct types of animations—Transitions and Pan and Zoom—to video clips or photographs using the Animations window on the ribbon. The dropdown menu next to "Speed" in the "Edit" tab may be expanded to change the speed of a video clip. The 'Duration' dropdown menu allows you to choose how long a certain image will be shown in a movie.
 
 ![animation tab movie maker](https://images.wondershare.com/filmora/article-images/2022/09/animation-tab-movie-maker.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step4Add Transitions
 
@@ -63,23 +75,11 @@ Between two multimedia portions, a transition effect may be added. In the "Anima
 
 ![add transitions movie maker](https://images.wondershare.com/filmora/article-images/2022/09/add-transitions-movie-maker.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step5Save the Video
 
 When a transition is applied, a washed-out diagonal zone on the clip in the timeline indicates where the transition starts and finishes. Additionally, you have a choice in the sequence in which the effects are used. This may change how the movie is finally shown depending on the Effects, you choose. Once you're done, click Apply.
 
 ![save animation video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/save-animation-video-movie-maker.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. Movie Maker Alternative to Add Animations
 
@@ -146,7 +146,7 @@ When a transition is applied, a washed-out diagonal zone on the clip in the time
 ![save animation video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/save-animation-video-movie-maker.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. Movie Maker Alternative to Add Animations
@@ -213,18 +213,24 @@ Simple movies may be easily made using Windows Live Movie Maker. With Windows Vi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-preserving-your-google-voice-history-a-step-by-step-guide/"><u>[New] 2024 Approved Preserving Your Google Voice History A Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-pro-level-acid-review-and-beyond-comparisons/"><u>[New] 2024 Approved Pro-Level ACID Review and Beyond Comparisons</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-shades-and-tones-elevating-your-visuals/"><u>[New] In 2024, Shades and Tones Elevating Your Visuals</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-unlocking-your-iphones-audio-library-with-top-podcast-strategies/"><u>[New] In 2024, Unlocking Your iPhone's Audio Library with Top Podcast Strategies</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/astering-youtube-frames-top-5-cost-free-techniques-for-2024/"><u>[New] Mastering YouTube Frames Top 5 Cost-Free Techniques for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-methods-for-extracting-video-tweets-from-twitter-and-youtube-into-mp3-format-for-2024/"><u>[New] Methods for Extracting Video Tweets From Twitter & YouTube Into MP3 Format for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-essential-techniques-in-capturing-live-sports-on-camera/"><u>[Updated] Essential Techniques in Capturing Live Sports on Camera</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-industrial-giants-taking-flight-heavy-duty-drones/"><u>[Updated] In 2024, Industrial Giants Taking Flight Heavy-Duty Drones</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-laugh-loom-robotic-deadlines-for-2024/"><u>[Updated] Laugh Loom Robotic Deadlines for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-your-next-level-of-fcp-efficiency-top-10-plugins-for-2024/"><u>[Updated] Your Next Level of FCP Efficiency Top 10 Plugins for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-kitchen-combatants-30-pugnacious-food-show-titles/"><u>2024 Approved Kitchen Combatants 30 Pugnacious Food Show Titles</u></a></li>
-<li><a href="https://article-posts.techidaily.com/unlocking-potential-effective-use-of-zoom-on-win11-pcs/"><u>Unlocking Potential Effective Use of Zoom on Win11 PCs</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unraveling-5-ai-apps-designed-for-emotional-care/"><u>Unraveling 5 AI Apps Designed for Emotional Care</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-disabling-automated-podcast-suggestions-for-privacy/"><u>[New] 2024 Approved Disabling Automated Podcast Suggestions for Privacy</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-sky-perfection-11-must-have-enhancements-for-phantom-drone/"><u>[New] 2024 Approved Sky Perfection 11 Must-Have Enhancements for Phantom Drone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-enlightening-the-path-to-professional-photo-videos-with-pixiz-for-2024/"><u>[New] Enlightening the Path to Professional Photo Videos with Pixiz for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-live-with-clarity-secrets-for-high-quality-fb-recordings/"><u>[New] In 2024, Live with Clarity Secrets for High-Quality FB Recordings</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-step-by-step-build-your-own-google-cardboard-vr-setup/"><u>[New] In 2024, Step-by-Step Build Your Own Google Cardboard VR Setup</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-masterpieces-unleashed-a-comprehensive-look-at-the-bestiary-of-8-iphone-drawing-apps/"><u>[New] Masterpieces Unleashed A Comprehensive Look at the Bestiary of 8 iPhone Drawing Apps</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-drone-editors-toolkit-techniques-for-visual-excellence-for-2024/"><u>[New] The Drone Editor's Toolkit Techniques for Visual Excellence for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-selecting-superior-webcams-on-windows-10/"><u>[Updated] 2024 Approved Selecting Superior Webcams on Windows 10</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-streamlining-visual-enhancements-via-luts-in-pro-for-2024/"><u>[Updated] Streamlining Visual Enhancements via LUTs in Pro for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-syncopated-sounds-discovering-crossfades-for-2024/"><u>[Updated] Syncopated Sounds Discovering Crossfades for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-hourly-highlights-top-10-youtubes-biggest-view-count/"><u>2024 Approved Hourly Highlights Top 10 YouTube's Biggest View Count</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/delving-into-codegpt-real-world-coding-capabilities/"><u>Delving Into CodeGPT: Real-World Coding Capabilities</u></a></li>
+<li><a href="https://extra-information.techidaily.com/discover-the-leading-sites-offering-customizable-text-flair/"><u>Discover the Leading Sites Offering Customizable Text Flair</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/expert-advice-for-combatting-frequent-cities-skylines-2-pc-crashing-problems/"><u>Expert Advice for Combatting Frequent Cities: Skylines 2 PC Crashing Problems</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-nubia-z50s-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Nubia Z50S Pro Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-crafting-excellent-canon-temp-video-series/"><u>In 2024, Crafting Excellent Canon Temp Video Series</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/new-vs-newer-deciding-on-the-right-apple-macbook-air-m3-or-m2-with-expert-insights-zdnet/"><u>New Vs. Newer: Deciding on the Right Apple MacBook Air (M3 or M2) with Expert Insights | ZDNET</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/soluciones-faciles-y-probadas-evitar-bucle-de-arranque-con-hp-dell-o-asus-en-windows-10/"><u>Soluciones Fáciles Y Probadas: Evitar Bucle De Arranque Con HP, Dell O Asus en Windows 10</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-tutorial-opening-rar-compressed-folders-without-costs-on-pc-and-mac-systems/"><u>Step-by-Step Tutorial: Opening RAR Compressed Folders Without Costs on PC & Mac Systems</u></a></li>
 </ul></div>
 
