@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Art of Fisheye Lens in 360 Imagery\""
-date: 2024-08-15T08:17:54.101Z
-updated: 2024-08-16T08:17:54.101Z
+date: 2025-02-24T03:38:50.852Z
+updated: 2025-03-02T01:48:54.792Z
 tags: 
   - screen-recording
   - ai video
@@ -30,33 +30,18 @@ thumbnail: https://thmb.techidaily.com/35506a9c5eeb39965a6739f4255f2a7fd3073f2c8
 
  The process of shooting panoramas with fisheye lenses involves a number of considerations and they are as follows-:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ### 1. The equipment and setup
 
  To shoot quality 360 degrees panoramas with fisheye, it is imperative to get the equipment as well as the set up right. Your equipment needs to be calibrated properly to make the stitching process nice and easy. To find the best setting for your equipment, the grid method is recommended on the panohead.
 
 ![Panohead for Fisheye lens](https://images.wondershare.com/filmora/article-images/panohead-for-fishlens.jpg)
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2. Leveling and rotating
 
  Other than setting up and calibrating the equipment in the right manner, it is important to keep the camera steady and leveled as you make the rotations to take shots. For leveling, it is recommended to use an appropriate leveling base, while for rotation, using a panning clamp on top of the ballhead is highly recommended.
 
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ### 3. The actual shooting
 
  For a full frame camera with 15mm fisheye lens in the portrait position, you will require a total of six shot rounds and 1 up to complete a full sphere. If you were using a crop-sensor camera, you will need to have a 10mm fisheye lens to achieve the same sequence.
@@ -92,9 +77,6 @@ thumbnail: https://thmb.techidaily.com/35506a9c5eeb39965a6739f4255f2a7fd3073f2c8
  Fisheye lenses have been around for a while now and the process of creating 360 panoramas with them may not be very challenging, but great results are achieved through practice and proper stitching. Once the photos are taken, you can use premium panorama software like Autopano Pro or you can use free options like the Microsoft ICE or Hugin. Ones stitching are done, it is imperative to have the final works uploaded online for others to view.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -119,6 +101,20 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-chuckle-chronicles-hilarious-meme-crafting-simplified/"><u>[New] 2024 Approved Chuckle Chronicles Hilarious Meme Crafting Simplified</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-innovative-approaches-for-clearing-background-elements-in-figma/"><u>[New] 2024 Approved Innovative Approaches for Clearing Background Elements in Figma</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-top-tactics-for-captivating-audienes-in-instagram-reels/"><u>[New] In 2024, Top Tactics for Captivating Audienes in Instagram Reels</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-instant-inspector-quick-photo-explorer-for-win10-for-2024/"><u>[New] Instant Inspector - Quick Photo Explorer for Win10 for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-steer-clear-of-soundtracked-sessions-how-to-mute-participants-in-gomeet/"><u>[New] Steer Clear of Soundtracked Sessions How to Mute Participants in GoMeet</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-darktable-pro-finding-the-best-paired-editor/"><u>[Updated] Darktable Pro Finding the Best Paired Editor</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-discovering-the-power-of-hdr-in-iphone-photography/"><u>[Updated] Discovering the Power of HDR in iPhone Photography</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-mastering-drone-racing-insights-and-best-fpv-models/"><u>[Updated] Mastering Drone Racing Insights & Best FPV Models</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/excellent-auditory-recording-devices-for-classrooms/"><u>Excellent Auditory Recording Devices for Classrooms</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Realme Narzo N55? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/how-to-upload-media-to-twitter-without-copying-another-users-tweet/"><u>How To Upload Media to Twitter without Copying Another User's Tweet</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-nubia-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Nubia</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-realme-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Realme Phone Pattern Lock</u></a></li>
+</ul></div>
 

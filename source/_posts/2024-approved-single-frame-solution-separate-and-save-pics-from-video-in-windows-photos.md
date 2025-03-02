@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Single-Frame Solution  Separate and Save Pics From Video in Windows Photos\""
-date: 2024-08-15T08:19:44.306Z
-updated: 2024-08-16T08:19:44.306Z
+date: 2025-02-24T14:13:58.720Z
+updated: 2025-03-02T12:08:07.084Z
 tags: 
   - screen-recording
   - ai video
@@ -58,32 +58,20 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: Why I can’t save photo from video
 
 In case, you are not able to save photos from video on Windows 10 Photos App. There might be issues with an outdated [Microsoft OS patch update](https://support.microsoft.com/en-us/help/311047/how-to-keep-your-windows-computer-up-to-date) or the Microsoft account is having any problem. But, you don’t have to worry about the same.
 
 We are explaining the solutions here –
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3: Alternative way to save photo from video
 
 When you want to save photo from video Windows 10 Photos but fail to do so, you can look for alternate ways that are fruitful. ‘ScreenShot’ is an online tool that enables you to capture and edit anything popping up on your screen. From webpages, windows, media files, menus, objects, to webcams, you can literally capture anything. It supports Mac, Windows PC, Android devices etc. it supports AVI, FLV, MPEG, WMV, MOV, and MKV files and enables you to add shapes, texts, lines, arrows, and stylish effects while editing the captured images. You can even upload images to cloud or social networking sites like Facebook, Google Plus, Twitter etc. The pictures are saved in JPG, PNG, BMP, GIF, and TIFF format on your computer. Automatic video capture at fixed intervals is also supported.
@@ -95,9 +83,6 @@ Here comes the guide –
 * See your mouse cursor appear like a blue crosshair. Hold down the mouse and drag to select the parts of the video you wish to shoot. While moving the mouse, you can see that the application window is covered with a blue border. You can capture the window by clicking there.
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
@@ -107,9 +92,6 @@ Here comes the guide –
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -134,6 +116,21 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-decoding-the-best-live-streams-a-compreehsive-guide/"><u>[New] 2024 Approved Decoding the Best Live Streams A Compreehsive Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-proven-subtitle-editors-the-comprehensive-top-10-list-online/"><u>[New] 2024 Approved Proven Subtitle Editors – The Comprehensive Top 10 List (Online)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-navigating-the-nooks-and-crannies-of-concurrent-youtube-watching/"><u>[New] In 2024, Navigating the Nooks and Crannies of Concurrent YouTube Watching</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-the-freeframe-gallery-a-haven-for-the-pocket-savvy-in-tiktok-artistry/"><u>[New] In 2024, The FreeFrame Gallery A Haven for the Pocket-Savvy in TikTok Artistry</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-mastering-the-art-of-financial-forecasting-a-deep-dive-into-budgeting-strategies/"><u>[New] Mastering the Art of Financial Forecasting A Deep Dive Into Budgeting Strategies</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-ultimate-guide-to-product-revelation-best-15-unboxing-channels/"><u>[New] The Ultimate Guide to Product Revelation Best 15 Unboxing Channels</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-ultra-30-by-garmin-exciting-new-technology-showcase-for-2024/"><u>[New] Ultra 30 by Garmin - Exciting New Technology Showcase for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-from-kitchen-to-screen-unveiling-the-top-7-cooking-film-tricks/"><u>[Updated] In 2024, From Kitchen to Screen Unveiling the Top 7 Cooking Film Tricks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unveiling-10plus-proven-techniques-for-selecting-the-finest-cricket-broadcasts/"><u>[Updated] Unveiling 10+ Proven Techniques for Selecting the Finest Cricket Broadcasts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-engaging-viewers-best-practices-and-pitfalls-in-dayly-blogging/"><u>2024 Approved Engaging Viewers Best Practices & Pitfalls in Dayly Blogging</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-expert-strategies-for-choosing-effective-podcast-names-plus-inspirations/"><u>2024 Approved Expert Strategies for Choosing Effective Podcast Names, Plus Inspirations</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/shrink-your-timeline-a-simple-guide-to-creating-time-lapse-videos-for-2024/"><u>Shrink Your Timeline A Simple Guide to Creating Time Lapse Videos for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/top-picks-the-ultimate-guide-to-the-best-17-inch-laptops/"><u>Top Picks: The Ultimate Guide to the Best 17-Inch Laptops</u></a></li>
+<li><a href="https://techtrends.techidaily.com/voice-assisted-living-showdown-can-alexa-outperform-google-assistant/"><u>Voice-Assisted Living Showdown: Can Alexa Outperform Google Assistant?</u></a></li>
+</ul></div>
 

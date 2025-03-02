@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Streamline Your Windows 10 Experience  Crash-Free Photos Viewing\""
-date: 2025-02-04T16:55:24.278Z
-updated: 2025-02-10T21:59:58.653Z
+date: 2025-02-27T02:18:20.595Z
+updated: 2025-03-01T21:15:13.158Z
 tags: 
   - screen-recording
   - ai video
@@ -45,15 +45,7 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to fix Windows 10 Photos app crashes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
 
@@ -69,10 +61,6 @@ Here is how to troubleshoot –
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Solution 2: Restore Default Libraries
 
 Restoring the default libraries would resolve the Windows 10 Photos App crash issues. Resetting the Photo App to its default source to a valid network, path fixes the case.
@@ -84,15 +72,7 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -159,19 +139,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-chronicles-unveiled-the-best-narrative-channels-on-youtube-this-year/"><u>[New] 2024 Approved Chronicles Unveiled The Best Narrative Channels on YouTube This Year</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-step-into-reflection-editing-your-facebook-past-videos-for-2024/"><u>[New] Step Into Reflection Editing Your Facebook Past Videos for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-top-accessories-to-upgrade-and-improve-your-phantom-4-for-2024/"><u>[New] Top Accessories to Upgrade and Improve Your Phantom 4 for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-new-age-of-youtube-branding-ideal-channel-titles-for-video-blogging-limited-to-156-characters/"><u>[Updated] 2024 Approved The New Age of YouTube Branding Ideal Channel Titles for Video Blogging (Limited to 156 Characters)</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-bridge-the-gap-between-skype-and-zoom-with-simple-steps-for-2024/"><u>[Updated] Bridge the Gap Between Skype & Zoom with Simple Steps for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-decoding-the-advanced-features-of-nikon-d7500/"><u>[Updated] Decoding the Advanced Features of Nikon D7500</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-locating-your-youtube-comments-desktop-and-mobile-guide/"><u>[Updated] In 2024, Locating Your YouTube Comments Desktop & Mobile Guide</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-magixs-legacy-in-vectors-finding-future-software-for-2024/"><u>[Updated] Magix's Legacy in Vectors Finding Future Software for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/a-comprehensive-guide-to-bing-the-alternative-search-giant/"><u>A Comprehensive Guide to Bing: The Alternative Search Giant</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixes-and-solutions-why-doesnt-resident-evil-5-start-up-on-my-pc/"><u>Fixes and Solutions: Why Doesn't Resident Evil 5 Start Up on My PC?</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-pro-tips-for-time-lapping-your-samsung-camera/"><u>In 2024, Pro Tips for Time-Lapping Your Samsung Camera</u></a></li>
-<li><a href="https://win-dash.techidaily.com/optimize-your-play-enhance-gaming-with-asus-radeon-rx-970-pro/"><u>Optimize Your Play: Enhance Gaming with ASUS Radeon RX 970 Pro</u></a></li>
-<li><a href="https://article-posts.techidaily.com/the-ultimate-transfer-guide-5-top-techniques-for-computing-files-for-2024/"><u>The Ultimate Transfer Guide 5 Top Techniques for Computing Files for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/troubleshooting-tips-for-resolving-missing-d3dx9amoleddll-error/"><u>Troubleshooting Tips for Resolving Missing d3dx9_amoled.dll Error</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-pigments-and-palettes-the-artists-guidebook/"><u>[New] 2024 Approved Pigments & Palettes The Artist's Guidebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-unlocking-the-power-of-facebook-slideshows-in-digital-marketing/"><u>[New] In 2024, Unlocking the Power of Facebook Slideshows in Digital Marketing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-unseen-video-on-sony-a6400-whats-going-wrong/"><u>[New] In 2024, Unseen Video on Sony A6400 What's Going Wrong?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-ringers-guide-shaping-iphone-sounds/"><u>[New] The Ultimate Ringer's Guide Shaping iPhone Sounds</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-unlocking-full-multitasking-in-apple-browsers-for-2024/"><u>[New] Unlocking Full Multitasking in Apple Browsers for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unlocking-higher-views-on-instagram-videos-for-2024/"><u>[New] Unlocking Higher Views on Instagram Videos for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-simplified-guide-to-stories-mechanics-for-2024/"><u>[Updated] Simplified Guide to Stories' Mechanics for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-zooming-in-with-confidence-a-kinemaster-cinematographers-handbook-for-2024/"><u>[Updated] Zooming in with Confidence A Kinemaster Cinematographer's Handbook for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-seamless-acquisition-of-everyday-online-footage-fb-status-videos/"><u>2024 Approved Seamless Acquisition of Everyday Online Footage FB Status Videos</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-fix-dts-surround-sound-disabled-on-chosen-audio-equipment/"><u>How to Fix: DTS Surround Sound Disabled on Chosen Audio Equipment</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-samsung-galaxy-m14-4g-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Samsung Galaxy M14 4G to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-comparing-picku-vs-androids-leading-photo-editor/"><u>In 2024, Comparing PickU Vs. Android's Leading Photo Editor</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-concoct-clever-caricatures/"><u>In 2024, Concoct Clever Caricatures</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-unlock-ultimate-performance-with-best-video-controller-add-ons/"><u>In 2024, Unlock Ultimate Performance with Best Video Controller Add-Ons</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-depth-look-at-samsungutation-studio-features-for-2024/"><u>In-Depth Look at Samsung'utation Studio Features for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/no-cost-solution-the-leading-converters-for-jpeg-to-gifs/"><u>No-Cost Solution The Leading Converters for JPEG to GIFs</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/protecting-your-contact-info-the-complete-tutorial-for-keeping-phone-numbers-concealed-in-android-os/"><u>Protecting Your Contact Info: The Complete Tutorial for Keeping Phone Numbers Concealed in Android OS</u></a></li>
+<li><a href="https://article-posts.techidaily.com/reviving-windows-photo-viewer-two-approaches-in-windows-10/"><u>Reviving Windows Photo Viewer Two Approaches in Windows 10</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/secure-your-winxdvd-purchase-with-a-hassle-free-full-refund-safeguard-offer/"><u>Secure Your WinXDVD Purchase with a Hassle-Free, Full-Refund Safeguard Offer!</u></a></li>
 </ul></div>
 

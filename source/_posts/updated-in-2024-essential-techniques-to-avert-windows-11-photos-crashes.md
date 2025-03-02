@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Essential Techniques to Avert Windows 11 Photos Crashes"
-date: 2025-02-10T09:32:32.775Z
-updated: 2025-02-11T04:42:31.512Z
+date: 2025-03-01T08:01:48.135Z
+updated: 2025-03-01T18:37:41.417Z
 tags: 
   - screen-recording
   - ai video
@@ -58,10 +58,6 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
@@ -78,10 +74,6 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Solution 3: Reset it
 
 When you reset the Windows Photo App itself, your issue gets resolved. Plenty of Windows users have mentioned that resetting the Photo App has fixed the unresponsive or crashing app problems.
@@ -91,10 +83,6 @@ Here is how can you reset it –
 1. Go to ‘Windows 10 Start Menu’ and then click ‘Settings’. Now, click the ‘Apps (Apps & Features)’ option followed by the ‘Photos’ app.
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
 
@@ -107,10 +95,6 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -121,10 +105,6 @@ Here is how to reinstall the Windows 10 Photos App –
 1. You have to wait a while to complete the process and reboot the Windows 10 system.
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -159,21 +139,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-ultimate-psd-layer-control/"><u>[New] 2024 Approved Ultimate PSD Layer Control</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-filmopedia-answer-to-inquiries-for-2024/"><u>[New] FilmoPedia Answer to Inquiries for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-elite-8-cameras-revolutionizing-online-broadcasts/"><u>[New] In 2024, Elite 8 Cameras Revolutionizing Online Broadcasts</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-taking-your-tweets-public-on-facebook-for-2024/"><u>[New] Taking Your Tweets Public on Facebook for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-identifying-premium-hdr-camera-options/"><u>[Updated] 2024 Approved Identifying Premium HDR Camera Options</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-innovating-the-open-a-podcasters-playbook/"><u>[Updated] 2024 Approved Innovating the Open A Podcaster's Playbook</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-enhancing-digital-art-with-layered-imagery/"><u>[Updated] Enhancing Digital Art with Layered Imagery</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-breathing-life-into-art-top-6-for-revolutionary-nftos/"><u>[Updated] In 2024, Breathing Life Into Art Top 6 for Revolutionary NFTOs</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-essential-mac-streaming-apps-uncovering-the-best-5/"><u>[Updated] In 2024, Essential Mac Streaming Apps Uncovering the Best 5</u></a></li>
-<li><a href="https://win-best.techidaily.com/boost-your-visual-experience-solutions-for-enhancing-graphics-speed-in-windows-expert-advice-from-yl-software/"><u>Boost Your Visual Experience: Solutions for Enhancing Graphics Speed in Windows - Expert Advice From YL Software</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-successfully-install-minecraft-on-your-windows-11-system/"><u>How to Successfully Install Minecraft on Your Windows 11 System</u></a></li>
-<li><a href="https://program-issues.techidaily.com/minecraft-midnight-malfunction-unlock-painless-remedies-for-the-notorious-black-screen-issue/"><u>Minecraft Midnight Malfunction? Unlock Painless Remedies for the Notorious Black Screen Issue</u></a></li>
-<li><a href="https://extra-information.techidaily.com/pureimages-backdrop-refinement-feature/"><u>PureImage's Backdrop Refinement Feature</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/steps-to-repair-and-restart-a-stalled-mozilla-thunderbird-program/"><u>Steps to Repair and Restart a Stalled Mozilla Thunderbird Program</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-home-weather-stations-of-2024/"><u>The Best Home Weather Stations of 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/winning-strategy-eliminating-a-disks-segmented-blocks/"><u>Winning Strategy: Eliminating a Disk's Segmented Blocks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-express-humor-no-charge-with-easymeme-tools/"><u>[New] 2024 Approved Express Humor, No Charge with EasyMeme Tools</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-golivepod-steps-for-a-hassle-free-podcast-broadcast-experience/"><u>[New] 2024 Approved GoLivePod Steps for a Hassle-Free Podcast Broadcast Experience</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-is-inshot-leading-video-cutting-tech-deep-insight-reviewed-for-2024/"><u>[New] Is InShot Leading Video Cutting Tech? Deep Insight Reviewed for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-valhallas-vanguard-fiery-rebirth/"><u>[New] Valhalla's Vanguard Fiery Rebirth</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-flight-finesse-and-colorful-charm-bebop-2s-parrot-showcase/"><u>[Updated] 2024 Approved Flight Finesse and Colorful Charm – Bebop 2’S Parrot Showcase</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-leveraging-vr-to-shape-modern-business-practices/"><u>[Updated] In 2024, Leveraging VR to Shape Modern Business Practices</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-infuse-ingenuity-and-fun-make-memes-with-kapwing/"><u>[Updated] Infuse Ingenuity & Fun – Make Memes with Kapwing</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/best-10-free-and-easy-to-use-tools-that-replace-snipping-tool-on-windows-pcs/"><u>Best 10 Free & Easy-to-Use Tools That Replace Snipping Tool on Windows PCs</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-firewall-display-settings-on-windows-os/"><u>Mastering Firewall Display Settings on Windows OS</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-strategies-to-insert-various-locations-as-pins-in-google-maps/"><u>Step-by-Step Strategies to Insert Various Locations as Pins in Google Maps</u></a></li>
+<li><a href="https://extra-information.techidaily.com/steps-to-free-viewing-of-federal-records-c-span-included/"><u>Steps to Free Viewing of Federal Records - C-Span Included</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-revolutionize-your-videos-best-quality-improvement-tools/"><u>Updated 2024 Approved Revolutionize Your Videos Best Quality Improvement Tools</u></a></li>
 </ul></div>
 

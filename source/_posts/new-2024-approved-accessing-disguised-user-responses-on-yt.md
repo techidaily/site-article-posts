@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Accessing Disguised User Responses on YT\""
-date: 2025-02-05T05:38:57.849Z
-updated: 2025-02-11T07:48:52.114Z
+date: 2025-02-23T10:50:39.720Z
+updated: 2025-03-01T17:42:28.271Z
 tags: 
   - screen-recording
   - ai video
@@ -88,25 +88,13 @@ Step1 Click on your Google Account icon and find **Your data in YouTube**.
 
 ![find your data in youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-your-data-in-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Scroll down a little bit and click the **More** button.
 
 ![your youtube dashboard more](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-dashboard-more.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 Click the **Comments** section.
 
 ![click comments your youtube dashboard](https://images.wondershare.com/filmora/article-images/2022/11/click-comments-your-youtube-dashboard.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now you will see your comment history, including the date when you commented on a certain video and also the exact comment you posted.
 
@@ -122,10 +110,6 @@ Step5 Scroll down and find **Comment Likes and Dislikes on YouTube** section. Cl
 
 ![your comment likes and dislikes](https://images.wondershare.com/filmora/article-images/2022/11/your-comment-likes-and-dislikes.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now you will see the videos you liked or disliked and also the comments you liked or disliked, including the date when you liked or disliked the video/comment.
 
 ![date likes videos youtube](https://images.wondershare.com/filmora/article-images/2022/11/date-likes-videos-youtube.jpg)
@@ -135,10 +119,6 @@ This article tells you that you can't see who liked or disliked a comment, but y
 ![likes comment received](https://images.wondershare.com/filmora/article-images/2022/11/likes-comment-received.jpg)
 
 In this image, the following comments only got likes and no dislikes. That is why there are just written numbers on the like button and on the dislike button there are none.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Respond to Comments
 
@@ -190,10 +170,6 @@ Additionally, video creators can manually highlight commenters to mark them for 
 
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to See Liked Comments on YouTube?
 
 YouTube is a service that is available for free, and it may be a terrific place for teenagers to find interest. Many young people use YouTube to watch comedy shows, how-to videos, recipes, hacks, and music videos. Teenagers also use the video-sharing platform to subscribe to other YouTubers and famous personalities and to follow their favorite vloggers (video bloggers).
@@ -212,17 +188,9 @@ Step1 Click on your Google Account icon and find **Your data in YouTube**.
 
 ![find your data in youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-your-data-in-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Scroll down a little bit and click the **More** button.
 
 ![your youtube dashboard more](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-dashboard-more.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step3 Click the **Comments** section.
 
@@ -237,10 +205,6 @@ To see videos/comments you liked or disliked, please follow these steps as conti
 Step4 In the **Google My Activity** tab, click **Other activity**.
 
 ![other activity youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/other-activity-youtube-comments.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step5 Scroll down and find **Comment Likes and Dislikes on YouTube** section. Click **View Comment Likes and Dislikes**.
 
@@ -326,24 +290,24 @@ Additionally, video creators can manually highlight commenters to mark them for 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-elite-4k-gaming-laptops-ranked-1/"><u>[New] 2024 Approved Elite 4K Gaming Laptops Ranked #1</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-transformative-audio-techniques-for-media-professionals/"><u>[New] 2024 Approved Transformative Audio Techniques for Media Professionals</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-expertly-easy-timekeepers-without-a-price-tag/"><u>[New] Expertly Easy Timekeepers Without a Price Tag</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-transforming-spaces-the-art-of-metaphysical-marketing-for-2024/"><u>[New] Transforming Spaces The Art of Metaphysical Marketing for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-using-b-roll-to-enhance-cinematic-quality/"><u>[Updated] In 2024, Using B-Roll to Enhance Cinematic Quality</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-integrating-wirecast-into-your-youtube-livestream-strategy/"><u>[Updated] Integrating WireCast Into Your YouTube Livestream Strategy</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-navigating-video-conferencing-with-ease-on-your-win10-pc-for-2024/"><u>[Updated] Navigating Video Conferencing with Ease on Your Win10 PC for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-unleash-your-videos-potential-thriving-in-youtube-rankings/"><u>[Updated] Unleash Your Video's Potential Thriving in YouTube Rankings</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-epitome-of-plot-crafting-through-eight-cinematic-fields/"><u>2024 Approved Epitome of Plot Crafting Through Eight Cinematic Fields</u></a></li>
-<li><a href="https://fox-links.techidaily.com/amplify-your-videos-the-best-text-effects-guide-for-2024/"><u>Amplify Your Videos The Best Text Effects Guide for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-achieve-unmatched-visuals-the-ultimate-guide-to-video-enhancer-22/"><u>In 2024, Achieve Unmatched Visuals The Ultimate Guide to Video Enhancer 2.2</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-how-to-enable-speech-to-text-in-powerpoint-a-step-by-step-guide/"><u>In 2024, How to Enable Speech-to-Text in PowerPoint A Step-by-Step Guide</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-savvy-soccer-snatching-how-to-record-and-cut-cheap/"><u>In 2024, Savvy Soccer Snatching How to Record and Cut Cheap</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-depth-analysis-the-vida-video-editor-experience-for-2024/"><u>In-Depth Analysis The Vida Video Editor Experience for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/one-click-wonder-livestream-your-podcast/"><u>One Click Wonder Livestream Your Podcast</u></a></li>
-<li><a href="https://article-posts.techidaily.com/the-4k-revolution-takes-flight-q500-review-for-2024/"><u>The 4K Revolution Takes Flight - Q500 Review for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-expert-guide-to-navigating-win11-easily-for-2024/"><u>The Expert Guide to Navigating Win11 Easily for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/tips-to-stop-auto-opens-of-windows-11s-searchbar/"><u>Tips to Stop Auto-Opens of Windows 11'S Searchbar</u></a></li>
-<li><a href="https://article-posts.techidaily.com/top-screenplay-creation-hub/"><u>Top Screenplay Creation Hub</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-professional-strategies-converting-xmlssattml-to-dynamic-srts/"><u>[New] 2024 Approved Professional Strategies Converting XML/SSA/TTML to Dynamic SRTs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-boost-creativity-and-production-in-movies-xp-software/"><u>[New] In 2024, Boost Creativity and Production in Movies XP Software</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-mastering-the-art-of-trailer-sound-design/"><u>[New] In 2024, Mastering the Art of Trailer Sound Design</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-harnessing-ambiance-with-thoughtful-lighting/"><u>[Updated] 2024 Approved Harnessing Ambiance with Thoughtful Lighting</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-syncing-images-android-iphone-file-transfer-guide/"><u>[Updated] 2024 Approved Syncing Images Android-iPhone File Transfer Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-ultimate-guide-to-iphone-ringtone-alterations/"><u>[Updated] 2024 Approved The Ultimate Guide to iPhone Ringtone Alterations</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-gopro-max-360-vs-hero-11-which-is-the-best-gopro-video-camera/"><u>[Updated] In 2024, GoPro Max 360 VS Hero 11 Which Is the Best GoPro Video Camera?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-magix-acid-pro-review-and-alternatives/"><u>[Updated] In 2024, Magix ACID Pro Review & Alternatives</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-quick-windows-data-evaluation-guide/"><u>[Updated] Quick Windows Data Evaluation Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-best-hash-tracking-apps-a-comprehensive-review-fbtwitterinsta/"><u>[Updated] The Best Hash Tracking Apps A Comprehensive Review (FB/Twitter/Insta)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-video-platform-economics-a-tale-of-two-titles-income-potentials/"><u>[Updated] Video Platform Economics A Tale of Two Titles' Income Potentials</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-enhance-channel-appeal-with-free-professional-banner-designs/"><u>2024 Approved Enhance Channel Appeal with Free, Professional Banner Designs</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/achieve-marketing-excellence-the-top-10-steps-to-mastering-smm-for-2024/"><u>Achieve Marketing Excellence The Top 10 Steps to Mastering SMM for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/effortless-security-for-your-macbook-unveiling-the-benefits-of-a-basic-and-budget-friendly-procase-case/"><u>Effortless Security for Your MacBook: Unveiling the Benefits of a Basic & Budget-Friendly ProCase Case</u></a></li>
+<li><a href="https://article-helps.techidaily.com/full-spectrum-visionary-eizos-cg318-4k-reviewed-and-revealed-for-2024/"><u>Full Spectrum Visionary EIZO's CG318-4K Reviewed and Revealed for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-on-apple-iphone-8-plus-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked On Apple iPhone 8 Plus?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-motorola-edge-40-pro-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Motorola Edge 40 Pro by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-rise-to-greatness-with-these-10-elevating-films/"><u>In 2024, Rise to Greatness with These 10 Elevating Films</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/quick-and-simple-creating-stunning-time-lapses-on-samsungs-for-2024/"><u>Quick & Simple Creating Stunning Time-Lapses on Samsungs for 2024</u></a></li>
 </ul></div>
 

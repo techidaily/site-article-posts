@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering Haul Vids  Creation & Editing Basics for 2024\""
-date: 2025-02-05T17:54:33.177Z
-updated: 2025-02-11T07:23:07.787Z
+date: 2025-02-24T22:24:43.551Z
+updated: 2025-03-02T04:54:05.346Z
 tags: 
   - screen-recording
   - ai video
@@ -31,10 +31,6 @@ A haul is usually a large amount of something that has been collected or won. An
 
 People nowadays are searching for something that they want to buy from the wide range of worldly goods out there. And that's where the Youtubers/ vloggers came in. They share their videos on YouTube wherein viewers can get some sort of review with a particular item. Like for example, I bought a t-shirt from the Old City of Jerusalem. I'll show the t-shirt itself; I'll tell what kind of fabric it has. Is it good or not in my own opinion. Where can someone buy it and how much does it cost? So, from there; viewers can decide for themselves if they're going to purchase that particular t-shirt in the future or not.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Things that you need if you want to make a haul video
 
 That's very simple. If you hoard stuffs for yourself or for your love ones out there, then that's basically all you need.
@@ -61,17 +57,9 @@ You can categorize your haul video into:
 
 ![souvenir haul video](https://images.wondershare.com/filmora/article-images/2022/07/souvenir-haul-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Christmas Haul** \- you can definitely guess what's into that particular haul. Stuffs that I bought during the Yuletide season. Because as we all know, “Christmas is the season of giving”.
 
 ![christmas haul video](https://images.wondershare.com/filmora/article-images/2022/07/christmas-haul-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 And once you're done filming the video itself, now it's time to edit it.
 
@@ -87,19 +75,11 @@ First thing first, like all the videos that I'm editing, we need to drag all our
 
 ![drag video clip haul](https://images.wondershare.com/filmora/article-images/2022/07/drag-video-clip-haul.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 By the way, before we proceed. I'm using Wondershare Filmora as my video editor if you want to know, just for the record.
 
 Cutting all the unnecessary information that I've said during the video, so that we can work as fast as we can afterwards. Just point the timeline scale to the specific part of the video you want to cut and then click the scissor icon.
 
 ![cut unneed haul clips](https://images.wondershare.com/filmora/article-images/2022/07/cut-unneed-haul-clips.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Next is highlight the part of the video that you want to delete and click the trash bin icon and you're ready to go the next part of it, that you need to omit once again. Just do the same process until you get rid of all the unnecessary part of the video.
 
@@ -111,17 +91,9 @@ Once we're done with the cutting part, we're now entering the most exciting part
 
 ![choose name for haul video](https://images.wondershare.com/filmora/article-images/2022/07/choose-name-for-haul-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The image below shows how I started to market the shirt that I bought from Adidas. What kind of fabric it has, is it suitable for the weather in the Philippines because I want to send it way back home and what particular size it is?
 
 ![market shirt video](https://images.wondershare.com/filmora/article-images/2022/07/market-shirt-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 I add a pop-up image and that image was the name of the online seller wherein I bought the t-shirt. And for your information, here in Israel; online selling is very common most specially within the Filipino community.
 
@@ -132,10 +104,6 @@ Next is I added a text to emphasize the price of the t-shirt and as you can see,
 What I love about haul video, is that I know what to add throughout the video itself because it's the same process actually. I need to describe the item first, then add a pop-up image of the seller or even place where I bought the item, and its price. Everything you need to know basically. So, in the image below; I insert the name of the Facebook Page where I bought that Tribal inspired shirt. When it comes to street wear, there's no better brand than **_Tribal Philippines_**. It is a brand supported by many great artists, especially in music, if you want to know it's origin.
 
 ![insert brand name haul video](https://images.wondershare.com/filmora/article-images/2022/07/insert-brand-name-haul-video_.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Another thing that you can see on my haul video is that I love to showcase my co-YouTuber so that viewers on my channel can check his/her channel too.
 
@@ -182,10 +150,6 @@ I add a pop-up image and that image was the name of the online seller wherein I 
 Next is I added a text to emphasize the price of the t-shirt and as you can see, I just chose the simplest title I got. There are lots of Titles to choose from as you can see in the image below. Choose what you think suits best for your video.
 
 ![add text to haul video](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-haul-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 What I love about haul video, is that I know what to add throughout the video itself because it's the same process actually. I need to describe the item first, then add a pop-up image of the seller or even place where I bought the item, and its price. Everything you need to know basically. So, in the image below; I insert the name of the Facebook Page where I bought that Tribal inspired shirt. When it comes to street wear, there's no better brand than **_Tribal Philippines_**. It is a brand supported by many great artists, especially in music, if you want to know it's origin.
 
@@ -229,17 +193,15 @@ And if you're looking for a simple but powerful video editor for Personal Comput
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-file-flow-fixtures-easy-moves-for-your-machine-for-2024/"><u>[New] File Flow Fixtures Easy Moves for Your Machine for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-the-complete-guide-to-netflix-screen-capture-discover-six-efficient-ways-on-macos/"><u>[Updated] 2024 Approved The Complete Guide to Netflix Screen Capture - Discover Six Efficient Ways on macOS</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-analyzing-the-features-of-vegaspros-latest-release/"><u>[Updated] Analyzing the Features of VegasPro's Latest Release</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-strategies-to-exclude-recommended-podcasts-in-spotify/"><u>[Updated] Strategies to Exclude Recommended Podcasts in Spotify</u></a></li>
-<li><a href="https://extra-information.techidaily.com/advanced-visual-techniques-for-impressive-after-effects-titles/"><u>Advanced Visual Techniques for Impressive After Effects Titles</u></a></li>
-<li><a href="https://windows11.techidaily.com/command-center-for-direct-access-to-windows-11s-appsfolders/"><u>Command Center for Direct Access to Windows 11'S AppsFolders</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/descargas-gratuitas-para-convertir-archivos-aiff-a-wma-sin-problemas-guia-de-movavi/"><u>Descargas Gratuitas Para Convertir Archivos AIFF a WMA Sin Problemas: Guía De Movavi</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-premiere-previews-extravaganza/"><u>In 2024, Premiere Previews Extravaganza</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-viral-stocks-uncovered-behind-the-photo-stories/"><u>In 2024, Viral Stocks Uncovered Behind the Photo Stories</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/rating-youtube-into-your-imovie-projects-for-2024/"><u>Integrating YouTube Into Your iMovie Projects for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/key-aspects-opting-for-ai-assisted-therapy-via-chatgpt/"><u>Key Aspects: Opting for AI-Assisted Therapy via ChatGPT</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/quick-tips-for-quality-animation-in-movie-maker-for-2024/"><u>Quick Tips for Quality Animation in Movie Maker for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-detailed-analysis-vlc-for-video-capture/"><u>[Updated] 2024 Approved Detailed Analysis VLC for Video Capture</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-gastronomy-in-action-a-guide-to-high-quality-food-videos-for-2024/"><u>[Updated] Gastronomy in Action A Guide to High-Quality Food Videos for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-gigglesome-footage-downloader/"><u>[Updated] In 2024, Gigglesome Footage Downloader</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-mastering-lengthy-iphone-photo-captures/"><u>[Updated] In 2024, Mastering Lengthy iPhone Photo Captures</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-preferred-choices-affordable-channels-for-newbie-monetizers/"><u>2024 Approved Preferred Choices Affordable Channels for Newbie Monetizers</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-the-art-of-choosing-between-independent-or-mnc-status/"><u>2024 Approved The Art of Choosing Between Independent or MNC Status</u></a></li>
+<li><a href="https://extra-information.techidaily.com/celebrating-creators-top-notch-otu-designs/"><u>Celebrating Creators Top-Notch OTU Designs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/from-ground-to-sky-the-lifting-elite-drone-list/"><u>From Ground to Sky The Lifting Elite Drone List</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-oppo-reno-10-pro-5g-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Oppo Reno 10 Pro 5G FRP</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/solving-windows-isdonedll-complications-quickly/"><u>Solving Windows ISDone.dll Complications Quickly</u></a></li>
 </ul></div>
 

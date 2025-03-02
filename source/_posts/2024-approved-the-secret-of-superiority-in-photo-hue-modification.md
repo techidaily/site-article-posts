@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Secret of Superiority in Photo Hue Modification\""
-date: 2024-08-15T08:16:26.991Z
-updated: 2024-08-16T08:16:26.991Z
+date: 2025-02-27T00:29:07.406Z
+updated: 2025-03-02T03:15:41.885Z
 tags: 
   - screen-recording
   - ai video
@@ -33,9 +33,6 @@ Do you want to change the color of any particular shirt in the photo? Then use A
 On the tab of hue and saturation, you can use hue, saturation, and brightness to change the color of your selected shirt. Just use their draggers to change the color, brightness, and saturation according to your preferences. After making all the changes, you would need to find and tune the selection to get rid of minor flaws.
 
 ![change the hue to change color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-1.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 
 Another way to change the color of the shirt is by navigating to the “Solid Color Adjustment Layer.” After that, you just need to apply the "Hue and Saturation Layer" to the previous layer to make the color changes quickly. Now blend the colors by either using hue or color mode to adjust the layers.
 
@@ -50,18 +47,12 @@ The reason for using different adjustment layers is that it can produce natural 
 Now do the tuning by navigating to the layer mask and also select the layers. After that, Tap on "CTRL+E" to merge all the settings and layers, and you will get your desired color.
 
 ![use sliders to black or white](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-3.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 
 ### 3\. Tip 3: Add Color to White Object
 
 If you want to add color to your black or white shirt, you can do it by “Hue and Saturation Adjustment Layer.” On this layer, tap on “Colorize” and choose the color you want to add. Another technique is to create a “Fill Adjustment Layer” and then change the blending mode into “Multiple.” Now, click on the “Color Picker,” and you can pick and choose your preferred color. If you want to add a dark color rather than a subtle color, change the mode to “Screen.”
 
 ![pick the color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-4.jpg)
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 
 ### 4\. Tip 4: Use Direct Selection Color Picker
 
@@ -70,21 +61,12 @@ Through the direct selection color picker, you can change the color of an object
 At the bottom of the options, you can see two points that will tell you about your chosen color and the ranges it offers. You can adjust the color by dragging the sliders manually. Now, adjust the layers of your image to make the colors of the image look better.
 
 ![change specific color to another color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-5.jpg)
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ### 5\. Tip 5: Choose Object Color Range
 
 Do you want to change the color of a specific part of the image? You can do this on Adobe Photoshop photo color editor by going to the "Quick Selection Tool" and then applying the colors, but it may leave edges and curves of the object. So, the recommended way is to navigate to the “Select” tab and then click on “Color Range” from its drop-down menu.
 
 ![access color range option](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-6.jpg)
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 After clicking on the color range option, a pop-up window will appear from which tap on “Selection.” You can view your image on the preview window and can select the whole back using the “Selection” tool.
 
@@ -94,9 +76,6 @@ Afterward, create a group in which add layers, mask, and adjustment layers to ch
 
 ![change hue for changing color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ### 6\. Tip 6: Use Blend IF
 
 If you want to change the color of leaves on a tree, you can use the “Blend IF” option of Adobe Photoshop to precisely do the changes. Start with duplicating the existing layer and then hiding the second layer. Double click on the layer to open the menu and then use “Blend IF” sliders. This option works when you drag the sliders to black points, and it automatically hides the dark pixels of your photo.
@@ -112,14 +91,7 @@ This method only hides color based on their luminance values; however, this load
 It helps the user create transparency across the layer. After hiding the layer and coming back to another object-specific layer, you can create a certain change in effect through adjustment layers. For instance, you can create a “Hue and Saturation” adjustment layer. With the above settings, Photoshop applies this as a layer mask for you. Use the sliders across the set layer to change the color across the selected areas.
 
 ![select your new color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-11.jpg)
-<!-- affiliate ads begin -->
 
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ### 7\. Tip 7: Use Online Photo Editor to Change Colors
 
 If you don’t have an offline tool like Adobe Photoshop, you can use an online photo color editor to replace the colors quickly. In this part, we will suggest [BeFunky](https://www.befunky.com/) photo color editor change the photo colors efficiently.
@@ -131,10 +103,6 @@ To change the color, navigate to this tool and upload the images. Then, head to 
 To increase or decrease the intensity of your color, use the “Tolerance” option, and drag it accordingly. If you want to change the hue of the source color, click on the box next to “Target Color.” If you have accidentally applied any color on some part, you can head to erase tab and can remove the alterations from the brush.
 
 ![choose target color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-13.jpg)
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -162,6 +130,26 @@ Changing the color of a photo can save us a lot of work done and effort. To effo
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-instagram-live-maintaining-privacy-while-streaming/"><u>[New] 2024 Approved Instagram Live Maintaining Privacy While Streaming</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-one-minute-color-magic/"><u>[New] In 2024, One Minute Color Magic</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-step-by-step-guide-to-adding-your-own-video-images/"><u>[New] In 2024, Step-by-Step Guide to Adding Your Own Video Images</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-syncing-visuals-and-soundtracks-in-video-magic/"><u>[New] In 2024, Syncing Visuals & Soundtracks in Video Magic</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-photographys-new-frontier-toolwiz-app-detailed-review-2023-edition-for-2024/"><u>[New] Photography's New Frontier Toolwiz App - Detailed Review, 2023 Edition for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-ultimate-10-best-apps-for-real-time-soccer-and-match-broadcasting-for-2024/"><u>[Updated] Ultimate 10 Best Apps for Real-Time Soccer and Match Broadcasting for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-reel-your-browser-life-the-foremost-tools-for-high-quality-captures/"><u>2024 Approved Reel Your Browser Life The Foremost Tools for High-Quality Captures</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-ultimate-guide-to-the-best-free-image-overlay-tools-for-mobile/"><u>2024 Approved Ultimate Guide to the Best Free Image Overlay Tools for Mobile</u></a></li>
+<li><a href="https://article-posts.techidaily.com/elevate-your-posts-adding-animation-to-text-in-stories/"><u>Elevate Your Posts Adding Animation to Text in Stories</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-capitalize-on-your-youtube-shorts-for-cash-flow/"><u>How to Capitalize on Your YouTube Shorts for Cash Flow</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-fix-iphone-7-plus-could-not-be-activatedreached-issue-by-drfone-ios/"><u>How To Fix iPhone 7 Plus Could Not Be Activated/Reached Issue</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-your-asus-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Asus Lock Screen Password</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-reviewing-the-unseen-facebooks-privacy-and-security-guide/"><u>In 2024, Reviewing the Unseen Facebook's Privacy and Security Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-unlock-potential-androidandioss-top-free-overlay-tools-guide/"><u>In 2024, Unlock Potential Android&iOS's Top Free Overlay Tools Guide</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/keine-chance-fur-verlorene-daten-effiziente-wiederherstellungsmoglichkeiten-fur-endgultig-geloschte-elemente-in-microsoft-outlook/"><u>Keine Chance Für Verlorene Daten! Effiziente Wiederherstellungsmöglichkeiten Für Endgültig Gelöschte Elemente in Microsoft Outlook</u></a></li>
+<li><a href="https://article-posts.techidaily.com/regaining-access-to-windows-photo-viewer-two-steps-for-windows-10-for-2024/"><u>Regaining Access to Windows Photo Viewer Two Steps for Windows 10 for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/top-tips-for-procuring-high-quality-background-imagery/"><u>Top Tips for Procuring High-Quality Background Imagery</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/transformative-talk-20-words-to-bolster-marketing-success/"><u>Transformative Talk 20 Words to Bolster Marketing Success</u></a></li>
+<li><a href="https://article-posts.techidaily.com/unlocking-the-power-of-authenticity-in-testimonial-videography-for-2024/"><u>Unlocking the Power of Authenticity in Testimonial Videography for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Ultimate Guide to Color Theory and Practical Application Techniques for 2024"
-date: 2025-02-07T10:15:10.717Z
-updated: 2025-02-11T02:22:21.264Z
+date: 2025-03-01T06:58:08.107Z
+updated: 2025-03-02T03:21:25.447Z
 tags: 
   - screen-recording
   - ai video
@@ -33,25 +33,13 @@ Color theory consists of many elements that could fill a library on its own but 
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Color Wheel
 
 Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Color Harmony
 
@@ -67,19 +55,11 @@ The blue lines represent what is known as split contrasting colors and these wil
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## But How Do I Use This
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
@@ -123,22 +103,16 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-instructions-for-installing-windows-movie-maker-6/"><u>[New] 2024 Approved Instructions for Installing Windows Movie Maker 6</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-best-slideshow-apps-iphone-series-8-series-12/"><u>[New] Best Slideshow Apps (iPhone Series 8-Series 12)</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-leading-10-in-ultra-hd-top-4k-mirrorless-photo-journals/"><u>[New] In 2024, Leading 10 in Ultra-HD Top 4K Mirrorless Photo Journals</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-optimizing-performance-best-practices-for-fast-loading-times/"><u>[New] Optimizing Performance Best Practices for Fast Loading Times</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-ultimate-list-for-google-pixel-tunes/"><u>[New] The Ultimate List for Google Pixel Tunes</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-topline-numbers-pewdiepies-yearly-income-for-2024/"><u>[New] Topline Numbers PewDiePie's Yearly Income for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-secrets-to-affordable-buying-of-gopro-devices/"><u>[Updated] Secrets to Affordable Buying of GoPro Devices</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-vuephoto-ai-powered-editing-for-2024/"><u>[Updated] VuePhoto AI-Powered Editing for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/can-electric-cars-operate-efficiently-in-severe-climate-extremes/"><u>Can Electric Cars Operate Efficiently in Severe Climate Extremes?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/demystifying-and-decollecting-gopros-fish-eye-photos-for-2024/"><u>Demystifying & Decollecting GoPro's Fish Eye Photos for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-do-i-reset-my-honor-x50-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Honor X50 Phone without technical knowledge? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-honor-magic-6-pro-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Honor Magic 6 Pro Safely | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-stop-autoplay-for-spotify-on-pcs/"><u>How to Stop Autoplay for Spotify on PCs</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-the-ultimate-guide-to-meta-and-omni-versions/"><u>In 2024, The Ultimate Guide to Meta & Omni Versions</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-mastering-sound-a-comprehensive-guide-to-normalizing-audio-in-multimedia-content/"><u>New In 2024, Mastering Sound A Comprehensive Guide to Normalizing Audio in Multimedia Content</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ts-to-featuring-on-youtube-a-comprehensive-walkthrough-for-2024/"><u>Secrets to Featuring on YouTube A Comprehensive Walkthrough for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/tonal-treasures-the-ultimate-list-of-classical-download-sites/"><u>Tonal Treasures The Ultimate List of Classical Download Sites</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-hilarity-in-hd-the-best-photo-editing-tools-online-for-2024/"><u>[New] Hilarity in HD The Best Photo Editing Tools Online for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-from-drafts-to-masterpieces-top-10-essential-graphic-design-tools/"><u>[New] In 2024, From Drafts to Masterpieces Top 10 Essential Graphic Design Tools</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-kickstart-your-twitch-streaming-journey/"><u>[New] In 2024, Kickstart Your Twitch Streaming Journey</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-efficiency-in-conversion-a-compact-list-of-the-top-10-video-transformers/"><u>[Updated] 2024 Approved Efficiency in Conversion A Compact List of the Top 10 Video Transformers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-screenplay-foundations-a-guide/"><u>[Updated] 2024 Approved Screenplay Foundations A Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-ultimate-2024-high-definition-cameras/"><u>[Updated] The Ultimate 2024 High Definition Cameras</u></a></li>
+<li><a href="https://driver-download.techidaily.com/hassle-free-update-guide-for-surface-book-drivers-quick-download-steps-inside/"><u>Hassle-Free Update Guide for Surface Book Drivers - Quick Download Steps Inside</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-comparing-the-creme-de-la-creme-gopro-hero5-black-to-hero4-silver/"><u>In 2024, Comparing the Crème De La Crème GoPro Hero5 Black to Hero4 Silver</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-oppo-a1x-5g-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Oppo A1x 5G Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-turn-off-algorithms-on-twitter-instagram-and-facebook/"><u>Mastering Social Media: Turn Off Algorithms on Twitter, Instagram, & Facebook</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/maximize-your-build-potential-msi-now-offers-256gb-memory-support-for-both-intel-and-amd-motherboards/"><u>Maximize Your Build Potential: MSI Now Offers 256GB Memory Support for Both Intel and AMD Motherboards</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Turning Pics Into Time Capsules With Videos\""
-date: 2024-08-15T08:19:32.173Z
-updated: 2024-08-16T08:19:32.173Z
+date: 2025-03-01T15:25:19.796Z
+updated: 2025-03-02T10:27:00.855Z
 tags: 
   - screen-recording
   - ai video
@@ -85,9 +85,6 @@ To learn how to come up with an impressive video collage using Filmora, just fol
 To start with, you can just launch Filmora on your system and import your photos to the application. Simply click on the “Import” button from the toolbar to insert selective pictures or an entire folder. This will open a browser window, letting you locate and load the photos of your choice.
 
 ![import Digitized Photos](https://images.wondershare.com/filmora/article-images/import-digitized-photos.jpg)
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 
 #### 2\. Create a timeline for your photos
 
@@ -100,9 +97,6 @@ Once you have imported your photos, you can include them in the timeline. To do 
 Just above the timeline, you can find all kinds of tools to edit your video. For instance, you can crop your photos, split the video, delete pictures, correct their coloring, and so on. To explore more options, you can click on the edit icon here.
 
 ![Edit Digitized Photos](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
@@ -111,9 +105,6 @@ The edit option will present tons of additional features that you can implement 
 As stated above, you can find a wide range of video editing options to explore in Fimora. On top of the interface, you can switch between audio, transition, effects, titles, and other options. You can just go to any feature here (like effects) to apply it to the video.
 
 ![Add Effects to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 To add text to your videos, just go to the “Titles” option here. This will let you select a text effect, letting you add the content of your choice.
 
@@ -128,9 +119,6 @@ Besides that, you can also add a track to the video by visiting the “Audio” 
 That’s it! After making all the changes, you can preview your video on the right side. If you are satisfied with the results, then click on the “Export” button from the top. This will open a dedicated window, letting you select a preferred format to export your file. You can also select a resolution for your video to adjust its size as well.
 
 ![Export Book Trailer File](https://images.wondershare.com/filmora/article-images/book-trailer-export-file.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 
 Find more fancy ways to make the best photo and video slideshow with Filmora!
 
@@ -161,16 +149,10 @@ Click here to know: [where to get royalty-free music?](https://tools.techidaily.
 Most importantly, pick a user-friendly and effective video editor like Filmora. The application will let you come up with stunning videos using your photos without much effort.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 
 There you go! I’m sure that after reading this guide, you would be able to digitize photos pretty easily. Not just that, you can also come up with memorable videos using your old photographs with a tool like Filmora. The resourceful application offers a wide range of video editing tools that will certainly come handy to you on numerous occasions.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -195,6 +177,18 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-achieving-gentle-growth-of-silence-in-audio-production/"><u>[New] Achieving Gentle Growth of Silence in Audio Production</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-best-cam-cover-hacks-top-10-list/"><u>[New] Best Cam Cover Hacks - Top 10 List</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-innovative-approaches-to-supercharge-your-editing-workflow-for-2024/"><u>[New] Innovative Approaches to Supercharge Your Editing Workflow for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-t5-thievery-a-comprehensive-action-footage-analysis-for-2024/"><u>[New] T5 Thievery - A Comprehensive Action Footage Analysis for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-audio-archiving-strategies-on-apple-devices/"><u>[Updated] 2024 Approved Audio Archiving Strategies on Apple Devices</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-how-to-create-a-unique-cellphone-alert-from-favorite-tiktok-songs/"><u>[Updated] 2024 Approved How to Create a Unique Cellphone Alert From Favorite TikTok Songs</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-prime-video-grabber-fb-and-firefox-edition/"><u>[Updated] Prime Video Grabber FB & FireFox Edition</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-your-slides-add-video-from-youtube-by-google-for-2024/"><u>Boost Your Slides Add Video From YouTube, by Google for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/essential-steps-for-youtube-videos-to-mpeg-format/"><u>Essential Steps for YouTube Videos to MPEG Format</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/facebook-group-video-downloader/"><u>Facebook Group Video Downloader</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-honor-90-lite-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Honor 90 Lite?</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Steps for Gradual Audio Dimming with Lumafusion for 2024"
-date: 2025-02-06T19:08:10.536Z
-updated: 2025-02-10T17:11:22.407Z
+date: 2025-02-25T05:23:30.553Z
+updated: 2025-03-01T23:29:11.931Z
 tags: 
   - screen-recording
   - ai video
@@ -26,10 +26,6 @@ Video editors should give LumaFusion a try if they want to use its compact LumaF
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1\. How to Fade Audio with LumaFusion
 
@@ -71,10 +67,6 @@ Drag and drop your sound recordings from the media library to the timeline at th
 
 ![import audios to fade](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step3 Apply Fade Effects
 
 The fade-in audio button inside your audio file may be seen when you just hover over the audio file within the timeline and look for the white circle filled with pink hue at the beginning and finish of your audio file. On the other hand, to choose the fade-out audio, click and drag the pink circle that appears on the opposite end of the audio file in the timeline that you have chosen to fade out the music file.
@@ -86,10 +78,6 @@ The fade-in audio button inside your audio file may be seen when you just hover 
 After finishing the method for editing audio in Filmora, click the Export button in the top menu corner as shown here:
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3\. Related FAQs about LumaFusion
 
@@ -119,10 +107,6 @@ Drag and drop your sound recordings from the media library to the timeline at th
 
 ![import audios to fade](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step3 Apply Fade Effects
 
 The fade-in audio button inside your audio file may be seen when you just hover over the audio file within the timeline and look for the white circle filled with pink hue at the beginning and finish of your audio file. On the other hand, to choose the fade-out audio, click and drag the pink circle that appears on the opposite end of the audio file in the timeline that you have chosen to fade out the music file.
@@ -135,19 +119,11 @@ After finishing the method for editing audio in Filmora, click the Export button
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3\. Related FAQs about LumaFusion
 
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. How do you do transitions in LumaFusion?
 
@@ -181,18 +157,14 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-getting-started-with-azures-speech-to-text-feature-for-2024/"><u>[New] Getting Started with Azure's Speech-to-Text Feature for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-google-ar-decorations-and-their-competing-products/"><u>[New] Google AR Decorations & Their Competing Products</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-pioneering-digital-music-management-win-media-and-cds/"><u>[New] Pioneering Digital Music Management Win, Media and Cds</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-superior-15-camcorders-for-uhd-video-for-2024/"><u>[New] Superior 15 Camcorders for UHD Video for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-xsplit-vs-obs-which-one-leads-in-livestream-quality-in-2024/"><u>[New] XSplit Vs. OBS – Which One Leads in Livestream Quality, In 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-close-up-filmmaking-zooming-into-details/"><u>[Updated] Close-Up Filmmaking Zooming Into Details</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-tinting-truths-crafting-perfect-imagery/"><u>[Updated] Tinting Truths Crafting Perfect Imagery</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-the-quick-start-method-for-combining-obs-and-zoom/"><u>2024 Approved The Quick-Start Method for Combining OBS & Zoom</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/circumventing-the-failed-to-launch-lunar-client-windows-message/"><u>Circumventing the Failed to Launch: Lunar Client Windows Message</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-seamless-internet-on-the-go-the-mini-yet-mighty-orlink-u631-wireless-usb-adapter/"><u>Experience Seamless Internet on the Go: The Mini, Yet Mighty ORLINK U631 Wireless USB Adapter</u></a></li>
-<li><a href="https://article-posts.techidaily.com/exploring-the-boundaries-of-ae-type-design/"><u>Exploring the Boundaries of AE Type Design</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-the-insiders-pathway-to-effective-auditory-notes/"><u>In 2024, The Insider’s Pathway to Effective Auditory Notes</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-google-pixel-fold-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Google Pixel Fold</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-from-novice-to-master-the-ultimate-periscope-handbook/"><u>[New] 2024 Approved From Novice to Master The Ultimate Periscope Handbook</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-express-originality-craft-professional-logos-from-template-designs-free/"><u>[New] Express Originality Craft Professional Logos From Template Designs (Free)</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-obs-studio-for-professional-gamers/"><u>[New] In 2024, OBS Studio for Professional Gamers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exploring-virtual-horizons-with-meaningful-metaverse-sentiments/"><u>[Updated] Exploring Virtual Horizons with Meaningful Metaverse Sentiments</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-apex-10-virtual-warrior-battles/"><u>[Updated] In 2024, Apex 10 Virtual Warrior Battles</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-dotx-file-electronically-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to sign .dotx file electronically</u></a></li>
+<li><a href="https://article-posts.techidaily.com/revolutionary-techniques-to-elevate-vhs-photos-on-pcs/"><u>Revolutionary Techniques to Elevate VHS Photos on PCs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-beginners-blueprint-mastering-telegram-web/"><u>The Beginner's Blueprint Mastering Telegram Web</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/top-5-tracking-apps-to-track-apple-iphone-14-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>Top 5 Tracking Apps to Track Apple iPhone 14 without Them Knowing | Dr.fone</u></a></li>
 </ul></div>
 

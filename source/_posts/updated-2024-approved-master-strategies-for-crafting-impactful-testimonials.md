@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Master Strategies for Crafting Impactful Testimonials\""
-date: 2025-02-10T02:46:18.162Z
-updated: 2025-02-11T08:56:27.021Z
+date: 2025-02-25T19:24:28.366Z
+updated: 2025-03-01T23:18:25.799Z
 tags: 
   - screen-recording
   - ai video
@@ -36,10 +36,6 @@ It may seem like a daunting task, but there are several ways you can go about de
 * If possible, talk with current customers and ask them what they love about their experience with your business.
 * If that's not an option for some reason (maybe there aren't any current customers), consider hiring a research firm or marketing agency that specializes in surveying potential customers and asking questions like "What would encourage you to buy from us?" or "How could we improve our service?" With this information in hand, it should be easier than ever before!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Ask Authentic Questions
 
 ![ask authentic questions](https://images.wondershare.com/filmora/article-images/2022/07/ask-authentic-questions.jpg)
@@ -48,10 +44,6 @@ It may seem like a daunting task, but there are several ways you can go about de
 * Make your question relevant to the customer and your product or service.
 * The more specific you can be with these questions, the better. For example, if you're selling pet products online, ask about their pets' names, breed, and color (if applicable).
 * If there's no good reason for asking a question then don't! For example: "How was your experience with our website?"
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Include Strong Opinions
 
@@ -73,10 +65,6 @@ When asking someone for their thoughts on a topic or issue, there's always going
 
 Asking open-ended questions allows people greater freedom when responding—and while this may sound like an ideal situation when creating content, it often results in less-than-ideal responses when creating content at scale since you won't always get exactly what you want out of every shot.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Lighting, Sound, and Video Quality Matter
 
 ![lighting sound video quality](https://images.wondershare.com/filmora/article-images/2022/07/lighting-sound-video-quality.jpg)
@@ -89,10 +77,6 @@ This is a given. If you want your testimonial videos to be effective and believa
 
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 When you're listening to your customers, don't just take notes on what they say. Also, look at their body language and eye movement. This can tell you a lot about whether they are telling the truth or not, and it will give you an idea of what may be going on in their head.
 
 If someone says "I love this product," but then shows their eyes darting around nervously, that could mean that they're worried about saying something nice about the product because it's not really meeting their needs. If someone says "It's okay," but he or she is nodding along with enthusiasm when talking about it, that probably means he or she really does like it!
@@ -104,10 +88,6 @@ If someone says "I love this product," but then shows their eyes darting around 
 You might have skeptics and negative nellies in your audience. They're the ones who are less likely to buy, but more likely to be negative about everything.
 
 These people will try to poke holes in what you've done and make it sound like your product or service isn't worth buying no matter what you do for them. Luckily for us, there are a few things we can do about this!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -143,18 +123,22 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-how-to-create-a-3d-text-art-effect-in-adobe-illustrator/"><u>[New] How to Create a 3D Text Art Effect in Adobe Illustrator</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-techniques-to-write-persuasive-videographic-dialogues/"><u>[New] Techniques to Write Persuasive Videographic Dialogues</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-unveiling-the-future-with-tomtom-bandit-2023/"><u>[New] Unveiling the Future with TomTom Bandit 2023</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-total-insight-into-vscos-photography-ecosystem/"><u>[Updated] 2024 Approved Total Insight Into VSCO's Photography Ecosystem</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-enhancing-productivity-business-growth-via-virtual-reality/"><u>[Updated] Enhancing Productivity Business Growth via Virtual Reality</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-samsung-galaxy-s8-4k-smartphone-review/"><u>[Updated] In 2024, Samsung Galaxy S8 4K Smartphone Review</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/2024-approved-winning-youtube-affiliate-deals-famebits-guide-to-earnings/"><u>2024 Approved Winning YouTube Affiliate Deals FameBit's Guide to Earnings</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/disabling-wi-fi-connection-on-a-windows-11-machine-a-step-by-step-guide-by-yl-computing/"><u>Disabling Wi-Fi Connection on a Windows 11 Machine: A Step-by-Step Guide by YL Computing</u></a></li>
-<li><a href="https://win-dash.techidaily.com/easy-driver-downloads-for-your-lenovo-x1-carbon-windows-107-supported/"><u>Easy Driver Downloads for Your Lenovo X1 Carbon: Windows 10/7 Supported</u></a></li>
-<li><a href="https://video-capture.techidaily.com/integrating-advanced-movie-capture-on-diverse-tech-environments/"><u>Integrating Advanced Movie Capture on Diverse Tech Environments</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/paso-a-paso-transformando-clasicos-del-video-en-formato-digital-con-dvd-mediante-tu-computador-personal/"><u>Paso a Paso: Transformando Clásicos Del Video en Formato Digital Con DVD Mediante Tu Computador Personal</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/seven-ways-to-a-windowed-wonderland-on-windows-11/"><u>Seven Ways to a Windowed Wonderland on Windows 11</u></a></li>
-<li><a href="https://article-posts.techidaily.com/the-authoritative-guide-to-generating-srt-files-with-expert-tips/"><u>The Authoritative Guide to Generating SRT Files with Expert Tips</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-selecting-quality-on-a-shoe-string-10-best-free-lut-picks/"><u>[New] 2024 Approved Selecting Quality on a Shoe String 10 Best Free LUT Picks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-bridging-the-gap-between-human-perception-and-photographic-capture-for-2024/"><u>[New] Bridging the Gap Between Human Perception and Photographic Capture for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-expert-analysis-the-full-spectrum-of-bublcam-360/"><u>[New] Expert Analysis The Full Spectrum of Bublcam 360</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-learn-illustration-magic-a-guide-to-adobe-motion-blur/"><u>[New] In 2024, Learn Illustration Magic A Guide to Adobe Motion Blur</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-syma-x8c-mastering-advanced-maneuvers/"><u>[Updated] 2024 Approved Syma X8C Mastering Advanced Maneuvers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-unlock-a-million-eyes-engaging-content-strategy/"><u>[Updated] In 2024, Unlock a Million Eyes Engaging Content Strategy</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-shade-portraits-with-orbital-illumination-technique-cs-for-2024/"><u>[Updated] Shade Portraits with Orbital Illumination Technique CS for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-28-days-to-becoming-an-instagram-reel-sensation/"><u>2024 Approved 28 Days to Becoming an Instagram Reel Sensation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-extended-computer-desk-pads-reviewed-top-selections-of-2024/"><u>Best Extended Computer Desk Pads Reviewed - Top Selections of 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-bridges-built-with-these-italian-welcoming-expressions/"><u>Cultural Bridges Built with These Italian Welcoming Expressions</u></a></li>
+<li><a href="https://win-superb.techidaily.com/externe-festplatten-dateioffnungs-losung-erfahre-eine-schnelle-performance/"><u>Externe Festplatten-Dateiöffnungs-Lösung – Erfahre Eine Schnelle Performance</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/going-green-with-iphones-how-apples-decision-facilitates-reusing-parts-for-targeted-repairs-zdnet-insights/"><u>Going Green with iPhones: How Apple's Decision Facilitates Reusing Parts for Targeted Repairs | ZDNet Insights</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-oppo-find-n3-flip-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Oppo Find N3 Flip Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on OnePlus Ace 2V | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-mastering-windows-colors-expertise-for-viewing-and-editing-hd-video/"><u>In 2024, Mastering Windows Colors Expertise for Viewing & Editing HD Video</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/innovative-listening-techniques-for-students-with-macs-for-2024/"><u>Innovative Listening Techniques for Students with Macs for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-m1-pro-vs-the-m1-max-showdown-what-sets-them-apart-for-2024/"><u>The M1 Pro Vs. The M1 Max Showdown - What Sets Them Apart for 2024</u></a></li>
 </ul></div>
 

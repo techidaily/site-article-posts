@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Enabling/Disabling Picture-in-Picture  A Step-by-Step Guide for iPhones\""
-date: 2025-02-05T03:08:39.758Z
-updated: 2025-02-10T21:38:38.390Z
+date: 2025-03-01T04:20:49.233Z
+updated: 2025-03-01T20:12:24.492Z
 tags: 
   - screen-recording
   - ai video
@@ -44,10 +44,6 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![shortcut application](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Tap **Allow Untrusted Shortcuts** in the Shortcut Application on your device
 2. Now go to the actual YouTube App and start to play a video
 3. As the video plays, tap on the **Share icon** then scroll to the right end of the list of sharing options for platforms and Apps. Tap the **More icon** at the right end.
@@ -62,19 +58,11 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![download scriptable app](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Go to YouTube again and start any video. Tap the **Share icon**, scroll to the right and tap the **More icon**, go ahead and tap the YouTube PIP. And on the burner that pops up at the top of the screen of your phone, tap **OK**.
 
 ![floating screen](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-5.jpg)
 
 And there you go, now you will be able to watch your videos on a floating screen. This procedure may be pretty tedious, but it is all worth it if you follow keenly to the end. You will do it only once.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. How to Disable Picture in Picture for YouTube on iPhone
 
@@ -85,10 +73,6 @@ To use PIP on iPhone effectively, you may sometime need to deactivate it so that
 3. Go to **“** **Settings > General Settings”**
 4. Scroll down. You will see the **Picture-in-Picture**
 5. Tap the switch button to switch it off. And there you are. You have disabled PIP for YouTube on iPhone.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3\. How to enable Picture in Picture for YouTube on Mac and iPad
 
@@ -113,10 +97,6 @@ Before you use Picture in Picture in YouTube, you require two Apps on your devic
 5. Tap **YouTube PIP** and select **OK** on the burner that appears on the screen. This will produce a new floating window automatically on the screen. You can select a window resolution that fits you and go back to Home Screen. Your video will play in a floating window on your home screen.
 
 ![floating window](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### PIP on Mac
 
@@ -169,22 +149,22 @@ Picture in Picture is a computer utility feature in the USA. It has not been lau
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-dissecting-the-best-app-for-video-editing-is-inshot-it/"><u>[New] Dissecting the Best App for Video Editing - Is InShot It?</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-setting-up-seamless-auto-play-for-fb-content/"><u>[New] In 2024, Setting Up Seamless Auto-Play for FB Content</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-unleash-the-full-potential-of-your-iphone-x7plus-with-these-free-tools/"><u>[New] In 2024, Unleash the Full Potential of Your iPhone X/7+ with These Free Tools</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-mastering-the-art-of-restarting-disrupted-fb-live-sessions/"><u>[New] Mastering the Art of Restarting Disrupted FB LIVE Sessions</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-turning-still-shots-into-audio-visual-narratives-for-2024/"><u>[New] Turning Still Shots Into Audio-Visual Narratives for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-privacy-filter-concealing-visual-details-in-media/"><u>[Updated] 2024 Approved The Privacy Filter Concealing Visual Details in Media</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-your-guide-to-the-top-10-free-jpeg-to-gif-conversion-sites/"><u>[Updated] In 2024, Your Guide to the Top 10 Free JPEG-to-GIF Conversion Sites</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-keep-the-curiosity-alive-with-these-6-viewer-friendly-types/"><u>[Updated] Keep the Curiosity Alive with These 6 Viewer-Friendly Types</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-savor-on-screen-mastering-food-films-with-these-7-essentials/"><u>[Updated] Savor on Screen - Mastering Food Films with These 7 Essentials</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-ultimate-online-seminar-title-crafter/"><u>[Updated] Ultimate Online Seminar Title Crafter</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/essential-vr-equipment-for-your-metaverse-adventures/"><u>Essential VR Equipment for Your Metaverse Adventures</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-freed-images-public-domain-canvas/"><u>In 2024, Freed Images Public Domain Canvas</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-xiaomi-redmi-note-13-proplus-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Xiaomi Redmi Note 13 Pro+ 5G Devices</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-honor-100-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Honor 100 Android SIM Unlock APK</u></a></li>
-<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Samsung Galaxy S24+ | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/the-path-to-perfect-visuals-an-advanced-course-in-vce-22-for-2024/"><u>The Path to Perfect Visuals An Advanced Course in VCE 2.2 for 2024</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-unlock-adobe-premieres-full-potential-top-15-plugins-free-download-for-2024/"><u>Updated Unlock Adobe Premieres Full Potential Top 15 Plugins (Free Download) for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-how-to-make-a-ken-burns-effect-in-camtasia-9/"><u>[New] 2024 Approved How to Make a Ken Burns Effect in Camtasia 9?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-streamlining-video-calls-leveraging-zoom-on-windows-10-pcs/"><u>[New] In 2024, Streamlining Video Calls Leveraging Zoom on Windows 10 PCs</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-streamlined-method-keeping-and-capturing-twitters-videomedia/"><u>[New] Streamlined Method Keeping and Capturing Twitters Video/Media</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-5-budget-friendly-video-effect-tools/"><u>[New] Top 5 Budget-Friendly Video Effect Tools</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-proven-tactics-for-unblemished-image-sourcing/"><u>[Updated] 2024 Approved Proven Tactics for Unblemished Image Sourcing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-how-to-install-and-modify-whatsapp-alerts-on-both-platforms/"><u>[Updated] In 2024, How to Install & Modify WhatsApp Alerts on Both Platforms</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-copyright-compliance-in-instagrams-musical-world/"><u>[Updated] Mastering Copyright Compliance in Instagram's Musical World</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-optimal-low-cost-screen-recording-options-for-chromebook-for-2024/"><u>[Updated] Optimal Low-Cost Screen Recording Options for Chromebook for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-top-essentials-for-enhanced-uav-functionality/"><u>[Updated] Top Essentials for Enhanced UAV Functionality</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unlock-high-res-video-leading-4k-conversion-tools-for-2024/"><u>[Updated] Unlock High-Res Video Leading 4K Conversion Tools for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/become-a-meme-genius-the-best-8-gif-making-methods/"><u>Become a Meme Genius The Best 8 GIF-Making Methods</u></a></li>
+<li><a href="https://windows11.techidaily.com/expert-guidance-manual-time-zone-setup-for-windows-users/"><u>Expert Guidance: Manual Time Zone Setup for Windows Users</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-action-seekers-showdown-hero-4-meets-ghost-s-drifting/"><u>In 2024, Action Seekers' Showdown Hero 4 Meets Ghost-S Drifting</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-iphone-13-drfone-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/proven-methods-to-elevate-patient-testimonial-videos-for-2024/"><u>Proven Methods to Elevate Patient Testimonial Videos for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/the-definitive-guide-to-fixing-a-non-functional-rust-microphone/"><u>The Definitive Guide to Fixing a Non-Functional Rust Microphone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/windows-software-hp-p1102w-firmware/"><u>Windows Software: HP P1102w Firmware</u></a></li>
 </ul></div>
 
